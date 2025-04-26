@@ -3,10 +3,9 @@ name: 'The Badely'
 description: 'The Badely Blog'
 logo: 'assets/images/logo.png'
 favicon: 'assets/images/favicon.ico'
-baseurl: '/'
+baseurl: ''
 disqus: ''
 email: ''
-mailchimp-list: ''
 
 include: ["_pages"]
 permalink: /:title/
