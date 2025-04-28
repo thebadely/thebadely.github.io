@@ -6,34 +6,18 @@ favicon: 'assets/images/favicon.ico'
 baseurl: ''
 disqus: ''
 email: ''
+url: "https://thebadely.com"
 
 include: ["_pages"]
 permalink: /:title/
 
 # Plugins
 plugins: 
-  - jekyll-feed
   - jekyll-sitemap
-  - jekyll-paginate
+  - jekyll-paginate-v2
   - jekyll-seo-tag
-  
-authors:
-    sal:
-      name:           Sal
-      site:           https://www.wowthemes.net
-      avatar:         /assets/images/avatar1.jpg
-      bio:            "Hi, I am Sal, the author of Mundana, the theme you're currently previewing. I hope you like it!"
-      email:          wowthemesnet@gmail.com
-      twitter:        https://twitter.com/wowthemesnet
 
-    jane:
-      name:           Jane
-      site:           https://www.wowthemes.net
-      avatar:         /assets/images/avatar2.jpg
-      bio:            "Blogger, fashionista, love to explore new ideas and write on my morning coffee!"
-      email:          fakemail@gmail.com
-      twitter:        https://twitter.com/wowthemesnet
- 
+   
 # Defaults
 defaults:
 
@@ -56,7 +40,17 @@ markdown: kramdown
 highlighter: rouge
 
 # Paginate
-paginate: 10
+pagination:
+  enabled: true
+  per_page: 5  # Her sayfada 5 yazı olsun
+  title: ':title - page :num'
+  sort_field: 'date'
+  sort_reverse: true
+  trail:
+    before: 1
+    after: 1
+
+
 
 
 

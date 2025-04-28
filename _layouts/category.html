@@ -1,0 +1,35 @@
+---
+layout: default
+pagination:
+enabled: true
+---
+
+<div class="container">
+    <div class="row justify-content-center">
+        <div class="col-md-12">
+
+            <h1 class="font-weight-bold title h6 text-uppercase mb-4">{{ page.title }}</h1>
+
+            {% for post in paginator.posts %}
+            {% if post.title %}
+            {% include main-loop-card.html post=post %}
+            {% endif %}
+            {% endfor %}
+
+            <div class="pagination mt-4 d-flex justify-content-between">
+
+                {% if paginator.previous_page %}
+                <a href="{{ paginator.previous_page_path | relative_url }}" class="btn btn-primary">&larr; Previous</a>
+                {% else %}
+                <span></span>
+                {% endif %}
+
+                {% if paginator.next_page %}
+                <a href="{{ paginator.next_page_path | relative_url }}" class="btn btn-primary">Next &rarr;</a>
+                {% endif %}
+
+            </div>
+
+        </div>
+    </div>
+</div>
