@@ -6,7 +6,7 @@ favicon: 'assets/images/favicon.ico'
 baseurl: ''
 disqus: ''
 email: ''
-url: "https://thebadely.com"
+url: "https://thebadely.github.io"
 
 include: ["_pages"]
 permalink: /:title/
