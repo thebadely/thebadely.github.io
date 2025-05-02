@@ -1,1 +1,1 @@
-Sitemap: https://thebadely.com/sitemap.xml
+Sitemap: https://thebadely.github.io/sitemap.xml
