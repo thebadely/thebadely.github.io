@@ -1,0 +1,13 @@
+---
+layout: post
+title: "Big News: Lost something? You need an 'FBI mindset' to find it..."
+date: 2025-06-24T14:57:09
+author: "badely"
+categories: [Health]
+tags: []
+excerpt: "Drs Chris and Xand van Tulleken discuss how to find something when you lose it."
+image: assets/images/ab262128543a1e59703c66254a76fa1b.jpg
+---
+
+Let's dive into the details: Drs Chris and Xand van Tulleken discuss how to find something when you lose it.
+
