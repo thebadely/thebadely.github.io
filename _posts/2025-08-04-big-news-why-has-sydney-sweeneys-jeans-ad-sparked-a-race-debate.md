@@ -1,0 +1,13 @@
+---
+layout: post
+title: "Big News: Why has Sydney Sweeney's jeans ad sparked a race debate?"
+date: 2025-08-04T17:53:00
+author: "badely"
+categories: [News]
+tags: []
+excerpt: "Trump says the advert is ‘fantastic’ after learning she’s a registered Republican"
+image: assets/images/e331edddc1e9b4d04b64aa77f47bace4.jpg
+---
+
+Let's dive into the details: Trump says the advert is ‘fantastic’ after learning she’s a registered Republican
+
