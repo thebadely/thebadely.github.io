@@ -1,0 +1,23 @@
+---
+layout: post
+title: "Big News: Can you name every team in the NFL in 10 minutes?"
+date: 2025-09-07T05:34:24
+author: "badely"
+categories: [Sports]
+tags: []
+excerpt: "Are you a NFL know-it-all or do you need to go back to college? Test your knowledge in our latest quiz."
+image: assets/images/1ecb950219038657916209b4941612b0.jpg
+---
+
+It has been recently reported that The new NFL season is under way with all 32 teams from across the United States hoping this will be their year.
+
+To celebrate we're challenging you to name every team in the NFL.
+
+You have 10 minutes. Good luck!
+
+Which NFL team should you support?
+
+Can you name every EFL Cup-winning team in 10 minutes?
+
+Can you name every record Premier League signing?
+
