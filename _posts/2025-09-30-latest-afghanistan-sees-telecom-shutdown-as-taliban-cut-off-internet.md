@@ -1,0 +1,65 @@
+---
+layout: post
+title: "Latest: Afghanistan sees telecom shutdown as Taliban cut off internet"
+date: 2025-09-30T04:53:11
+author: "badely"
+categories: [Technology]
+tags: []
+excerpt: "Phone and internet links are down nationwide after the Taliban sever fibre-optic connections."
+image: assets/images/d612cb1f5b172a1c686308b6995e3f3e.jpg
+---
+
+According to new developments, The Taliban government in Afghanistan has imposed a nationwide shutdown of telecommunications, weeks after it began severing fibre-optic internet connections.
+
+The country is currently experiencing a "total internet blackout", internet watchdog Netblocks reports.
+
+International news agencies say they have lost contact with offices in the capital Kabul. Mobile internet and satellite TV has also been severely disrupted across Afghanistan.
+
+The Taliban have yet to give an official reason for the shutdown. Since seizing power in 2021, the Taliban have imposed numerous restrictions in accordance with their interpretation of Islamic Sharia law.
+
+A Taliban official said the telecom shutdown would last until further notice.
+
+Tolo News, a privately owned Afghan news channel, told people to follow its social media pages for updates as it expected disruptions to its television and radio networks.
+
+Flights from Kabul airport have also been disrupted, local media reported.
+
+According to Flight tracking service Flightradar24, at least eight flights scheduled to depart from or arrive at Kabul International Airport on Tuesday have been cancelled.
+
+Diplomatic officials have told the BBC that the internet cuts could affect banking and e-commerce systems nationwide.
+
+Several people in Kabul have told the BBC that their fibre-optic internet stopped working towards the end of the working day, around 17:00 local time (12:30 GMT)
+
+Because of this, it is understood many people will not notice the impact until Tuesday morning, when banking services and other businesses are due to resume.
+
+Fibre-optic cables transfer data super fast, and are used for much of the world's internet.
+
+In a post on social network Mastodon.social, Netblocks said:
+
+"Afghanistan is now in the midst of a total internet blackout as Taliban authorities move to implement morality measures, with multiple networks disconnected through the morning in a stepwise manner; telephone services are currently also impacted".
+
+For weeks internet users in several Afghan provinces have been complaining about either slow internet access or no connectivity. 
+
+Several residents, who requested anonymity, previously told the BBC that their businesses and lives had been seriously affected by the internet cuts.
+
+A man who works as a money changer in Takhar province told the BBC that his daughters' online English classes were disrupted. "Their last opportunity to study and stay engaged is now gone," he said.
+
+Another woman previously told the BBC that she could not attend online classes since her home internet was cut off. "I had hoped to finish my studies and find an online job, but that dream has also been destroyed," she said. "Without internet access, I don't know what will happen next."
+
+Hamid Haidari, former editor-in-chief of Afghan news channel 1TV, said on Monday that "loneliness enveloped the entire country" after the shutdown.
+
+"Afghanistan has now officially taken first place in the competition with North Korea for [internet] disconnection" he said on X.
+
+"The silence online without Afghan voices from inside Afghanistan is deafening," Mariam Solaimankhil, a former member of Afghanistan's parliament now based in the US, wrote in a post tagging X owner Elon Musk.
+
+The Taliban earlier said an alternative route for internet access would be created, without giving any details.
+
+The blackout is the latest in a series of restrictions which the Taliban have enforced since returning to power.
+
+Earlier this month they removed books written by women from the country's university teaching system as part of a new ban which has also outlawed the teaching of human rights and sexual harassment.
+
+Women and girls have also been particularly hard-hit: they are barred from accessing education beyond the age of 12, with one of their last routes to further training cut off in late 2024, when midwifery courses were quietly shut down.
+
+A university student told the BBC that she had "no other choice except online study" after her midwifery course was banned. "When I heard that the internet had been cut, the world felt dark to me," she said.
+
+The Taliban retook control of Afghanistan in 2021 in a lightning advance, weeks after the withdrawal of US and other international forces.
+
