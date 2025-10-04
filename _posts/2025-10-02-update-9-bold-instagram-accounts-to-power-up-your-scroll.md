@@ -1,0 +1,14 @@
+---
+layout: post
+title: "Update: 9 bold instagram accounts to power up your scroll"
+date: 2025-10-02T07:10:43
+author: "badely"
+categories: [Women]
+tags: []
+excerpt: "<p>Here&#8217;s a curated guide of resilient accounts to #follow on Instagram this month. Muse @muse.dxb Hand-made abayas crafted to perfection by a b"
+image: assets/images/032231354065b56f658932ecd2d5c040.jpg
+---
+
+Experts revealed that <p>Here&#8217;s a curated guide of resilient accounts to #follow on Instagram this month. Muse @muse.dxb Hand-made abayas crafted to perfection by a bold designer duo. Alia Al Shamsi @aliaalshamsi An author, artist and independent curator on a mission to celebrate voices from the region. Studio Julie Lemke @studiojulielemke Skin is done differently at this new [&#8230;]</p>
+<p>The post <a href="https://emirateswoman.com/9-bold-instagram-accounts-to-power-up-your-scroll/" rel="nofollow">9 bold instagram accounts to power up your scroll</a> appeared first on <a href="https://emirateswoman.com" rel="nofollow">Emirates Woman</a>.</p>
+
