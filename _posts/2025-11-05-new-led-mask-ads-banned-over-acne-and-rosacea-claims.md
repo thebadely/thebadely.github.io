@@ -1,0 +1,55 @@
+---
+layout: post
+title: "New: LED mask ads banned over acne and rosacea claims"
+date: 2025-11-05T00:08:23
+author: "badely"
+categories: [News]
+tags: []
+excerpt: "Adverts for cosmetic devices not registered with the medicines regulator must not make medical claims."
+image: assets/images/5bdfd619e7293ddac209270ecd150079.jpg
+---
+
+According to new developments, A number of adverts for LED face masks have been banned for making unauthorised claims they can improve acne and rosacea.
+
+The popularity of at-home beauty devices has surged in recent years with social media feeds filled with influencers unboxing and reviewing the masks as the latest skincare trend.
+
+However, dermatologists are divided over whether light-emitting diodes (LED) in at-home masks can deliver the results of medical-grade devices used in clinics. 
+
+The advertising watchdog banned adverts for cosmetic devices which were not registered with the medicines regulator.
+
+LED therapy is thought to stimulate cells and improve the skin, but devices must be registered with the Medicines and Healthcare products Regulatory Agency (MHRA) to make medical claims about skin conditions like acne and rosacea.
+
+Devices registered with the MHRA can be searched on its Public Access Registration Database (PARD). 
+
+Dermatologists have previously told the BBC there have not been clinical trials with large enough sample sizes for long enough periods of time to know the benefits of at-home LED masks.
+
+The Advertising Standards Authority (ASA) used AI to search for ads which might break the rules, and the bans followed that search.
+
+An advert on Project E Beauty's website showed before and after images of a woman's forehead with and without acne, with the words: "By week three, my acne had disappeared". 
+
+The ad stated: "Our most advanced LED mask for deeper skin renewal". It claimed it "treats acne" and offered "83% improvement in acne lesions in four weeks".
+
+The ASA said "no medical claims could be made for the product, whether or not such claims appeared in customer testimonials."
+
+Project E Beauty LLC said it had removed potential medical claims relating to "healing", "treating acne" and "rosacea".
+
+It also said it had amended the advert to state that any references to acne in before/after photos and reviews were testimonials based on personal experiences.
+
+A paid-for social media ad for Silk'n featured a video of a woman using an LED face mask with the caption: "Finished with the blue light to help treat my acne and scars".
+
+Invention Works BV, trading as Silk'n, acknowledged the term "acne" constituted a medical claim. It said the advert was created by a woman after prolonged use of the mask and the wording reflected her individual perception and results.
+
+The ASA told Silk'n the adverts must not appear again in that form.
+
+Other adverts banned include one on the Beautaholics website for a RejuvaLux mask which stated: "This mask provides targeted solutions for...acne...rosacea." 
+
+Beautaholics said it would not make claims regarding the treatment or prevention of medical conditions in future.
+
+A paid-for social media ad for a mask by Luyors Retail Inc was also banned after it stated: "It helps tackle everything from acne...with clinical precision."
+
+Luyors said it would ensure future advertising did not refer to "acne" or other terms that could imply a medicinal claim.
+
+Izzy Dharmasiri at the ASA said ads "can have an influence on what people buy," so it was "important that advertisers don't blur the line between cosmetic benefits and medicinal claims."
+
+She said advertisers "need to have evidence to back up any claims they make in their ads". She said the banning of the adverts was part of its work to protect vulnerable people "seeking genuine solutions to medical problems".
+
