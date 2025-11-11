@@ -1,0 +1,99 @@
+---
+layout: post
+title: "Breaking: Nearly all NHS trusts are struggling to hit cancer targets - use our tool to check yours"
+date: 2025-11-11T04:47:24
+author: "badely"
+categories: [News]
+tags: []
+excerpt: "Experts say patients are being harmed by cancer diagnosis and treatment delays."
+image: assets/images/c814b2db3ada67b37f5a44514f8c348e.jpg
+---
+
+Let's dive into the details: Almost every hospital trust in England is failing to meet the key NHS waiting time target for cancer care, BBC analysis shows.
+
+Just three trusts out of 121 in England are treating cancer patients quickly enough - within 62 days - with experts warning delays could be putting lives at risk.
+
+The government accepted waits were too long, but said it was investing in the NHS to improve performance.
+
+Research shows getting treatment quickly is crucial, with every four-week delay reducing patient survival by an average of 10%.
+
+Dr Timothy Hanna, a leading global expert on cancer who led that research, said the BBC findings were "worrying".
+
+"It's not a few outliers. It's the norm for trusts in England to not hit these waiting time targets and they are set for a reason - timely treatment can improve survival rates."
+
+Paul, who has stage three colon cancer, is one of many patients who has faced delays. His first biopsy was taken in January 2024 when cancer was suspected. He did not receive any further contact from his cancer services, despite his best efforts, until January this year. He eventually had surgery on his colon in February.
+
+Although his cancer has not spread to distant body parts, it had spread to nearby lymph nodes.
+
+"The waiting was horrendous and now I think that if I had been treated properly and not had to wait so long it wouldn't have progressed to stage three."
+
+He is due to have further surgery next year.
+
+Hospitals say demand for testing and care is outstripping capacity.
+
+The BBC has also been told about when things go wrong, including scanning and radiotherapy machines breaking down, GP referral letters being lost and staffing issues mean appointments are cancelled at the last minute.
+
+BBC Verify looked at performance across every major cancer service in England over the past 12 months – from September 2024 to August 2025.
+
+There are targets for each part of the cancer journey. Hospitals should:
+
+Nearly one in four trusts have been missing all three targets over the past 12 months.
+
+Some of the major regional cancer hubs say they are struggling with inherited waits.
+
+Larger hospitals that offer specialist services often get complex patients passed on to them from smaller hospitals.
+
+One service that is struggling with inherited waits is London's Royal Free NHS Trust, which is ranked 109 out of 121 when it comes 62-day waits - although, like so many low ranking trusts, the performance is improving. 
+
+It acts as a specialist kidney cancer centre for patients across south-east England. And while it has some new equipment, including robotic surgery theatres, administration problems can result in operations being cancelled. The day before the BBC filmed a report at the hospital, the theatre sat empty as a patient had not received the letter confirming surgery.
+
+Radiotherapy is another area the Royal Free wants to improve. One of its two machines is more than 10 years old - the age at which they should be retired because they become less efficient and less reliable.
+
+Claire Hartill, head of radiotherapy at the Royal Free, said: "We can't deliver the service we want to and it can cause delays to patient treatment.
+
+"We need a newer machine – it delivers better treatment faster so means we can treat more people per hour."
+
+The trust submitted a business plan to the government earlier this year for funding to buy a new machine, but was turned down.
+
+There are just three cancer services that are achieving the 62-day target over the past 12 months - Calderdale and Huddersfield, East and North Hertfordshire and Bolton NHS trusts.
+
+Streamlined communication, state-of-the-art equipment and joined-up team work appear to be key.
+
+Paul, who is in his 50s, was diagnosed with prostate cancer a few weeks ago at the Lister Hospital in Stevenage, part of East and North Hertfordshire NHS Trust.
+
+On the day he was told his diagnosis he also met with a surgeon and an oncologist to discuss his treatment options.
+
+His treatment choice was between a long course of radiotherapy or to have the prostate surgically removed.
+
+Once he had made up his mind to have an operation, it was booked in. His procedure will be done using robotic surgery. It not only reduces side effects, but also helps speed up recovery. 
+
+Paul will only be in hospital for one night so the bed he uses will be free for another patient after only 24 hours.
+
+"He [the surgeon] got his diary out, flicked through a couple of pages and gave me a date. I said, that's a Saturday. The surgeon said, yes, I work Saturdays," laughs Paul.
+
+Over in the chemotherapy ward there are more steps being taken to ease capacity issues. A new initiative - one of the first in England - is allowing patients on certain types of chemotherapy to be taught how to do the treatment for themselves at home.
+
+Josephine Hoskins is one of them. She has to have chemotherapy injections every three weeks and lives between London and Devon. "It's revolutionised things for me," she said.
+
+Moving patients like Josephine to 'at-home chemo' immediately opens up another slot for someone that needs more complex treatment.
+
+The government said it was determined to improve waiting times. A new cancer strategy is expected to be published by the government early next year. It comes after cancer was named as a ‘core priority’ in the 10-year NHS plan published in July.
+
+A Department of Health spokeswoman said: "Cancer care is a priority as we turn around more than a decade of neglect of our NHS.
+
+"We're working at pace to ensure patients get timely diagnoses and treatment -  building more community diagnostic centres, offering evening and weekend appointments and spending £70 million on new radiotherapy machines to get patients faster access to the tests, checks and scans they require."
+
+But Sarah Scobie of the Nuffield Trust health think tank believes ministers will struggle to address the problems highlighted by the BBC analysis.
+
+"The reality for the government is that it will be incredibly challenging to make meaningful progress on waiting times when finances are so tight."
+
+BBC News analysed official cancer waiting time statistics from NHS England, covering the 12 months from September 2024 to August 2025.
+
+The NHS publishes data monthly, but we have analysed the performance over the whole year.
+
+We looked at performance against the three national targets.
+
+Trusts were ranked according to their performance on the 62-day measure, which covers the entire waiting time between urgent referral and starting treatment.
+
+Additional reporting by Jess Carr and Muskeen Liddar
+
