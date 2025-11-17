@@ -1,0 +1,97 @@
+---
+layout: post
+title: "Big News: How my on-air 'brain fog' moment sparked a big debate"
+date: 2025-11-17T00:06:44
+author: "badely"
+categories: [News]
+tags: []
+excerpt: "When the BBC's Zoe Kleinman spoke about going through perimenopause she got a huge response."
+image: assets/images/e592cb07cae0b8461524730130b41ffa.jpg
+---
+
+It has been recently reported that When I rather nervously shared a personal post about dealing with brain fog at work on the social network LinkedIn last week, I had no idea that it would have such an enormous impact.
+
+It's been viewed hundreds of thousands of times. Women have stopped me on the street to talk to me about it.
+
+I've been overwhelmed by hundreds of messages from people sharing support and their own experiences of it.
+
+Usually I cover technology news. But given the response, it felt important to talk about this as well.
+
+"Brain fog" isn't a medical term. But you may well know exactly what I'm talking about.
+
+That moment when you suddenly can't remember the word for something really obvious, or you're mid-sentence and you lose your train of thought. It's infuriating, and it can be embarrassing.
+
+Where was I?
+
+Ah yes, for me, as a woman in my 40s, it's coincided with perimenopause – the stage in my life where my hormone levels are changing. There can of course be other neurological conditions for which brain fog can be a symptom too.
+
+If you're in a job where public speaking is part of what you do, it can be particularly terrifying.
+
+"I've spent 30 years being professionally articulate," wrote Janet Edgecombe, an internal communications expert.
+
+"All of a sudden I'm forgetting the words for basic things. 'That grey thing in the thingy that we cook chicken on'. My husband replies 'oh, the baking tray in the oven'. Hmm. 'Yeah, that thing'."
+
+I also heard from teachers, start-up founders having to present pitches for money to investors, women running workshops, delivering speeches – and fellow journalists trying to report live on-air, like me. But of course it can also hit mid-conversation, in a more intimate but no less frustrating way.
+
+My post was about my decision to hold a page of notes on the BBC News at Ten. A story had broken late in the afternoon, following an already busy day, and by the time we reached 10pm, I knew I was getting tired and I could feel the brain fog.
+
+I was going to talk about an outage that was affecting dozens of websites and apps, and I planned to use the technical jargon for it, as given by the company affected, and then explain what it actually meant.
+
+But I just couldn't get the phrase to stick in my head and I knew that without it, I wouldn't manage the rest of what I needed to say.
+
+I was reporting live from Glasgow. Like many of my professional peers, I do not have, and I've never had, autocue. And so, for the first time, I decided at the last minute to hold a page of notes with the offending phrase on it.
+
+It felt to me at the time like an admission of failure. I have been trained never to use notes – unless there's a specific legal reason why the wording of a statement, for example, has to be precise, or there are a lot of figures to remember.
+
+Even then, I have prided myself on having a good enough short-term memory to get me through.
+
+Using notes is discouraged in the world of public speaking. They are not permitted to anyone giving a 12-minute TED talk. The speaker is expected to memorise their speech.
+
+Looking down the barrel of the camera and clutching that paper, live on TV, felt tough.
+
+But around 10% of women report leaving their jobs due to menopause symptoms, according to the Fawcett Society. And research by insurance firm Royal London found that half of women going through it have considered giving up work. I don't want to do that – and so I stuck with my solution.
+
+To my intense relief, some people said they thought my paper looked authoritative, that they just assumed it was a breaking story and the page contained fresh information. Others asked why I hadn't used a device instead – I suppose I thought the potential of having to fumble with a screen would feel even worse.
+
+"Let's start a movement: Hold your notes," wrote Elisheva Marcus, vice president of communications at the venture capitalist firm Earlybird.
+
+And so, the hashtag holdthenotes was born.
+
+"Have you ever checked your testosterone levels?" menopause expert Dr Louise Newson asked me.
+
+She says testosterone – despite its reputation for being a male hormone, and its association with sex drive and libido, is actually an essential brain chemical for both men and women, and levels fall in both genders. One of the results is brain fog.
+
+"It's like you've been drugged," she says. "It's really scary, a lot of people worry they've got dementia."
+
+"I remember when I had my levels done 10 years ago, and I was like 'Thank God, at least I know why I'm feeling so awful'."
+
+She adds that there are studies dating back to the 1940s indicating that testosterone can improve brain function and wellbeing in women as well as men, but the randomised control studies, where participants are given either a placebo or the product itself in order to see whether it really works, have only focused on improvements to libido.
+
+NHS-prescribed Hormone Replacement Therapy, or HRT, is traditionally a combination of oestrogen and progesterone. Testosterone is not routinely included.
+
+Instead doctors can separately prescribe testosterone to female patients, at lower doses than given to men.
+
+There are also a myriad of menopause supplements which claim to ease symptoms including brain fog. Estimates vary but it's a multi-billion dollar industry and its booming.
+
+Women spend an average of £147 per year on supplements to try to alleviate their menopause symptoms, according to a survey earlier this year by the nutrition news website NutraIngredients.
+
+"They might help a bit," says Dr Newson.
+
+"I do yoga every day, and that helps my brain become clear and focused, but I have a hormone deficiency, I can't eat my way out of it, or exercise my way out of it.
+
+"A lot of women spend a fortune trying to improve symptoms of a hormone deficiency with something else."
+
+Dr Joshua Chen is part of the Harvard Medical School-Massachusetts General Hospital Photobiomodulation Research Group. The team is looking at how frequencies of red light can change the mitochondria inside the brain to improve focus.
+
+He describes it as "like a face mask, but for the brain". It can also, he says, be applied to the Vagus nerve on the neck to reduce stress.
+
+He has founded a company called Niraxx which markets a headband called a neuro espresso, which is designed to be worn for up to 20 minutes a day. He claims the results are instant. It has to be plugged in – there are no batteries in the device for safety reasons.
+
+Angela Marsh is a registered nurse and a menopause coach. She says her clients often describe brain fog as feeling like they are "living life in soft focus".
+
+"I don't think brain fog is taken seriously enough at all," she says.
+
+"Many women feel deeply unsettled by the changes they experience. They think there's something wrong with them or they're 'losing it' when in fact there's a clear biological reason."
+
+As for me – well, I've booked a blood test to check my hormone levels. I'm going to try some red-light therapy. And you are probably going to see me holding notes a bit more often.
+
