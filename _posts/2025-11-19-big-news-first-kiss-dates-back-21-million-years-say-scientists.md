@@ -1,0 +1,49 @@
+---
+layout: post
+title: "Big News: First kiss dates back 21 million years, say scientists"
+date: 2025-11-19T00:08:59
+author: "badely"
+categories: [News]
+tags: []
+excerpt: "A new study looks at how the mouth-on-mouth smooch came into being, and concludes that Neanderthals also kissed."
+image: assets/images/e592cb07cae0b8461524730130b41ffa.jpg
+---
+
+Here’s what you need to know: Humans do it, monkeys do it, even polar bears do it. And now researchers have reconstructed the evolutionary origins of kissing. 
+
+Their study suggests that the mouth-on-mouth kiss evolved more than 21 million years ago, and was something that the common ancestor of humans and other great apes probably indulged in.
+
+The same research concluded that Neanderthals may have kissed too – and that humans and Neanderthals may even have smooched one another.
+
+The scientists studied kissing because it presents something of an evolutionary puzzle - it has no obvious survival or reproductive benefits, and yet it is something that is seen not just in many human societies, but across the animal kingdom. 
+
+By finding evidence of other animals engaging in kissing, scientists were able to construct an "evolutionary family tree" to work out when it was most likely to have evolved.
+
+To ensure that they were comparing the same behaviour across different species, the researchers had to give a very precise - rather unromantic - definition to a "kiss". 
+
+In their study, published in the journal Evolution and Human Behaviour, they defined kissing as non aggressive, directed oral-oral contact "with some movement of lips or mouthparts and no food transfer".
+
+"Humans, chimps, and bonobos all kiss," explained lead researcher Dr Matilda Brindle, an evolutionary biologist from the University of Oxford. From that, she concluded, "it's likely that their most recent common ancestor kissed."
+
+"We think kissing probably evolved around 21.5 million years ago in the large apes."
+
+In this study, scientists found behaviour that matched their scientific definition of kissing in wolves, prairie dogs, polar bears (very sloppy - lots of tongue), and even albatrosses. 
+
+They focused on primates - and apes in particular - in order to build an evolutionary picture of the origin of the human kiss. 
+
+The same study also concluded that Neanderthals - our closest ancient human relatives that died out around 40,000 years ago - also kissed. 
+
+One previous piece of research on Neanderthal DNA also showed that modern humans and Neanderthals shared an oral microbe - a type of bacteria found in our saliva. 
+
+"That means that they must have been swapping saliva for hundreds of thousands of years after the two species split," explained Dr Brindle.        
+
+While this study pinpointed when kissing evolved it was not able to answer the question of why. 
+
+There are already a number of theories - that it arose from grooming behaviour in our ape ancestors or that it might provide an intimate way to assess the health and even the compatibility of a partner. 
+
+Dr Brindle hopes that this will open a door to answering that question. 
+
+"It's important for us to understand that this is something we share with our non-human relatives," she said.
+
+"We should be studying this behaviour, not just dismissing it as silly because it has romantic connotations in humans."     
+

@@ -1,0 +1,45 @@
+---
+layout: post
+title: "Latest: Surgical menopause like a 'hormonal cliff edge'"
+date: 2025-11-10T05:58:40
+author: "badely"
+categories: [Health]
+tags: []
+excerpt: "Surgical menopause is the immediate onset of menopause caused by the removal of both ovaries."
+image: assets/images/ded15ee2c9aaa8b1cab7e7fd503030fd.jpg
+---
+
+According to new developments, A woman who was plunged into sudden menopause after surgery to remove both ovaries is spearheading efforts to change NHS policy.
+
+Kate Dyson, 44, from Hastings, East Sussex, underwent the surgery six months ago after having a subtotal hysterectomy in 2021 to remove her uterus - a procedure which leaves the cervix in place.
+
+The mum-of-three says she was completely unprepared for the impact of surgical menopause, which is triggered by both ovaries being removed.
+
+"Honestly, it was like falling off a hormonal cliff edge," she told BBC Radio Sussex.
+
+"Within hours of the surgery I was home the same day. I was experiencing hot flushes, confusion, and the first night I woke up in the morning and I was absolutely dripping with sweat," she said. 
+
+Ms Dyson found the aftercare galling, and said this was commonplace for women.
+
+"We are discharged without hormones, without warning, and without support," she said.
+
+"In my discharge notes it simply read, 'can try combined HRT [hormone replacement therapy] if she wishes', as if it were suggesting a glass of wine at the weekend."
+
+This experience prompted her to start campaign group Surge Menopause, whose aim is to push the Department of Health and Social Care (DHSC) to revolutionise its offering.
+
+The DHSC said it was taking action to combat deficiencies, including adding menopause advice to NHS health checks and bringing down gynecology waiting lists.
+
+A spokesperson said: "It is unacceptable women are not receiving the proper care and support following surgical menopause and the Health Secretary has been clear that we inherited a broken NHS with too many women still subject to a system that doesn't listen to their experiences or understand their needs."
+
+Ms Dyson said: "We're calling for every woman facing ovary removal to receive clear information about the impact of surgical menopause pre-surgery, supportive information about hormone therapy and automatic access to HRT where it's safe, and proper follow-up care that responds to the severity of symptoms experienced by women in surgical menopause."
+
+According to research by Newson Health and Dr Ceri Cashell, only 4.8% of 126 pre-menopausal women at three NHS hospitals who underwent surgery to remove both ovaries received HRT afterwards.
+
+This is despite the National Institute for Health and Care Excellence (Nice) and British Menopause Society recommending HRT until the average age of natural menopause, around the age of 51.
+
+Ms Dyson built the Surge website herself in a bid to create a "one-stop shop" for all matters around surgical menopause.
+
+Her biggest objective was to create a space where those affected could learn what life looks like "in this whole new chapter of surgical menopause".
+
+Follow BBC Sussex on Facebook, on X, and on Instagram. Send your story ideas to southeasttoday@bbc.co.uk  or WhatsApp us on 08081 002250.
+
