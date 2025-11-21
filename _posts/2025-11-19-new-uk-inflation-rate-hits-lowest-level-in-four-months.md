@@ -1,0 +1,71 @@
+---
+layout: post
+title: "New: UK inflation rate hits lowest level in four months"
+date: 2025-11-19T08:56:03
+author: "badely"
+categories: [Business]
+tags: []
+excerpt: "Prices have been rising more slowly in the twelve months to October but food prices bucked the trend."
+image: assets/images/5247e3ac9df86d126e6b5cc1abc65997.jpg
+---
+
+Let's dive into the details: The UK inflation rate fell to 3.6% in the year to October, but food prices rose again following a dip in September.
+
+Prices are rising at their slowest pace for four months, helped by smaller rises in household energy costs and lower hotel costs, the Office for National Statistics (ONS) said.
+
+Economists had expected a slightly bigger fall from September's 3.8% to 3.5%.
+
+The latest inflation report comes just a week ahead of the government's much-anticipated Budget.
+
+"I'm determined to do more to bring prices down," said Chancellor Rachel Reeves, after the latest data was released.
+
+"I recognise that inflation and the cost of living is still a big burden on families across country," she said.
+
+Reeves has said easing cost-of-living pressures is one of the main goals of the Budget, which is expected to include a combination of tax rises and spending cuts to shore up the government finances.
+
+The biggest upward pressure on prices came from food and non-alcoholic drinks, the ONS said. The 12-month inflation rate for food was 4.9% in October, up from 4.5% in September.
+
+Bread, meat, fish, vegetables, chocolate and confectionary were among the products that rose in price. However fruit prices fell slightly.
+
+The fall in inflation means prices are rising more slowly than they were and will foster hope that inflation has peaked, helping to pave the way for lower interest rates.
+
+Inflation remains above the Bank of England's 2% target but the next interest rate decision, due on 18 December, will focus on the longer term impact of raising the cost of borrowing.
+
+"Inflation eased in October, driven mainly by gas and electricity prices, which increased less than this time last year, following changes in the Ofgem energy price cap," said ONS chief economist Grant Fitzner.
+
+Household energy prices, which are capped by the regulator, rose in the year to October. But the 2% rise in the cap was significantly less than the 9.6% hike last year.
+
+The ONS said another factor pulling back inflation was hotel prices. Hotel rates typically fall between the summer and Christmas, but this year they dipped more than last year.
+
+However, fuel prices have risen, affecting drivers and the cost of deliveries.
+
+"The annual cost of raw materials for businesses continued to increase, while factory gate prices also rose," Mr Fitzner added.
+
+The Food and Drink Federation, representing food manufacturers said food price inflation was due to rising costs for ingredients and energy, as well as "regulatory costs" including packaging taxes and rising National Insurance.
+
+Sarah Coles, head of personal finance at stockbrokers Hargreaves Lansdown said:  "If you're wondering what that warm breeze is, it's the entire country heaving a sigh of relief at the news that inflation has fallen for the first time since March."
+
+Lower inflation could also help borrowers, including mortgage holders, if interest rates were to fall, she said.
+
+The Bank of England keeps borrowing rates higher if there is concern that prices are rising rise too quickly.
+
+With inflation proving "sticky" at 3.8% over the last few months the Bank opted at its November meeting to hold interest rates at 4%.
+
+Lower interest rates should help boost growth, another of the chancellor's stated priorities.
+
+Rob Wood chief UK economist at research firm Pantheon Macroeconomics said he believed a December interest rate cut was now "nailed-on" but predicted "a lengthy delay until another cut" following that.
+
+The Bank of England will have its eye on underlying core inflation, which strips out volatile food and energy costs, and services inflation as better indicators of the speed of future price rises.
+
+Both core and services inflation eased in October, raising hopes that inflation may now be on a downward trend.
+
+At the last interest rate meeting earlier this month, the Bank said it judged inflation had peaked in September, without reaching the 4% pinnacle it had originally forecast.
+
+However, the longer term outlook for prices will depend on multiple factors, including the cost of energy and commodities which are affected by global developments and the changing climate.
+
+Policies in the forthcoming Budget could also affect inflation. Speculation  has included the suggestion the chancellor could cut taxes on energy bills to help bring down inflation. Spending cuts or tax rises could also have a deflationary impact.
+
+Shadow chancellor Sir Mel Stride said: "Inflation has been above target every single month since Labour's last Budget, leaving working people worse off."
+
+Liberal Democrat deputy leader Daisy Cooper said the chancellor "mustn't look this small gift horse in the mouth" and called for "emergency measures to slash people's energy bills" and a VAT cut for the hospitality sector.
+
