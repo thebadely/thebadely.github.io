@@ -1,0 +1,79 @@
+---
+layout: post
+title: "Breaking: Lockdown could have been avoided - key findings from Covid inquiry"
+date: 2025-11-20T18:01:47
+author: "badely"
+categories: [Health]
+tags: []
+excerpt: "The long-awaited report is published into how well or badly the government handled the Covid pandemic."
+image: assets/images/95f66defee66a2c0590c3a04cc4d1e78.jpg
+---
+
+Here’s what you need to know: The long-awaited independent report into how well or badly the government handled the Covid pandemic has been published. 
+
+Chairwoman of the inquiry, former judge Baroness Hallett, said the UK's response could be summarised as "too little, too late".
+
+The report looks at whether lockdowns were timely and reasonable, and what impact rule-breaking at the heart of government had on public confidence.
+
+Here are some of the main findings. 
+
+The report says lockdown could have been avoided if steps such as social distancing and isolating those with symptoms along with members of their household had been introduced earlier than mid-March 2020.
+
+But by the time ministers took action it was already too late and a lockdown was inevitable, it says.
+
+By the end of January 2020 it "should have been clear that the virus posed a serious and immediate threat", while February 2020 was "a lost month" and the lack of urgency overall in government was "inexcusable", the inquiry found.
+
+Voluntary measures were brought in on 16 March 2020, followed by the full stay-at home lockdown seven days later.
+
+Bringing in lockdown a week earlier on 16 March would have meant 23,000 fewer deaths in England in the first wave, modelling suggests. This would have equated to 48% fewer deaths in the first wave.
+
+But the report does not suggest the overall death toll for the pandemic – 227,000 in the UK by the time it was declared over in 2023 – would have been reduced by an earlier lockdown.
+
+That is very difficult to tell, as it depends on a variety of other factors that could have reduced or increased the number of deaths as the pandemic progressed.
+
+The report describes a "toxic and chaotic" culture at the heart of the UK government during its response to the pandemic, which it said affected the quality of advice and decision-making.
+
+While it says poor behaviour was displayed by a number of senior leaders and advisers, Boris Johnson's chief adviser, Dominic Cummings  is described as having been a "destabilising influence".
+
+It says his actions contributed "significantly to a culture of fear, mutual suspicion and distrust that poisoned the atmosphere in 10 Downing Street".
+
+The then-PM Johnson is also criticised for excessive optimism in the face of the looming pandemic and "oscillation" on key lockdown decisions.
+
+The report says Johnson "should have appreciated sooner that this was an emergency that required prime ministerial leadership to inject urgency into the response".
+
+Instead, he failed to appreciate the urgency of the situation "due to his optimism it would amount to nothing", it says.
+
+Meanwhile, his health secretary, Matt Hancock, is accused by Baroness Hallett of not being "candid" enough about the UK's ability to deal with the virus.
+
+While the lockdowns of 2020 and 2021 undoubtedly saved lives, they also "left lasting scars on society and the economy, brought ordinary childhood to a halt, delayed the diagnosis and treatment of other health issues and exacerbated societal inequalities", it says.
+
+Children were not prioritised enough, with ministers failing to consider properly the consequences of school closures, the report says.
+
+It says the vast majority of children were not at risk of serious direct harm from Covid "but suffered greatly from the closure of schools and requirement to stay at home".
+
+None of the UK's four nations were adequately prepared for the sudden and enormous task of educating most children in their homes, the inquiry adds.
+
+The report says that rule-breaking by politicians and their advisers undermined public confidence in decision-making and significantly increased the risk that people wouldn't stick to the measures being put in place.
+
+It lists events such as Cummings' trip to Durham and Barnard Castle in March 2020; two visits to a second home during lockdown by the chief medical officer for Scotland, Dr Catherine Calderwood; and visits to the home of scientific adviser Prof Neil Ferguson by a woman with whom he was in relationship during lockdown.
+
+By the time details of parties and social events in Downing Street emerged in November 2021, there was a "public outcry", the report says.
+
+Johnson and Rishi Sunak subsequently received fixed penalty notices for their actions.
+
+All four nations were criticised for their planning and decision-making, which the inquiry says was hampered by the lack of trust between Boris Johnson and the first ministers
+
+The inquiry found that at the start of 2020, while all four nations lacked urgency in their response, the devolved administrations were overly reliant on the UK government to lead the response.
+
+The four nations then differed in their strategy for exiting the first national lockdown, with Scotland, Wales and Northern Ireland adopting a more cautious approach – but this was undermined by no restrictions on travel from England, where many restrictions had been eased.
+
+The report finds that in Autumn 2020, Holyrood was the only government to learn lessons from the first lockdown, and introduced tough, locally-targeted measures which helped avoid the need for a nationwide lockdown.
+
+On the other hand, decision-making in Northern Ireland was described as "chaotic", while the Welsh government's approach resulted in the highest age-standardised mortality rate of the four nations between August and December 2020.
+
+The report gives a long list of recommendations, including:
+
+The government doesn't have to adopt the inquiry's recommendations, but it must respond to them, which could shape future policies.
+
+The inquiry has already reported back on Britain's preparedness for the pandemic, concluding that the UK failed citizens with flawed plans. 
+
