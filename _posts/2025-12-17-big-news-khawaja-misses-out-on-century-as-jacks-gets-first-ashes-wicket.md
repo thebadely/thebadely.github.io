@@ -1,0 +1,19 @@
+---
+layout: post
+title: "Big News: Khawaja misses out on century as Jacks gets first Ashes wicket"
+date: 2025-12-17T04:32:41
+author: "badely"
+categories: [Sports]
+tags: []
+excerpt: "Will Jacks gets his first Ashes wicket as he removes Usman Khawaja for 82, with the batter caught by Josh Tongue in the deep, leaving Australia 185-5 "
+image: assets/images/f24a4a77225bc085f53c96e03121b6b4.jpg
+---
+
+Let's dive into the details: There was an error
+
+Will Jacks gets his first Ashes wicket as he removes Usman Khawaja for 82, with the batter caught by Josh Tongue in the deep, leaving Australia 185-5 on day one of the third Ashes Test in Adelaide.
+
+FOLLOW LIVE: The Ashes third Test - day one
+
+Available to UK users only.
+
