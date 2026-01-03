@@ -1,0 +1,19 @@
+---
+layout: post
+title: "Latest: Set-pieces 'becoming a problem' for Chelsea"
+date: 2025-12-31T00:00:04
+author: "badely"
+categories: [Sports]
+tags: []
+excerpt: "Match of the Day pundits Danny Murphy and Rob Green discuss where Chelsea fell short in defending set pieces in their 2-2 draw with Bournemouth."
+image: assets/images/effbc827a7a5751c77862ea2b84b1fa2.jpg
+---
+
+Experts revealed that There was an error
+
+Match of the Day pundits Danny Murphy and Rob Green discuss where Chelsea fell short in defending set pieces in their 2-2 draw with Bournemouth.
+
+WATCH MORE: Bournemouth draw with Chelsea after chaotic first half
+
+Available to UK users only.
+
