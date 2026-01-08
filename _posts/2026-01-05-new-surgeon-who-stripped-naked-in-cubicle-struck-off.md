@@ -1,0 +1,33 @@
+---
+layout: post
+title: "New: Surgeon who 'stripped naked in cubicle' struck off"
+date: 2026-01-05T06:09:52
+author: "badely"
+categories: [Health]
+tags: []
+excerpt: "The doctor was working at the Queen Alexandra Hospital in Portsmouth when the incidents happened."
+image: assets/images/20b6ce3548fd066f136a9d71c3bba135.jpg
+---
+
+Experts revealed that A surgeon found to have stripped naked in a toilet cubicle and implied to a colleague that they have sex in it has been struck off the medical register.
+
+Dr Samuel Stefan was working at the Queen Alexandra Hospital in Portsmouth when the junior colleague who had been chatting with him online organised to meet him in toilets at the hospital.
+
+The man said he had organised to meet there as a mutually convenient place, had not planned to have sex with him and the panel heard he was left "shocked, numb and scared".
+
+It was told Dr Stefan has not apologised to the man or to two others he was found to have sexually harassed. He was not represented at the hearing last month and did not attend himself.
+
+Dr Stefan, a colorectal surgeon, was also found to have tried to kiss another colleague and exposed himself to him.
+
+The Medical Practitioners Tribunal Service (MPTS) panel also found he repeatedly tried to touch the thigh and penis of a third colleague while they worked on the hospital's wards.
+
+"His conduct had been sexually harassing towards [the men] and represented a serious breach of this expected standard," the panel found.
+
+The first man reported the allegations to the police but the second and third men affected had not reported theirs "because of their embarrassment", the panel heard.
+
+It was told it had found him liable for "very serious" misconduct. 
+
+The panel concluded that Dr Stefan would be immediately erased from the medical register following the hearing. 
+
+You can follow BBC Hampshire & Isle of Wight on Facebook, X (Twitter), or Instagram. 
+
