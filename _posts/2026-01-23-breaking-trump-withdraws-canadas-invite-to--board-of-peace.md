@@ -1,0 +1,59 @@
+---
+layout: post
+title: "Breaking: Trump withdraws Canada's invite to  'Board of Peace'"
+date: 2026-01-23T05:16:46
+author: "badely"
+categories: [News]
+tags: []
+excerpt: "Trump did not provide a reason for the decision, which comes after Canada's PM Mark Carney warned of a 'rupture' in the US-led global order."
+image: assets/images/46a08f4990efa2bbc8d6e0dac8f42e9c.jpg
+---
+
+Let's dive into the details: US President Donald Trump has withdrawn an invite for Canada to join his newly constituted 'Board of Peace', in the latest spat between the North American neighbours.
+
+"Please let this Letter serve to represent that the Board of Peace is withdrawing its invitation to you regarding Canada's joining," Trump said on Truth Social in a post addressed to Prime Minister Mark Carney, who made headlines this week when he warned of a "rupture" in the US-led global order. 
+
+Canada had indicated that while it would not pay to be on the board, it would join. 
+
+Meanwhile, EU chief Antonio Costa said European leaders have serious doubts about the scope of the board, but were willing to work with the body in Gaza.
+
+The board, which gives Trump wide decision-making powers as chairman, is being billed by the US as a new international organisation for resolving conflicts.
+
+Trump did not give a reason in Thursday evening's post as to why he had decided to revoke Canada's offer. 
+
+Carney's office did not immediately respond. The prime minster had indicated last week he would accept Trump's invite on principle.
+
+But Ottawa had indicated in recent days that it would not pay the $1bn (£740m) membership fee which Trump has said permanent members will be asked to pay to help fund the board.
+
+Trump's 'Board of Peace' was originally thought to be aimed at helping end the two-year war between Israel and Hamas in Gaza and oversee reconstruction. 
+
+But its proposed charter does not mention the Palestinian territory and appears to be designed to supplant functions of the UN. Trump would be chairman for life.
+
+Some 60 nations have been invited to join the board and about 35 have already signed up, according to the White House.
+
+Those who have agreed to join so far include Argentina, Belarus, Morocco, Vietnam, Pakistan, Kazakhstan, Uzbekistan, Kosovo, Hungary, Egypt, Turkey, Qatar, Jordan, Indonesia and Saudi Arabia.
+
+But none of the other permanent members of the UN Security Council - China, France, Russia, and the UK - have committed to participation so far.
+
+The UK has expressed concerns about the inclusion of Russian President Vladimir Putin, whose forces are fighting in Ukraine after invading in 2022. France said the charter as it currently stood was "incompatible" with its international commitments, especially its UN membership.
+
+European Council president Antonio Costa said European leaders have doubts about the scope of the board, but were ready to work with the US and the newly founded body in Gaza.
+
+Speaking on Friday after an EU leaders' summit in Brussels, Costa said, "We have serious doubts about a number of elements in the charter of the Board of Peace related to its scope, its governance and its compatibility with the UN Charter."
+
+But he said the EU was "ready to work together with the US on the implementation of the comprehensive Peace Plan for Gaza, with a Board of Peace carrying out its mission as a transitional administration".
+
+After the EU leaders' summit, Spanish Prime Minister Pedro Sanchez told reporters that his country had "declined" the invitation to participate in the body.
+
+Trump's withdrawal of Canada's invitation came after Carney appeared to irk Trump with a speech that won a rare standing ovation this week at the World Economic Forum in Davos.
+
+The prime minister urged other "middle powers" to band together in the face of economic coercion by "greater powers", although he did not mention the US president by name.
+
+A day later Trump told the gathering in the Swiss Alpine resort that Canada gets many "freebies" from the US and it "should be grateful".
+
+"Canada lives because of the United States," Trump said. "Remember that, Mark, the next time you make your statements."
+
+On Thursday, Carney swiped back at Trump as he delivered another speech back on home turf.
+
+Speaking in Quebec, he said: "Canada doesn't live because of the United States. Canada thrives because we are Canadians."
+
