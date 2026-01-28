@@ -1,0 +1,19 @@
+---
+layout: post
+title: "Latest: Seahawks see off Rams in thriller to reach Super Bowl"
+date: 2026-01-26T13:31:12
+author: "badely"
+categories: [Sports]
+tags: []
+excerpt: "The Seattle Seahawks beat the Los Angeles Rams 31-27 in a thrilling NFC Championship match to set up a rerun of the 2015 Super Bowl against the New En"
+image: assets/images/a38448b9959beeb505a20f7c6eaef648.jpg
+---
+
+It has been recently reported that There was an error
+
+The Seattle Seahawks beat the Los Angeles Rams 31-27 in a thrilling NFC Championship match to set up a rerun of the 2015 Super Bowl against the New England Patriots.
+
+READ MORE: Seahawks to face Patriots in Super Bowl 60
+
+Available to UK users only.
+
