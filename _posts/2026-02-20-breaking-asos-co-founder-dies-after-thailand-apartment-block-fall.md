@@ -1,0 +1,45 @@
+---
+layout: post
+title: "Breaking: Asos co-founder dies after Thailand apartment block fall"
+date: 2026-02-20T14:35:49
+author: "badely"
+categories: [Technology]
+tags: []
+excerpt: "Quentin Griffiths co-founded Asos in 2000 and remained a significant shareholder after leaving the firm five years later."
+image: assets/images/de9e70e4765ad01fdff84cd500ab7dca.jpg
+---
+
+Let's dive into the details: A co-founder of online fashion giant Asos died after falling from a high-rise apartment block in Thailand, police have said.
+
+Quentin Griffiths has been named by Thai police as the man found dead on the ground in the eastern seaside city of Pattaya on 9 February.
+
+A police investigator told the BBC Griffiths, a British passport holder, was by himself, his room was locked from the inside, and there was no trace of any break-ins at the time of the death. An autopsy did not reveal any evidence of foul play.
+
+Griffiths co-founded Asos in 2000 and remained a significant shareholder after leaving the firm five years later.
+
+An Asos spokesperson said: "We're saddened to hear about the passing of Quentin, one of our original co-founders.
+
+"He played an important role in Asos's earliest days and we're forever grateful for his contribution.
+
+"Our thoughts are with his family and friends."
+
+A Foreign Office spokesperson said: "We are supporting the family of a British national who has died in Thailand and are in contact with the local authorities."
+
+Police in Pattaya told the BBC Griffiths was found dead outside a luxury hotel where he had been staying in as a long-term resident in a suite on the 17th floor.
+
+He was involved in two ongoing court cases that might have caused him stress, police also told the BBC.
+
+Griffiths was separated from his second wife, a Thai national, and had reportedly been engaged in a legal dispute with her over a business they ran together, the BBC understands.
+
+He co-founded Asos in London with Nick Robertson, Andrew Regan and Deborah Thorpe.
+
+Its name originally stood for As Seen On Screen as it sold fashion inspired by clothing worn by TV and film stars.
+
+It grew to become an online fashion marketplace stocking hundreds of brands as well as its own lines and at one time was valued at more than £6bn.
+
+Its largest shareholders include Danish billionaire Anders Holch Povlsen - who owns Danish clothing giant Bestseller and Mike Ashley, owner of Frasers Group.
+
+Additional reporting by Thanyarat Doksone in Bangkok
+
+If you are suffering distress or despair, details of help and support in the UK are available at BBC Action Line
+
