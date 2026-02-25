@@ -1,0 +1,49 @@
+---
+layout: post
+title: "Breaking: Chris Mason - MPs take a latest tone on Andrew – but how big is their appetite for radical changes?"
+date: 2026-02-25T02:45:43
+author: "badely"
+categories: [News]
+tags: []
+excerpt: "It was quite a moment when Sir Chris Bryant called the former prince 'rude, arrogant and entitled' in the House of Commons, the BBC's political editor"
+image: assets/images/653bff74ddc7be633404f0eb8e01fc4f.jpg
+---
+
+Here’s what you need to know: It was quite a moment when a minister of the crown called the King's brother "rude, arrogant and entitled" at the despatch box of the House of Commons.
+
+Granted, Sir Chris Bryant was almost as disobliging about Andrew Mountbatten-Windsor 15 years ago, as an opposition MP, when there were calls then for him to be sacked as the government's trade envoy.
+
+So Sir Chris's views about the former prince are not new but still, when speaking on behalf of the government, it tells you something about how the collapse in respect for Mountbatten-Windsor has been near total.
+
+But the debate in the Commons, triggered by a Liberal Democrat demand for documents relating to the former prince's appointment as a trade envoy to be published, was not a case study in and of itself in a collapse of parliamentary deference around the Royal Family.
+
+Andrew Mountbatten-Windsor has effectively been fired out of a cannon — disowned by the Royal Family and the political classes, and stripped of his titles.
+
+So the conventions set out in the parliamentary bible Erskine May, which have long clipped the wings of debate about the monarch and their family, didn't apply to Mountbatten-Windsor. Hence it was something of open season on him.
+
+But remarks were much more muted, restrained or simply absent about remaining senior royals.
+
+There were, though, some concerns expressed about those conventions — and a sense from some that for too long custom had been the midwife of deference and that must change.
+
+Why the limitations on criticising the royals, asked some. Why limit the capacity of the Freedom of Information Act to allow probing questions of the monarchy? Why not have a public inquiry into all of the recent revelations?
+
+The government has said it will publish the documents relating to the appointment of the former prince 25 years ago. But they are more circumspect about those other requests, while saying they want to press on "at pace" in removing Mountbatten-Windsor from the line of succession.
+
+But let's see how sustained and broad — or the opposite — the appetite for radical change around conventions really is.
+
+Such things have a British habit of being rather sticky. But perhaps the drip, drip of disclosures and developments may shift things. Let's see.
+
+It is also true that there is a subtlety to these conventions. Debate about the Royal Family isn't banned – the House of Commons Library points to the Counsellors of State Act 2022, which was fully debated in the Commons and the Lords.
+
+And, clearly, the Royal Family is treated as different to the rest of us, in Parliament and beyond. Some cherish this, some don't, but it is a fundamental reality of a hereditary monarchy.
+
+One final observation. In a parliamentary debate a week after the King's brother was arrested as part of a criminal investigation into his conduct, no MPs stood up and made a first-principles, direct argument for the abolition of the monarchy.
+
+Granted, the debate was sparsely populated for much of the discussion and there are MPs in the Commons right now who would prefer an elected head of state to the current constitutional arrangements.
+
+But the case for a republic appears to be a first-order concern to fewer MPs now than it has been in the past.
+
+And, perhaps counterintuitively to some given what many see as the rolling horror show of revelations right now, this moment is yet to provoke, among many parliamentarians at least, a debate about the fundamentals of the UK's constitutional settlement.
+
+For those in Buckingham Palace braced for whatever might come next in this saga, that may be at least some consolation.
+
