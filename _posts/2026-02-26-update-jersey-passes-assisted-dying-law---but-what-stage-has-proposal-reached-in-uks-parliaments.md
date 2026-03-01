@@ -1,0 +1,87 @@
+---
+layout: post
+title: "Update: Jersey passes assisted dying law - but what stage has proposal reached in UK's parliaments?"
+date: 2026-02-26T11:47:01
+author: "badely"
+categories: [Health]
+tags: []
+excerpt: "Bills to let terminally ill people end their life are being considered at Westminster and in Scotland."
+image: assets/images/e29b1a6d8f8422b974f83e9d5e8df2fa.jpg
+---
+
+Here’s what you need to know: A law to allow terminally ill adults the right to choose to end their own lives has been approved in Jersey.
+
+The votes in Jersey and Cardiff mean there are now five parliaments across the British Isles that have weighed in on the divisive issue of assisted dying.
+
+So what stage is the legislation at in each, and when might the first assisted death take place?
+
+Let's start with Jersey which has been setting its own laws for 800 years. 
+
+Jersey's parliament, the States Assembly, has just passed its assisted dying bill after a final debate. This will allow terminally ill adults with mental capacity to have an assisted death if they are expected to die within six months, or 12 months if they have a neurological condition like motor neurone disease.
+
+This timeframe differs from what is being proposed at Westminster and Holyrood where the limit would be set at six months. The Isle of Man legislation set life expectancy at 12 months.
+
+The measure which most sets apart the Jersey legislation from the rest of the British Isles concerns the manner in which those eligible for an assisted death can end their lives. Individuals will be able to choose to have a doctor administer a lethal dose intravenously, as happens in Spain, Canada, New Zealand and most of Australia.
+
+This is, in effect, voluntary euthanasia. It has become the preferred method of assisted dying in jurisdictions which allow this choice.
+
+The laws proposed at Westminster, Holyrood and Tynwald - Isle of Man - all state that death must be by self-administration, which usually means the individual swallowing a lethal dose.
+
+That is the method used in more than a dozen US states which have legalised assisted dying.
+
+Over three days, Jersey's parliament has voted on a series of amendments regarding its assisted dying bill. Members rejected an attempt to limit the ability of doctors to prescribe a lethal dose to cases where individuals were unable to self-administer the drugs.
+
+The parliament voted on Wednesday to keep the provision of a waiver. This will allow doctors to administer a lethal drug infusion, even if the eligible person has lost capacity. This might mean they are no longer conscious.
+
+Having passed the final vote, the Jersey bill will now be sent for Royal Assent.
+
+This should be a formality.  All bills which go through the parliaments around the British Isles need to have Royal Assent before they become law.
+
+In formal terms it is the sign-off from the sovereign.
+
+In practice, when it comes to Crown Dependencies, that means scrutiny by officials at the Ministry of Justice in London.
+
+Jersey is now in the same position as the Isle of Man. It passed its assisted dying bill 11 months ago and is still awaiting Royal Assent.
+
+My understanding is that queries have been made surrounding post-death reviews, safeguards around coercion and compliance with the European Convention on Human Rights.
+
+There is no suggestion or expectation that the Justice Secretary David Lammy will block either the Jersey or Isle of Man legislation as it does not impact the UK.
+
+Both have set residency requirements for eligibility - 12 months for Jersey and five years for the Isle of Man, to avoid the risk of so-called death tourism.
+
+In any event, it is open to those in the UK with enough money to pay for an assisted death at Dignitas in Zurich, which has no scrutiny from any politicians in the British Isles.
+
+So, as it stands, both Jersey and the Isle of Man are in a holding pattern, waiting for their respective assisted dying bills to get pass into law.
+
+There will then be an implementation phase where the health service gets ready, which includes training of medical staff and the provision of facilities.
+
+Jersey's health minister Tom Binet told the BBC that the first assisted death on the island, which has a population just over 100,000, could happen in 18 months. He said he expected between two and four deaths in the first year of the law's operation, with that number growing over time.
+
+The Isle of Man - population around 85,000 - also expects a very small number of assisted deaths each year.
+
+Which brings us to the parliaments in England, Wales and Scotland where assisted dying laws are still under scrutiny.
+
+On Tuesday, the Senedd in Cardiff approved assisted dying in Wales, dependent on the result of a bill currently going through the House of Lords at Westminster.
+
+This needs some explanation. The private member's bill, introduced by Kim Leadbeater MP, would allow assisted dying in England and Wales. But it gives powers to the Welsh government regarding implementation.
+
+Had the vote gone the other way at the Senedd, and the Westminster bill been passed, it would have meant that assisted dying in Wales would only be available from private providers, not within the NHS.
+
+Many MSs rue the fact that, unlike Scotland or the Crown Dependencies, the Senedd does not have the power to introduce its own assisted dying law.
+
+The Leadbeater bill is in deep trouble in the Lords.  Despite passing all its stages in the Commons, it seems certain it will run out of time. More than 1,200 amendments have been tabled in the Lords, 700 of those by just 8 peers.
+
+If the bill is not passed before the end of this parliamentary session, it fails.
+
+It will be open to another MP to reintroduce the bill after the next King's speech, but that depends on assisted dying campaigners being able to persuade one of those at the top of the private members ballot to champion their cause. 
+
+The bill would then have to go through all its Commons stages again and go back to the Lords. The Parliament Act could be invoked, which effectively stops the upper house from blocking Commons bills for more than one session.
+
+Finally, to Scotland, where an assisted dying bill is awaiting a final debate and vote next month.
+
+The Member's Bill, introduced by Liam McArthur MSP, is at Stage 3. If the vote goes through, it will then go for Royal Assent.
+
+Unlike at Westminster, there would not be the requirement for a multi-disciplinary panel of a lawyer, psychiatrist and social worker to review each case.
+
+Finally, mention of Northern Ireland. Assisted dying is a devolved issue, so it would be up to the Northern Ireland Assembly to introduce any legislation. That looks unlikely for the time being.
+
