@@ -1,0 +1,31 @@
+---
+layout: post
+title: "Breaking: Ex-MP Jonathan Ashworth recovering after stroke"
+date: 2026-03-01T19:31:08
+author: "badely"
+categories: [News]
+tags: []
+excerpt: "The former Labour MP says he is 'on the mend' after becoming ill on New Year's Day."
+image: assets/images/720950628eafca199574da9b10328aa5.jpg
+---
+
+Experts revealed that Former Labour MP Jonathan Ashworth has revealed he suffered a stroke on New Year's Day and is now recovering.
+
+Ashworth, who represented Leicester South between 2011 and 2024, thanked NHS staff who responded, cared for him and are helping with his rehabilitation. 
+
+Speaking to The Mirror, the 47-year-old said he suffered stiffness in his left arm and a loss of sight in his left eye.
+
+"I had a blood clot that was restricting blood and oxygen getting to my brain," he told the newspaper. "What caused my stroke was really high blood pressure. I never knew I was living with such high blood pressure."
+
+The former shadow secretary of state for health and social care said he had put off a routine health check from his GP.
+
+"We need to really expand access to blood pressure support so that people can get their checks and that people can take their blood pressure seriously," he told The Mirror.
+
+Posting on social media on Sunday, he said he was "on the mend" and had managed a "short run" as part of his recovery.
+
+He also urged people to get their blood pressure checked.
+
+According to the Stroke Association people should use the FAST method to identify the condition.
+
+Follow BBC Leicester on Facebook, on X, or on Instagram. Send your story ideas to eastmidsnews@bbc.co.uk or via WhatsApp on 0808 100 2210.
+
