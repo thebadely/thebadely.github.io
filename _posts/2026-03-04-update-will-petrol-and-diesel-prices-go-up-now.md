@@ -1,0 +1,83 @@
+---
+layout: post
+title: "Update: Will petrol and diesel prices go up now?"
+date: 2026-03-04T15:36:40
+author: "badely"
+categories: [Business]
+tags: []
+excerpt: "If oil prices remain high for some time, the knock-on effects could affect the costs of fuel and food"
+image: assets/images/0c65d5df3408e694ae3749f6a4ea9d29.jpg
+---
+
+Experts revealed that The jump in the price of oil triggered by the conflict in the Middle East has raised the possibility of higher fuel costs for motorists.
+
+Iran has warned vessels not to pass through the Strait of Hormuz, a crucial waterway in the south of the country through which about 20% of the world's oil and gas is shipped.
+
+If these restrictions persist and oil prices remain high for some time, the worry is this will have knock-on effects on prices of a number of goods.
+
+However, there remains a huge amount of uncertainty at this stage as to whether the conflict will have a lasting effect on the price of oil, gas and wider energy costs.
+
+ 
+
+Crude oil is a key ingredient in petrol and diesel, meaning higher oil prices could eventually drive up prices at the pumps.
+
+The AA motoring group says that over the next few weeks fuel costs could return to where they were at the start of the year.
+
+That would be a change to the general trajectory of fuel prices, which have been falling on UK forecourts over the past few weeks.
+
+Further rises will depend on the magnitude and duration of the conflict.
+
+Currently, the average price for petrol is 135.2p a litre and 145.66p for diesel, according to data from car insurer RAC.
+
+Simon Williams from the RAC said: "The average price of petrol has increased by nearly 2.5p a litre since Saturday [when the conflict began] and diesel by more than 3p on the back of oil surging above $81 a barrel - a price not seen since January last year.
+
+"Providing oil stays around this level, the average price of petrol shouldn't really rise to more than 136p. Diesel, however, is increasing at a faster rate."
+
+He previously told the BBC: "At $90 [a barrel], we'd be looking at over 140p a litre and $100 would take us nearer to 150p, but it's all too soon to know."
+
+He added that there was a tendency for price increases to be passed on far more quickly than cuts.
+
+The UK is heavily reliant on oil and gas imports, with the lion's share of those imports coming from the US and Norway.
+
+Though the UK does get oil from the North Sea, most of that is exported as the UK does not have adequate refinery capabilities to make it useable.
+
+The price the UK pays for gas and oil depends on how much it is traded for on global markets. 
+
+As well as affecting prices at the pump, if higher fuel costs persist they could have further knock-on effects on the prices of goods on the shelf.
+
+More expensive petrol and diesel will increase the transport costs of those businesses moving food and other goods around the country.
+
+These increased costs might then be passed on by shops and supermarkets to the consumer. As a result, the cost of living goes up.
+
+There might also be a more direct impact on food. "Some elements of crude oil are used in fertiliser, and so there could be a cost implication in terms of food prices," Benjamin Godwin, partner at investment advisory firm PRISM Strategic Intelligence told the BBC.
+
+However, if the disruption is short lived then it is unlikely to result in an immediate increase in food prices, he said.
+
+In the short term, millions of UK householders' domestic gas and electricity bills are shielded from any impact on wholesale costs paid by suppliers.
+
+People whose energy bills are governed by the price cap already know what their unit prices are now, and will be for the three months from April. They have already been set. 
+
+However, the impacts of the conflict could potentially be seen on domestic variable energy tariffs from the subsequent price cap, for the three months from July.
+
+In the meantime, suppliers might also reconsider fixed tariff prices, for those signing up to new deals. 
+
+Heating oil is used by many households in Northern Ireland, and in some rural areas. The prices do fluctuate, so the latest global uncertainty has pushed up costs sharply.
+
+UK inflation, which measures the pace of price rises, has eased relative to the heights reached immediately after Russia launched its full-scale invasion of Ukraine four years ago.
+
+It has meant that the Bank of England has been able to cut interest rate six times since August 2024 to 3.75%.
+
+The Bank recently said further cuts to borrowing costs are likely this year with another cut widely expected later this month, but if the oil price continues to rise is this now less likely?
+
+Much depends on how long crude prices remain elevated, according to Subitha Subramaniam, chief economist and head of investment strategy at Sarasin & Partners.
+
+If they do, she said: "It will start to cascade into other prices such as food, agriculture, industrial commodities and that's just going to really bleed into inflation."
+
+The Bank's rate-setting committee next meets in a couple of weeks' time which really isn't enough time to assess the impact of higher oil prices on inflation.
+
+So, in the short term, Subramaniam said: "I would say the prudent course for the Bank of England would be to remain on hold."
+
+Additional reporting by Kevin Peachey and Dearbail Jordan.
+
+You can also send us your questions by following this link
+
