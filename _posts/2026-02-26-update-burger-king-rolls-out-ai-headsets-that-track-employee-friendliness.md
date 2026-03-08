@@ -1,0 +1,45 @@
+---
+layout: post
+title: "Update: Burger King rolls out AI headsets that track employee 'friendliness'"
+date: 2026-02-26T22:09:46
+author: "badely"
+categories: [Technology]
+tags: []
+excerpt: "The fast-food chain is testing OpenAI-powered headsets that monitor staff interactions with customers."
+image: assets/images/4872c2ccac1f8ff39d8ae1be1ab1a195.jpg
+---
+
+Let's dive into the details: Burger King is testing artificial intelligence-powered employee headsets that monitor staff interactions with customers and oversee store operations.
+
+The AI system, called BK Assistant, compiles "friendliness scores" at the fast-food chain's locations based on employees' conversations, according to a promotional video the company shared with the BBC.
+
+The chain is currently piloting the system at 500 US restaurants, a spokesperson for Burger King said.
+
+The company says the technology is not designed to "record conversations or evaluate individual employees".
+
+An AI chat-bot dubbed "Patty", embedded in the headsets, answers questions from employees about how to prepare menu items and flags when a product needs restocking. But its ability to monitor restaurant staff tees up a debate about surveillance.
+
+Burger King's chief digital officer told online publication The Verge that the fast-food outlet had trained the OpenAI-powered system to identify terms including "please" and "thank you" in order to evaluate staff friendliness.
+
+The system analyses audio from drive-thru interactions.
+
+All US Burger King restaurants are poised to have access to the BK Assistant AI platform by the end of 2026, a company spokesperson told the BBC.
+
+The tool is "designed to streamline restaurant operations" to let managers and staff "focus more on guest service and team leadership", Restaurant Brands International, the chain's parents company, said in a statement on Thursday.
+
+One promotional video for the new AI assistant features the "Patty" chat-bot notifying an employee that a machine is running low on Diet Coke. Another worker asks "Patty" for a recipe reminder.
+
+But the video also highlights an element of the tool that has started to generate backlash online: its ability to closely monitor employee behaviour.
+
+"The team's friendliness scores this morning were the highest this week," the chat-bot tells a staff member through her headset.
+
+Burger King said that it had explored "using aggregated keywords, such as common hospitality phrases" to understand the overall service being offered and to "recognise teams who deliver great hospitality".
+
+"We believe hospitality is fundamentally human. The role of this technology is to support our teams so they can stay present with guests," the firm said.
+
+Customer service calls have routinely been recorded and monitored for years. Employees are often aware that they can be assessed to ensure they're using the correct language.
+
+But this latest step by Burger King elicited swift condemnation among some social media users who described it as "dystopian". Others questioned how accurate the chat-bot headsets will be, given that AI tools have proven to be prone to errors.
+
+Other fast-food chains have also started to explore the use of AI in its stores. Yum Brands, whose chains include Taco Bell and Pizza Hut, last year announced a partnership with the chip giant Nvidia to develop AI tools for its restaurants.
+
