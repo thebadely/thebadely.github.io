@@ -1,0 +1,79 @@
+---
+layout: post
+title: "Update: Nearly 400 firms fined over failure to pay minimum wage"
+date: 2026-03-19T10:46:39
+author: "badely"
+categories: [Business]
+tags: []
+excerpt: "The official minimum rates of pay will rise for 2.7 million workers in April 2026."
+image: assets/images/75ec43c191e8e9b1238e8a741c4c2322.jpg
+---
+
+Let's dive into the details: Nearly 400 employers have been told to repay more than £7.3m to around 60,000 workers who were not paid the correct minimum wage.
+
+The official minimum rates of pay will rise for 2.7 million workers in April 2026. 
+
+The rate for workers aged 21 and over is called the National Living Wage, while those aged 18 to 20 are paid the National Minimum Wage.
+
+The rates apply across the UK. 
+
+Since April 2025, the National Living Wage has been £12.21 an hour for workers aged 21 and over. 
+
+This will rise to £12.71 an hour in April 2026.
+
+For someone working full time (37.5 hours a week), that amounts to £24,784.50 a year -  an increase of £900.
+
+The rate for 18 to 20-year-olds is £10 an hour, up 16% from the previous level of £8.60. 
+
+In April 2026, it will rise by 8.5% to £10.85.
+
+That amounts to an increase of £1,500 a year for a full-time worker.
+
+The government said its goal is to eventually scrap this separate rate for 18 to 20-year-olds, and have one rate for all adults.
+
+The minimum wage for 16 and 17-year-olds is currently £7.55 an hour. It will increase by 6% to £8 an hour in April 2026.
+
+There are different rates of pay for apprentices depending on your age and what stage of your apprenticeship you are in.
+
+Apprentices aged 16 to 18 are entitled to the National Minimum Wage rate for that age group which is currently £7.55.
+
+This will go up to £8 in April 2026.
+
+Those aged 19 or in the first year of their apprenticeship are paid the same amount. 
+
+But those over 19 - or who have already completed their first year - are entitled to the appropriate National Minimum Wage or National Living Wage rate for their age.
+
+Some workers don't qualify for either the National Minimum Wage or the National Living Wage.
+
+This includes the self-employed, company directors, volunteers, members of the armed forces and prisoners.
+
+People with disabilities or in long-term unemployment who take part in government work programmes are paid fixed amounts at different stages of the scheme.
+
+These are less than the equivalent National Minimum or Living rate.
+
+Yes. It is a criminal offence if employers don't pay the correct National Minimum and Living Wages to eligible workers.
+
+The rates apply to staff even if they are not paid by the hour.
+
+If you think you are being paid wrongly, you can complain via the HMRC website.
+
+You can also get advice from workplace experts Acas. 
+
+Any employer not paying the correct amount can be penalised by HMRC.
+
+In March 2026, the government said that 389 employers had been fined around £12.6m for failing to pay staff properly, on top of having to make good the missing £7.3m. 
+
+Firm named included the Nursery chain Busy Bees, Norwich City Football Club, Hays Travel and Costa Coffee.
+
+The Real Living Wage is an unofficial hourly rate of pay which is overseen by the Living Wage Foundation charity.
+
+It is aimed at UK workers aged 18 and over, but is voluntary, and firms can choose whether or not to pay it. The wage increases every October. 
+
+According to the charity almost 500,000 employees working for more than 16,500 firms receive the voluntary rate of pay.
+
+Since October 2025, workers in London have earned at least £14.80 an hour  - the London Living Wage - up by 95p, an increase of 5.3%. 
+
+In the rest of the UK, the rate increased by 85p to £13.45, a 6.7% rise.
+
+The Living Wage Foundation says the rate is worth £2,418 more per year than the legal minimum wage in the UK, and £5,050 more in London.
+
