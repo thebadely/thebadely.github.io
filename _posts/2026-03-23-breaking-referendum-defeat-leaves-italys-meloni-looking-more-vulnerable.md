@@ -1,0 +1,51 @@
+---
+layout: post
+title: "Breaking: Referendum defeat leaves Italy's Meloni looking more vulnerable"
+date: 2026-03-23T20:25:32
+author: "badely"
+categories: [News]
+tags: []
+excerpt: "Meloni vowed to press on after losing a vote on constitutional reform many turned into a referendum on her government."
+image: assets/images/eb0a26837cbc354085ce8db8b6af4bd9.jpg
+---
+
+It has been recently reported that Italy's Prime Minister Giorgia Meloni has lost a key referendum on a constitutional reform which had turned into a vote on her government.
+
+The result gives around 54% to the "No" campaign and 46% to the "Yes" vote which Meloni had backed.
+
+In a video posted on social media even before all the ballots were counted, Meloni said Italians had voted "with clarity" and she would respect their decision, but she regretted a "lost chance to modernise" the country.
+
+It is the first significant defeat for Meloni and her right-wing coalition, which has overseen a rare period of political stability for Italy. Opposition parties are hailing the result as a sign that voters are looking for change, with a general election due next year.
+
+When the two-day referendum ended on Monday afternoon, exit polls initially showed the "No" vote leading by a small margin, but that grew to a substantial lead as the count progressed.
+
+Despite the complex question on the ballot paper, turnout was almost 60%. A high figure had been expected to favour the government, but it was not enough to swing the vote.
+
+The reform voters rejected would have inscribed a firm separation between judges and prosecutors into the constitution. It also proposed distinct bodies to govern them and a new disciplinary court.
+
+The government argued the change was critical to improving judicial independence. 
+
+The opposition countered that it would shatter a careful balance of powers established following the defeat of fascism, and increase political influence over the courts.
+
+Many Italians struggled to understand the technical details - perhaps a communication failure by Team Meloni - and the vote quickly morphed into a plebiscite on her near-record three and half years in office.
+
+But it fell at a difficult time.
+
+Meloni is a close ally of Donald Trump, but the US president is increasingly unpopular here, as is his war in the Middle East. 
+
+And with Italy's economy already stagnant, many people are concerned about the war's impact on their energy costs.
+
+Meloni always ruled out stepping down, whatever the result, unlike Matteo Renzi in 2016 who called his own constitutional referendum as prime minister and lost. 
+
+"The vote is not about me, but about justice," Meloni argued ahead of this vote.
+
+After the result became clear, Renzi counselled that her government had now lost its "magic touch" and needed to listen more closely to the voters. 
+
+"Losing and walking out whistling just isn't an option," he told Italian radio.
+
+Had Meloni won, she would likely have felt emboldened to pursue other political ambitions, including a reform to introduce direct elections for prime minister.
+
+Instead, the opposition Democratic Party leader Elly Schlein said Meloni's defeat showed "there is an alternative to this government" ahead of next year's general elections.
+
+This loss has rubbed some of the shine off the coalition and Meloni herself, long the strong woman of Italian politics, has been left looking more vulnerable.
+

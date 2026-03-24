@@ -1,0 +1,73 @@
+---
+layout: post
+title: "Big News: US' and Iran's options for ending war narrow the longer it goes on"
+date: 2026-03-23T15:34:38
+author: "badely"
+categories: [News]
+tags: []
+excerpt: "Iran shows no sign of climbdown, while air power alone cannot achieve the US' main goal."
+image: assets/images/d66983d134aa115d270da9e232d0181f.jpg
+---
+
+According to new developments, For weeks, the US and Israel have insisted that Iran's military capacity has been severely degraded. US President Donald Trump and his defence secretary, Pete Hegseth, have repeatedly claimed that sustained strikes have crippled Iran's command structure and weakened its ability to respond. 
+
+By their account, the conflict should already be moving towards an end.
+
+Yet the opposite appears to be happening. The escalation continues faster, sharper, and with fewer clear exit points.
+
+It emerged on Saturday that Iran had launched two missiles towards the US-UK base on Diego Garcia in the Indian Ocean, a distance of around 3,800km (2,300 miles). Although the missiles did not reach the island, the incident has raised fresh concerns about Iran's capabilities. Until now, its missile range was widely believed to be about 2,000km.
+
+Whether this reflects a previously undisclosed capability or one developed under bombardment, the implication is the same: military pressure has not halted Iran's progress.
+
+If much of its leadership has indeed been eliminated, including the Supreme Leader Ali Khamenei, senior figures such as Ali Larijani, commanders of the Islamic Revolutionary Guards Corp (IRGC) and the armed forces' chief of staff - and key missile manufacturing sites destroyed - then who is directing this campaign, and how has Iran managed to sustain its capabilities under such pressure?
+
+The uncertainty begins at the very top. Mojtaba Khamenei, who reportedly survived the strike that killed his father and several close family members, has since been named as the new leader. Yet he has not appeared in public. Beyond two written messages, nothing has been seen or heard from him. 
+
+His condition remains unclear, and so does his ability to lead. In a system built on central authority, this silence creates uncertainty at the very centre of power.
+
+And yet, Iranian actions suggest anything but collapse.
+
+On Saturday Iran also struck the town of Dimona in Israel's Negev desert, an area linked to Israel's undeclared nuclear programme. That followed Israeli strikes on Iran's energy infrastructure near Bushehr, which also hosts Iran's nuclear power plant. The message was simple: escalation will be matched, and key sites are no longer off limits.
+
+These actions suggest coordination rather than confusion. The assumption behind US and Israeli strategy, that removing top leaders would lead to paralysis, now appears uncertain. The idea of "shock and awe" depends on decision-making structures collapsing quickly. But what if those structures are more resilient than expected?
+
+If that is the case, then a more immediate problem emerges: who is left to negotiate with?
+
+Iranian President Masoud Pezeshkian has kept a low profile. Early in the conflict, he apologised to neighbouring countries affected by Iranian strikes, a move that reportedly angered elements within the IRGC. 
+
+Since Mojtaba Khamenei's rise, he has said little, further narrowing diplomatic options.
+
+From Tehran's point of view, recent events offer little reason to trust any negotiations. In the 14 months since Trump returned to office, signs of progress towards a nuclear deal in two separate sets of negotiations have been followed by military action. 
+
+Iranian officials say that during the second round of talks in Geneva on 27 February, they addressed most US concerns. Preparations were under way for technical discussions in Vienna. But Trump said he was "not happy" with the way the negotiations were going and strikes began the next day.
+
+For Iranian decision-makers, the message is clear: negotiation does not prevent attacks; it may even invite them.
+
+But it's not just Iran that can escalate the conflict, Trump also raised the stakes on Saturday night.
+
+He issued a 48-hour ultimatum demanding that Iran reopen the Strait of Hormuz, one of the world's busiest oil routes, warning that failure to comply would lead to the US "obliterating" Iranian power plants. 
+
+Iran rejected the demand and responded with a similar threat: any attack on its energy infrastructure would be met with strikes across the region. Iran's Supreme Council of Defence also raised the possibility of mining parts of the Persian Gulf.
+
+This exchange highlights the risks ahead. Trump is moving quickly in a direction that leaves fewer options. Without troops on the ground, the United States and Israel can only strike from the air, causing damage, but not necessarily achieving the goal of total surrender. At the same time, such strikes could trigger wider retaliation, without reopening Hormuz.
+
+The exchange appeared to set both sides on a direct path towards a far more dangerous phase of the conflict.
+
+Yet only hours before the deadline was due to expire, Trump stepped back. In a post on Truth Social, he said there had been "very good and productive conversations" with Iran and announced a five-day pause on any planned strikes against Iranian energy infrastructure
+
+The timing is significant. Coming just ahead of his own ultimatum, the move creates a potential off-ramp, at least for now.
+
+Markets responded cautiously. Oil prices fell, reflecting some relief, but the reaction was measured. The announcement still needs to be tested in reality, and it remains unclear how long this pause will hold, or whether it reflects genuine movement towards negotiations.
+
+More fundamentally, the question persists: who in Iran is actually speaking, and who holds authority over the IRGC and security forces, which appear to be operating with a "fire at will" posture?
+
+If the situation continues and Hormuz remains contested, both sides could return to their threats, and the consequences could be severe. Around 170 million people across the region, including more than 90 million in Iran, could face serious disruption to electricity and other essential services.
+
+With limited channels for negotiation, President Trump's choices are narrowing. Further escalation risks becoming a cycle of destruction with little strategic gain, leaving only the most extreme options on the table.
+
+For Iran, the situation is also difficult. The country entered the conflict already under economic pressure and facing widespread unrest. The war has, for now, reduced that pressure, giving the authorities space to tighten internal control.
+
+This creates a difficult balance. Escalation for Iran serves both as a way to respond to external threats and to manage domestic unrest. But it also increases the risks of a costly mistake.
+
+Both sides are now limited in their choices. Iran cannot easily step back without appearing weak, while the US and Israel cannot achieve a decisive outcome through air power alone.
+
