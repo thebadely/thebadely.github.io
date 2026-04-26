@@ -1,0 +1,69 @@
+---
+layout: post
+title: "Update: Bird flu vaccine trial against potential pandemic strain begins"
+date: 2026-04-21T23:00:08
+author: "badely"
+categories: [Health]
+tags: []
+excerpt: "The jab targets the H5N1 flu strain which has caused devastating infections in bird populations worldwide, but has yet to spread between humans."
+image: assets/images/1de371d212ec736bd8a10f3ec2812e4a.jpg
+---
+
+Experts revealed that The first volunteers in the UK have been immunised with a vaccine to protect against a potential bird flu pandemic.
+
+The vaccine targets the H5N1 flu strain which has caused devastating infections in bird populations worldwide and has spread to some mammals.
+
+The threat to humans is currently low, says the UK Health Security Agency, with almost all human cases linked to close contact with infected animals.
+
+The vaccine uses the same mRNA technology used in current Covid jabs, with scientists saying this enables the vaccine to be created quickly and at scale, in the event of a pandemic.
+
+The trial is hoping to recruit people who work in the poultry industry or are over the age of 65 - the two most at-risk groups.
+
+Clare Howard, from Hampshire, who has kept chickens for years, was one of the first volunteers to receive the vaccine on this new H5N1 trial, at a clinic in Southampton. 
+
+"It was quite easy and it could be something that ultimately proves incredibly important," she said.
+
+The large-scale trial will involve 4,000 volunteers with three-quarters recruited at 26 sites in England and Scotland, and the rest in the United States.
+
+Dr Rebecca Clark, the trial's national co-ordinating investigator, based at Layton Medical Centre, Blackpool, said the strain was "evolving and spreading across animal species".
+
+"Although it does not yet move easily between humans, we have to treat human-to-human transmission as a real possibility," she said.
+
+"This trial is our proactive attempt to shield against that possibility, and any future pandemic that could emerge from it."
+
+There have been 116 confirmed human cases around the world since 2024, almost all linked to close contact with infected animals.
+
+The study will examine whether the vaccine is safe and can generate a strong immune response. If so, it could then be licensed for use if needed.
+
+Professor Lucy Chappell, chief scientific adviser at the Department of Health and Social Care and chief executive officer of the National Institute for Health and Care Research, said the trial was "bolstering our pandemic resilience".
+
+If the vaccine is needed, it would be manufactured at Moderna's new plant at Harwell in Oxfordshire which currently produces Covid vaccines for the UK.
+
+It can produce 100 million doses of vaccine per year, but in the event of a pandemic this could be increased to 250 million doses.
+
+The traditional method of creating flu vaccines involves growing the virus in eggs - but this can be a problem when there are virulent avian flu strains which can kill the eggs used during manufacturing.
+
+During the Covid pandemic, mRNA vaccines were shown to be highly effective at preventing serious illness, and could be produced and altered rapidly, as strains evolved.
+
+Flu pandemics are inevitable, even if the timing of the next global outbreak is uncertain. The flu virus is constantly evolving, which is why a new flu jab is needed every year.
+
+A flu pandemic occurs when the strain shifts, rather than drifts, sufficiently that humans do not have any natural immunity to it.
+
+The last one in 2009, called swine flu, was comparatively mild. But the pandemic of Spanish flu after the First World War killed around 50 million people worldwide.
+
+It is impossible to know if H5N1 will be the strain that causes the next flu pandemic.
+
+There have been other experimental vaccines targeting this strain. I took part in a trial in Oxford in 2006, but the jab, although safe, did not prove to be very effective.
+
+There have been around 1,000 confirmed human cases reported to the World Health Organization since 2003 and nearly half of those proved fatal.
+
+More recently, a strain circulating in the United States caused milder symptoms with eye inflammation being the primary symptoms.
+
+The US government cut $500m of funding for mRNA vaccines in August 2025 after the health secretary, Robert F Kennedy Jr, a vaccine sceptic, said "mRNA technology poses more risks than benefits" for respiratory viruses.
+
+CEPI, the Coalition for Epidemic Preparedness Innovations, has stepped in and provided £40m of funding for the trial.
+
+As part of the deal, Moderna has agreed to guarantee fast and affordable supply of the vaccine to low and middle-income countries in any future pandemic.
+
+CEPI said this would mitigate against the "vaccine nationalism" seen during the Covid pandemic, when millions of people were left unprotected after rich countries snapped up early vaccine supplies.
+
