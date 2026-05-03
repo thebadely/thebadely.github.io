@@ -1,0 +1,75 @@
+---
+layout: post
+title: "New: Will AI lead to more accurate opinion polls?"
+date: 2026-04-30T23:11:37
+author: "badely"
+categories: [Business]
+tags: []
+excerpt: "It's cheaper and faster to collect people's opinions using AI, but will it make polls more accurate?"
+image: assets/images/4872c2ccac1f8ff39d8ae1be1ab1a195.jpg
+---
+
+It has been recently reported that "When you hear the word 'politician', what is the first image or emotion that comes to mind?"
+
+The voice is young, female, brisk and business-like and belongs to an AI agent. A computer programme in other words. A string of code.
+
+A man on the other end of the line replies. While he's airing what is a pretty cynical opinion of politicians, three other AI agents process what he's saying.
+
+One checks he's answering the question, one analyses whether he's being too superficial and needs prompting to go deeper, while the third checks that the respondent is not a fraud… not a robot, for example.
+
+This poll is being conducted by a French AI opinion poll company called Naratis.
+
+"The US has start-ups like Outset, Listen Labs and Hey Marvin that do AI polling like this in the commercial sphere. To my knowledge we're the first to do this for political opinion polling as well," says Pierre Fontaine, the 28-year-old engineer who founded the firm in 2025.
+
+What was once the most labour-intensive corner of opinion research is becoming one of its most automated.
+
+In France, as elsewhere, that shift is beginning to reshape how public opinion is measured, understood - and potentially influenced.
+
+Naratis aims to take qualitative research - the slowest, most expensive form of polling - and rebuild it around AI.
+
+Traditionally, qualitative studies involve small groups or one-on-one interviews with paid respondents recruited via panels. These interviews can take weeks to conduct and analyse. Naratis replaces that process with conversational AI.
+
+It does not focus on quantitative polling, which is already largely automated through mass surveys. Instead, it emphasises depth. "We don't ask people to tick boxes - they have a conversation with an AI," Fontaine explains. "That means we can explore not just what people think, but how they think - how they build their opinions, and even when those opinions change."
+
+The company claims its method is "10 times faster, 10 times cheaper and 90% as accurate as human polling".
+
+A study that once took weeks and tens of thousands of euros can now be completed in a day or two. Responses can often be gathered in under 24 hours, allowing clients to react to events almost in real time.
+
+This speed comes from what Fontaine calls "parallelisation": instead of human interviewers working one by one, AI agents can conduct many interviews simultaneously.
+
+The rise of AI polling comes at a difficult moment for the industry. Response rates to surveys have fallen sharply, from over 30% in the 1990s to below 5% today, according to AI consultant Stéphane Le Brun. As fewer people respond, polling becomes both more expensive and less representative, fuelling public distrust.
+
+So what about Naratis's claim of near-human accuracy?
+
+Critics might point to past polling failures, such as the inability to predict Brexit or Donald Trump's 2016 victory. Fontaine argues that such problems mainly affect quantitative polling.
+
+Qualitative research, he says, is less about predicting outcomes and more about understanding opinions - for example, testing reactions to a campaign slogan rather than forecasting a vote.
+
+Across the industry, established polling firms are also integrating AI. At Ipsos, it is used extensively in market research. Instead of asking people to describe their habits, researchers may ask them to film themselves, with AI analysing the footage. This allows companies to observe behaviour directly, rather than relying solely on self-reported data.
+
+AI is also used to analyse social media and to experiment with "digital twins" and "synthetic people". A digital twin is a virtual model of a real individual, designed to respond in similar ways. Synthetic data, by contrast, involves generating entirely new profiles based on real-world patterns.
+
+These tools can help address a persistent problem in polling: how to study small or hard-to-reach groups. In some cases, researchers alternate between real respondents and simulated ones, though real people are still used to validate findings.
+
+In politically-sensitive polling, however, caution remains strong. Ipsos does not use AI-generated respondents in political surveys, and other firms take a similar stance.
+
+At OpinionWay, AI may conduct interviews, but "we would never publish an opinion poll based on AI-generated data," says CEO of OpinionWay Bruno Jeanbart, citing concerns about trust.
+
+The benefits of AI-driven polling are clear. It is faster, cheaper and more flexible. It enables richer data collection and allows researchers to respond quickly to events.
+
+It may also reduce certain biases: people can be more candid with a machine than with a human interviewer, especially on sensitive topics. This probably explains why in France, opinion polling has consistently under-estimated support for the far-right.
+
+But the risks are significant. AI systems can "hallucinate", inventing plausible but incorrect answers. They are also prone to producing "common sense" responses shaped by what people usually think of a given topic that runs counter to the whole purpose of polling, which is to capture what people actually think.
+
+Synthetic data raises deeper questions. If responses are generated rather than collected, what is really being measured? And how should such data be interpreted?
+
+Trust is another major issue. Polling is already subject to political scrutiny and regulation. The introduction of AI - especially in generating data - could intensify concerns. Jeanbart expects that countries like France may eventually prohibit the publication of polls based on synthetic data.
+
+Even advocates of AI recognise its limits. "The goal is end-to-end automation, but today it would be unsafe and socially unacceptable to remove humans entirely," says Le Brun. Human oversight remains essential for validating results and taking responsibility.
+
+For now, the most likely future is a hybrid one. AI will continue to expand the scope of polling, enabling large-scale conversational surveys, integrating social media data and delivering faster insights. Techniques like digital twins and synthetic data may find niche uses, particularly in market research.
+
+But in political polling, the boundary between augmenting human data and simulating it is likely to remain crucial. Companies like Naratis are betting that the real transformation lies not in replacing respondents, but in changing how they are heard - turning surveys into conversations, and conversations into data at unprecedented scale.
+
+Whether this shift restores trust in polling or further erodes it will depend less on the technology itself than on how it is used, explained and regulated. What is clear is that economic pressures will continue to push the industry toward greater automation.
+
