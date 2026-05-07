@@ -1,0 +1,39 @@
+---
+layout: post
+title: "Breaking: 'I thought he was going to hit me,' OpenAI co-founder says of Musk"
+date: 2026-05-06T07:10:16
+author: "badely"
+categories: [Technology]
+tags: []
+excerpt: "OpenAI president Greg Brockman spoke during the second week of a month-long trial between Elon Musk and OpenAI's Sam Altman."
+image: assets/images/35dff355ec262cdb7e04d12543f37e39.jpg
+---
+
+It has been recently reported that OpenAI president Greg Brockman has described a heated 2017 meeting with Elon Musk over the billionaire's early attempt to control the artificial intelligence (AI) company.
+
+Brockman, a co-founder of OpenAI and a defendant in Musk's lawsuit attempting to undo its transition to a for-profit business, told a jury in Oakland federal court that when he rejected a proposal for Musk to have more say in the company, Musk's mood abruptly changed.
+
+"I actually thought he was going to hit me," Brockman said, referring to Musk.
+
+The meeting ended shortly thereafter, Brockman said, with Musk announcing that he would start withholding funding from OpenAI, which he had been backing since its start in 2015.
+
+Brockman's testimony comes during the second week of a month-long trial between Musk and OpenAI's key founder and chief executive Sam Altman.
+
+It is part of a bitter feud that has grown over the years since Musk left OpenAI, where he was among the initial co-founders, and has watched as the AI company became one of the most valuable tech enterprises in the world after its launch of ChatGPT.
+
+Before Musk decided to exit OpenAI, Brockman described his attempts to gain more control over the company, an effort that included "buttering up" Brockman and another co-founder, Ilya Sutskever.
+
+Lawyers for OpenAI showed text messages from August 2017 between Sutskever and Brockman that said: "Will a model 3 make you be willing to accept massively unfavourable terms?"
+
+The crux of Brockman's testimony so far has been that Musk was aware of plans to shift OpenAI to be more of a traditional for-profit business. When the company started, it was a non-profit, then it added a for-profit arm in order to raise billions of dollars in funding for investors, before deciding last year to make the for-profit part of the company the focus. 
+
+Brockman's appearance in court is expected to be followed by former OpenAI board member Shivon Zilis, who is the mother of four of Musk's children.
+
+Brockman testified that Zilis informed him she had had twins, but that he only found out later from public reports that Musk was the father.
+
+Brockman said when he spoke with Zilis after learning Musk had fathered her twins, "she said that it was via IVF and that it was entirely platonic with Elon".
+
+When asked about Zilis' involvement with OpenAI for years after Musk had left the company, Brockman said: "We trusted her to keep the Elon conflict under control."
+
+Zilis left the board in March 2023 as Musk was launching xAI, an AI company developing a chatbot that is a direct competitor to OpenAI's ChatGPT.
+
