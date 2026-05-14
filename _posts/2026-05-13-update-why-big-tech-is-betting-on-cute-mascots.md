@@ -1,0 +1,67 @@
+---
+layout: post
+title: "Update: Why big tech is betting on cute mascots"
+date: 2026-05-13T23:08:37
+author: "badely"
+categories: [Technology]
+tags: []
+excerpt: "The likes of Apple, Microsoft and Google are all putting cartoon characters centre stage."
+image: assets/images/bdaadd0f37891e78335192551c5935e6.jpg
+---
+
+Experts revealed that Some of the world's biggest and most powerful brands are attempting to be more cute and cuddly.
+
+Tech giants Microsoft and Apple are among a wave of businesses who have recently introduced new cartoon character mascots, a tactic experts say is often used to make a brand seem more human and friendly, and to build a stronger connection with customers.
+
+Apple's character, a blue and white figure with an outsized head, has become unofficially known as Little Finder Guy. Introduced in March in social media videos to promote a new laptop, it has gained some positive coverage.
+
+Microsoft, which years ago shelved its widely-disliked Clippy paperclip virtual assistant, has also unveiled a new cartoon character for its AI assistant Copilot.
+
+The company says the avatar, called Mico and resembling a blob with a smiley face, is "not a mascot, but an optional visual identity for Copilot".
+
+It adds that Mico is "expressive, customizable and warm", and "makes voice conversations [with the AI] feel more natural".
+
+There are plenty of good reasons for firms to adopt a cute character to embody their brand. Businesses whose marketing campaigns include mascots are 37% more likely to grow their market share than those which don't, according to research published back in 2019.
+
+"They give a voice, a personality, a face even, to a company that is cold and impersonal to many people," says Anthony Patterson, professor of marketing at Lancaster University Management School.
+
+Some firms, tech businesses among them, are finding new ways to make use of existing characters. This includes the little green robot that Google uses as the mascot for its Android mobile operating system.
+
+Last September, Google launched an app that allows users to create personalised versions of the robot. You can upload a selfie and the mascot will start wearing your clothes and copying your hairstyle. Google said it is about people being able to give the robot "different vibes".
+
+Among others, online forum Reddit updated its alien character Snoo in 2023 to be more animated and emotive. And in March of this year, Mozilla, operator of the Firefox web browser, turned its Firefox logo into a fully-fledged mascot called Kit.
+
+John Solomon, chief marketing officer at Mozilla, says: "If you think about our competition – look at a Chrome logo, look at a Safari logo, look at an Edge logo – they're very stark, somewhat similar, somewhat cold. As a challenger brand, we want to distinguish ourselves from them."
+
+Yet, while sweet characters may win over some customers, not everyone is happy. Nathalie Nahai, who writes books and lectures on the interplay of psychology, technology and business, says the resurgence of mascots coincides with growing mistrust in some big tech firms.
+
+"People are reaching a crisis point when it comes to our relationship with consumer-oriented technologies," she says. "So many companies are getting a massively bad rap for being these techno overlords. What better way to cut through than to create a cute and cuddly, anthropomorphic mascot?"
+
+Both Nahai and Patterson are concerned about the impact of combining AI and mascots, enabling them to interact with people in new, highly personalised ways. Patterson says: "Individual brand mascots will begin to talk to us on a one-to-one level and try to persuade us to do things. It's a bit creepy, isn't it?"
+
+However, seen from a branding perspective, a colourful character can help breed familiarity. Exposed to mascots, especially from a young age, customers often "feel warm, familiar feelings for the brand forever", says Patterson.
+
+Microsoft, for its part, says it has had "encouraging feedback so far" about Mico, but that users who don't want to talk with the character have the option to turn it off.
+
+One of the most well-known online mascots in recent years is the big-eyed green owl that encourages language learners on the Duolingo app.
+
+The team behind the app credit the owl, Duo, with helping attract more than 20 million followers across TikTok and Instagram. Kat Chan, Duolingo's head of brand marketing, says: "Duo has become much more than a mascot.
+
+"He's a character people follow and interact with, which has changed how we show up as a brand… people are invested in Duo."
+
+Nahai says by using mascots, brands tap into people's innate impulses. "In nature, we have evolved to respond with certain behaviours towards something like a baby which has a large head and big eyes," she says – features that are exaggerated in many brand characters.
+
+Using a mascot is by no means a new strategy. Sports teams have used them since the 19th Century. Other brands followed suit. "Since the 1960s, mascots have been a really powerful tool for building brands," says Patterson.
+
+However, he adds they later became a victim of their own success, with so many characters around that people became bored of them. So, companies phased them out.
+
+But now a resurgence appears to be underway and it's not just tech companies. Book publisher Penguin has just breathed new life into the bird that has adorned its book spines since 1935.
+
+It has created a series of hand-drawn illustrations of the penguin "to bring warmth, humour and personality to everything from our social media presence to brand campaigns and social impact work".
+
+Not all mascots are cute though. "Mascots have a chequered history," points out Patterson. For instance, cigarette brand Camel used to have a smoking cartoon mascot called Joe Camel that was widely used in its adverts.
+
+Nahai says she is hopeful that consumers are savvy enough nowadays to see past the cuteness of a company's cartoon character mascot. "I think there's more cynicism [these days]," she says.
+
+"But for people who are younger, who haven't been exposed to cynical marketing practices, these strategies may have more persuasive impacts."
+
