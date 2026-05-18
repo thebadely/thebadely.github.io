@@ -1,0 +1,109 @@
+---
+layout: post
+title: "Breaking: UK companies linked to payments for small-boat crossings, BBC finds"
+date: 2026-05-18T05:00:33
+author: "badely"
+categories: [News]
+tags: []
+excerpt: "Smugglers are directing migrants to pay using a network of British businesses, secret filming reveals."
+image: assets/images/200c4c36fa2ff29d540b5630bbd7f2a7.jpg
+---
+
+It has been recently reported that People smugglers are directing migrants to pay for illegal Channel crossings using a network of UK-registered businesses, a BBC investigation has found.
+
+We secretly filmed staff at a shop in south-east London telling an undercover researcher that nearly £3,000 in cash could be deposited with them and sent to a smuggler in France.
+
+"You put your money here. If your friends reach [the UK], you shouldn't come back," we were told at the mobile phone store in Woolwich.
+
+Our three-month investigation gives insight into how smugglers appear to be using UK companies' bank accounts to facilitate small-boat crossings - something a leading expert in criminal finance told us he had not seen before.
+
+Our findings suggest a "brazen attitude" by smugglers, says Tom Keatinge, from the Royal United Services Institute (Rusi) security think tank.
+
+"It is a concern that... people feel sufficiently confident they can be out in the open."
+
+As well as the phone shop, the smuggler in France provided the bank account details of two UK-registered companies, which he said could both take electronic transfers for migrant crossings.
+
+One is a wholesale business in Newcastle upon Tyne, the other is a car wash in Cambridgeshire.
+
+The smuggler, who called himself Ahmad, also provided details of several businesses in Europe where payments could be made in cash, including a car wash in Antwerp, Belgium, and a restaurant in Paris, France.
+
+He also shared bank details of several individuals in the UK and mainland Europe who, he said, could receive payments.
+
+We sent an undercover researcher, posing as a migrant trying to cross the Channel illegally with his child, into a migrant camp in Dunkirk.
+
+Known as "the jungle", the camp is a scrubby patch of land beside a road and a railway line. It is where many migrants live in tents before attempting to cross the Channel. When our researcher visited, sections of the camp were underwater after weeks of rain.
+
+Within minutes of arriving, men approached and appeared to be touting for rival gangs. We ended up making contact with two separate smugglers.
+
+One tout took the researcher to meet a smuggler who called himself Zia and said he could book a place on a small boat crossing - a journey referred to as the "game" by smugglers.
+
+Money exchange shops in the UK could take payment for the crossing, said Zia, although he did not specify which ones.
+
+"In London, they don't give you a receipt. They call me to say [they've] got the money. When you cross, they transfer to me."
+
+The second tout we met gave us the phone number of the smuggler Ahmad, who had been operating out of northern France for more than five years, we were told.
+
+On the phone, Ahmad - who spoke Farsi and said he was from Afghanistan - told the undercover researcher they could pay via one of three UK businesses, including at a shop called Afg Mobile Repair in Woolwich.
+
+The crossing would cost £2,700 for two people, he said.
+
+Back in the UK, we then visited the south-east London phone shop on three occasions, secretly filming conversations with two shop workers.
+
+This time, an undercover researcher posed as a UK-based family member of a migrant attempting to cross the Channel.
+
+One man explained from behind the counter that the money would be transferred to the smugglers only after a successful crossing.
+
+"If your people do not cross, if he tells me to return your money back to you, I'll do it," although he acknowledged that a safe crossing could not be guaranteed.
+
+"You can't count on boats, you never know, God forbid the boat sinks, and all of them [drown]."
+
+We did not hand over any cash.
+
+When we returned later to confront the man, he denied moving money for people smugglers.
+
+"We don't move money… we have only phone shop," he said.
+
+The mobile phone shop, and the other two UK firms we investigated, are all listed at Companies House, the government's official registry of businesses.
+
+We verified that Ahmad had given us correct bank details for both the Newcastle and Cambridgeshire firms.
+
+Our findings suggest smugglers are untroubled by the efforts the government has made to try to "smash the gangs", says Keatinge, founding director of Rusi's Centre for Finance and Security.
+
+The government has made it a priority to "break" the business model of the people-smuggling gangs.
+
+In January 2025, announcing sanctions on suspected people smugglers, Prime Minister Sir Keir Starmer said: "If you're going to smash a gang that is driven by money, follow the money."
+
+But recent cases suggest authorities have struggled to recover the millions of pounds generated by the smuggling trade each year before it leaves the UK.
+
+In April, two people smugglers were jailed in Cardiff for organising the illegal entry of hundreds of migrants, but little of the profits they made could be traced.
+
+The National Crime Agency (NCA) says the pair had very few assets in the UK and most of the money had been transferred to the offenders' home country, Iraq.
+
+Authorities have recovered 10% of the money found to have been made by convicted people smugglers since 2020, according to figures from the Crown Prosecution Service (CPS) obtained by the BBC.
+
+In that time, under the Proceeds of Crime Act, courts ruled that 45 people smugglers convicted in the UK had made more than £16m from their crimes - a figure known as the "criminal benefit".
+
+But judges issued confiscation orders totalling only £2.9m, based on assets that authorities were able to identify as linked to the crimes. As of February, £1.6m had been recovered.
+
+The CPS says people smugglers are "only in it for the money" and it works to deprive them of their profits "wherever possible".
+
+However - referring to the confiscation orders totalling £2.9m - the CPS added that it was "only able to obtain assets which are available at the time".
+
+Confronted on the phone by our undercover researcher, Ahmad denied any involvement in people smuggling. Zia did not respond to repeated requests to comment.
+
+The owner of the Newcastle wholesale business said they "strongly reject any suggestion that we have knowingly or negligently enabled criminal activity" and promised to co-operate fully with authorities.
+
+The Cambridgeshire car wash did not respond to our request for comment.
+
+Tackling the criminal networks behind people smuggling remains a top priority and the NCA is devoting more resources to it than ever, says the agency's deputy director Dan Cannatella-Barcroft.
+
+There are about 100 active NCA investigations into the "top tier of gangs and individuals involved", he adds. "We are in no doubt that we are making the UK a more difficult place for them to target and operate in."
+
+Migration minister Mike Tapp MP told us there is "a lot of investigative work that goes on behind the scenes", in part, looking at money transfers.
+
+Asked about smuggler Ahmad's use of UK-registered companies' bank accounts, Tapp says he would "love to see more" of the results of our investigation but could not "go into any detail on that".
+
+Criminal gangs are agile and continuously changing their methods, he says, and "it's important we keep up with that and we're continuously pressing for that".
+
+Additional reporting by Victoria Archer
+
