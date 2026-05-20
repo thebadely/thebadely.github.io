@@ -1,0 +1,95 @@
+---
+layout: post
+title: "Breaking: Emery denies Euro king talk but Villa boss could be crowned again"
+date: 2026-05-20T05:37:53
+author: "badely"
+categories: [Sports]
+tags: []
+excerpt: "Aston Villa are aiming to end a 30-year trophy drought in Istanbul on Wednesday."
+image: assets/images/6f9b91325cb7dca034067feaf8dfddc9.jpg
+---
+
+Experts revealed that Unai Emery faces Freiburg boss Julian Schuster in Istanbul on Wednesday
+
+Unai Emery faces another date with destiny. 
+
+A fifth Europa League title is within his grasp - and with it he would cement his legacy at Aston Villa. 
+
+Emery's four Europa League crowns are already a competition record.
+
+Freiburg stand in the way on Wednesday, in what is his sixth European final. Only former AC Milan, Juventus and Bayern Munich boss Giovanni Trapattoni has managed more, with seven. 
+
+He has guided Villa to their first European final for 44 years, since they lifted the European Cup, and to the brink of ending a 30-year trophy drought. 
+
+The 54-year-old arrived at Villa in October 2022 declaring he had joined to win silverware. In Istanbul, that wait could end.
+
+At Besiktas Park on Wednesday, Emery will stand on the touchline for his sixth Europa League final in 12 years.
+
+He lost the 2019 final to Chelsea while at Arsenal, where his 18-month reign was seen as a failure.
+
+But he has more triumphs in the competition than any other manager; three with Sevilla - in 2014, 2015 and 2016 - when they beat Liverpool - before a penalty shootout victory over Manchester United with Villarreal in 2021.
+
+Emery, though, insists that will mean nothing come kick-off against their Bundesliga rivals.
+
+"I am not a king in this competition," he said. "I am now here with Aston Villa in a new chapter. Everything I did is done and of course it's there in that moment but with it I am not winning.
+
+"I need to win [in Turkey] with the players we have now, with Villa now. So now it's a new way, a new moment, and hopefully a new era. 
+
+"If you are not respecting the opponent, you are closer to losing. If you are not respecting Europe, like we did during the process, we are not here. This is the strong mentality we had before. 
+
+"We have a huge challenge, a huge challenge. Are we thinking about the next party on Friday? No, no."
+
+The former Paris St Germain boss has managed 115 games in the Europa League, winning 71, and his best win rate in the competition is his 85.7% with Villa.
+
+Those wins are a competition record. And since the start of 2023-24, no side has won more European matches than Villa's tally of 26.
+
+Emery - bizarrely overlooked in the Premier League's Manager of the Season nominations - spoke to his players on Saturday morning, a debrief following Friday's 4-2 win over Liverpool which sealed Champions League qualification.
+
+He also reminded them about the journey the club has been on since he replaced Steven Gerrard in late 2022 - a Europa Conference League semi-final, a Champions League quarter-final and two top-five finishes. 
+
+Emery has needed a way with words at times, refusing to lay into his players at half-time during the abject defeat by Tottenham at the start of the month.
+
+It was something the squad appreciated, a fatherly touch of reminding them of what they have achieved together. 
+
+Ranking the best European trophy-winning managers
+
+Quiz: Can you name every Europa League winner?
+
+Unai Emery oversaw open training at Besiktas Park in Istanbul on Tuesday
+
+In 2007 with AlmerÃ­a, Emery rolled a dice to select his starting XI against Deportivo La Coruna. It was to show every member of the squad was important and to give them confidence. They won 3-0.
+
+Yet the meticulous Emery - who studies opposition footage while on the treadmill at the gym - will not leave such a momentous evening to chance. 
+
+Defender Tyrone Mings said: "The manager is somewhat of a European genius, isn't he? 
+
+"He always reiterates the Premier League is the most important thing. We speak about growing the revenues and trying to increase the revenues to compete with the restrictions which are now in place.
+
+"But he still delivers these amazing European runs, all while focusing on the Premier League. Finding that balance is something the squad and the manager should take a lot of credit for. It's been a special time."
+
+Times have changed at Villa in the 10 years since they were relegated in 2015-16 where they finished bottom of the Premier League with just 17 points and three wins. 
+
+Three seasons in the Championship followed before the club returned to the top flight under Dean Smith, with Mings having joined from Bournemouth on loan in 2018 before making a Â£20m permanent switch.
+
+The England defender has seen Villa's rise and knows that Wednesday offers a special opportunity to write another chapter in that story.
+
+"It's an amazing moment. In recent years, the fans have seen other clubs winning titles in Europe and domestically and there's a slight jealousy among the fanbase we haven't been able to get over the line," he said.
+
+"It's a special time."
+
+In the 44 years since lifting the European Cup, Villa have only gone beyond the quarter-finals in Europe twice - both under Emery. 
+
+The Conference League semi-final loss to eventual winners Olympiakos two years ago was a missed opportunity and one Villa have already overcome by reaching the Wednesday's final.
+
+Last season's thrilling Champions League quarter-final defeat by eventual winners Paris St Germain was also a sign Villa were able to compete with the European elite. 
+
+Before then, their European Cup defence ended with a quarter-final exit to Juventus while there was a Uefa Cup quarter-final defeat by Atletico Madrid in 1997-98.
+
+It is a club which has been starved of success and silverware for decades but European Cup winner Nigel Spink believes victory in Istanbul would be a watershed moment.
+
+"If you achieve something with the club, you're up there," said the goalkeeper, who made 460 appearances for the club. 
+
+"When it comes to memories and all the things that go around with winning, I think 100% they will be alongside our group.
+
+"I sincerely think if you manage to keep this manager then the sky's the limit and I really do think the Champions League trophy might not be too far away."
+
