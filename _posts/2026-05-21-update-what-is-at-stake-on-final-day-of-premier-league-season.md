@@ -1,0 +1,101 @@
+---
+layout: post
+title: "Update: What is at stake on final day of Premier League season?"
+date: 2026-05-21T11:24:38
+author: "badely"
+categories: [Sports]
+tags: []
+excerpt: "BBC Sport's Ask Me Anything team explains what is at stake on the final day of the 2025-26 Premier League season."
+image: assets/images/982f0c0329185952c3dd5228392692ca.jpg
+---
+
+According to new developments, The Premier League's final round of fixtures on Sunday will decide the fates of a number of clubs.
+
+While Arsenal won their first league title in 22 years on Tuesday, the season finale will determine the remaining qualification places for Europe and final relegation spot.
+
+At the top, the Gunners, Manchester City and Manchester United will be in the Champions League and are guaranteed to finish as the top three.
+
+Aston Villa have also qualified for the Champions League, but after winning Wednesday's Europa League final, Unai Emery's side's final league position will determine whether one or two more English clubs earn a Champions League spot on the final day.
+
+At the bottom, Wolverhampton Wanderers and Burnley have already had relegation to the Championship confirmed. They will be joined by one of Tottenham and West Ham.
+
+Here is a look at what is still at stake on the final day of the season.
+
+Send us your questions
+
+Aston Villa moved three points clear of Liverpool with a win over them last Friday
+
+This one gets a little bit confusing, but the picture has been made clearer by Villa beating Freiburg in the Europa League final.
+
+Because England has won one of two Elite Performance Spots (EPS) for next season's Champions League, five Premier League clubs will feature in the competition instead of four. Like England, Spain have also guaranteed five clubs.
+
+We already know that Arsenal, City, United and Villa are four of those.
+
+But because of Villa winning the Europa League final, there is a scenario where six English clubs qualify for the Champions League next term.
+
+For that to happen, Villa would need to finish fifth.
+
+Currently, they are fourth - three points clear of fifth-placed Liverpool. That means Liverpool would need to beat Brentford and hope Villa lose at City for them to overtake Emery's team.
+
+Fans of Bournemouth and Brighton will also hope this happens. If it does, it means one of them would join Liverpool and be a sixth English team in the Champions League.
+
+The Cherries only need a point at Nottingham Forest to guarantee a top-six finish.
+
+Meanwhile, the Seagulls would need to beat Manchester United and for Bournemouth to lose to finish sixth.
+
+Liverpool only need a point to guarantee a top-five finish if Villa hold on to fourth. But if they lose at home to the Bees, they would only not finish fifth if Bournemouth won at Forest, and the Cherries overturned a six-goal deficit in goal difference.
+
+Bournemouth's 1-1 draw with Manchester City on Tuesday means they have qualified for Europe for the first time
+
+Bournemouth have already guaranteed at least a top-seven finish, meaning they will either qualify for the Champions League or Europa League.
+
+At present, sixth and seventh will qualify for Uefa's second-tier competition due to Manchester City winning the FA Cup and England winning an EPS.
+
+If English clubs get six Champions League spots, they will lose a Europa League spot in exchange. That would mean only seventh place would qualify for the Europa League.
+
+If Bournemouth overtake Liverpool in the table and English clubs do not have six Champions League teams, the Reds would be one of two teams in the Europa League next season.
+
+Brighton are currently seventh and have a one-point advantage over Chelsea and Brentford as the two teams directly below them.
+
+A win for the Seagulls would guarantee them Europa League football at least.
+
+If Brighton fail to win and Chelsea win at Sunderland, the Blues would overtake Brighton.
+
+Chelsea can also overtake Brighton with a draw, if Brighton were to lose by two goals and Brentford fail to win at Anfield.
+
+Sunderland themselves could finish in the top seven. For that to happen, they would need Brighton to lose and Brentford to drop points.
+
+Chelsea's 2-1 win over Tottenham on Tuesday means they are in a European qualification spot at present heading into the final day of the season
+
+It is a similar story in qualification for the one place available for the play-off qualifying round of next season's Conference League.
+
+Chelsea are in eighth and currently possess that available spot. Eighth place qualifies for the Conference League due to City winning the EFL Cup and the EPS to an English club.
+
+Chelsea will secure European football in at least the Conference League with a win over Sunderland.
+
+Brentford will secure a top-eight finish if they better Chelsea's result.
+
+Sunderland in 10th would leapfrog both if they beat Chelsea and Brentford drop points.
+
+Defeat for West Ham at Newcastle last Sunday means they have to beat Leeds United to stand any chance of survival
+
+Joining Wolves and Burnley in the Championship next season will be one of Spurs or West Ham.
+
+Tottenham in 17th do have a significant advantage going into the final day of the season. They are two points clear of their London rivals and are 12 goals better in terms of goal difference.
+
+While mathematically not guaranteed, a draw for Spurs at home to Everton all but confirms their stay in the Premier League.
+
+The only scenario where this would not happen is if Spurs draw and West Ham were to beat Leeds by 12 or more goals, a scoreline that has never happened in the 34-year history of the Premier League.
+
+A win for Roberto de Zerbi's side guarantees safety.
+
+West Ham have to beat Leeds to stand any chance of survival. If they beat Leeds and Spurs lose to the Toffees, the Hammers will stay up.
+
+This article is the latest from BBC Sport's Ask Me Anything team.
+
+How would Aston Villa winning Europa League impact Champions League places?
+
+All you need to know about the Europa League final
+
+Who are the oldest players to feature at a World Cup?
+

@@ -1,0 +1,63 @@
+---
+layout: post
+title: "Breaking: Chris Mason - VAT cut on summer fun - the announcement that didn't leak"
+date: 2026-05-21T12:11:05
+author: "badely"
+categories: [Business]
+tags: []
+excerpt: "Chancellor Rachel Reeves unveils measures aimed at helping families with the cost of living - but is it enough?"
+image: assets/images/ba7893f8c0ca2b43ac7725a73eeb1e20.jpg
+---
+
+According to new developments, It sounds rather like the slogan from one of those breathless adverts for discounted sofas.
+
+The government is branding the announcements from the chancellor this week as the "Great British Summer Savings".
+
+Rachel Reeves wants to try to get across that she gets it: that for all the political noise and argument, the cost of living remains the number one issue for millions of families.
+
+Ministers are attempting to crack on, in fact revelling in cracking on, with what they think they are there to do, delivering policies and, they hope, helping people, rather than tearing themselves apart.
+
+Reeves' statement was pretty short and quite a lot of it had been trailed in advance. 
+
+But one element of it wasn't briefed and didn't leak – the cut in VAT on summer attractions from 20% to 5% in the next couple of months.
+
+It was the rabbit out of the hat alongside the policies we had already heard about - the news about fuel duty, the plan to ensure there is enough jet fuel for summer holidays and free bus travel for children in England in August.
+
+What we didn't get today - and weren't expecting to get - was a big intervention to help with energy bills.
+
+The rationale is that we are heading into the summer when these bills are lower and instead the focus is on contingency planning for the winter.
+
+There is also a strong conviction in government that the universal packages of help offered by the Conservatives in government, such as Liz Truss's energy bill cap, would be unaffordable to repeat this winter.
+
+Offering something similar would be irresponsible, the government believes, given the impact the Conservative schemes had on the public finances.
+
+"A massive untargeted bung would cost people in different ways," is how one government figure put it.
+
+So any help to come for the winter will be targeted.
+
+What we don't know yet is who will be targeted and with what level of support.
+
+"Who knows where we will be in October" is a mantra you hear from folk in government.
+
+It is an imponderable – not just in terms of the international picture and whether fuel is by then flowing freely through the Strait of Hormuz.
+
+But in terms of the domestic picture too.
+
+Not least, who might be Chancellor of the Exchequer by then.
+
+It is also worth pondering today a wider question about the role of government and its scope to intervene.
+
+Some have questioned how much difference elements of this package will actually make to families, particularly when measured against that slogan of "Great British Summer Savings."
+
+But have we collectively become unrealistically used to colossal state interventions in recent years, given the economic shocks we have endured?
+
+Think furlough during the pandemic, for instance.
+
+Irrespective of the range of views about whether that was an appropriate intervention or not at a time of economic emergency, it has perhaps created a sense of collective expectation about what governments can do.
+
+In other words, more modest interventions can seem puny in comparison.
+
+Ministers wrestle with this, while dealing with the consequences on the public finances of those interventions, while also wanting to do something to help mitigate the massive cost of living pressures so many families have faced for so long.
+
+Sign up for our Politics Essential newsletter to keep up with the inner workings of Westminster and beyond.
+
