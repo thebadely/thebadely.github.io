@@ -1,0 +1,73 @@
+---
+layout: post
+title: "Big News: 'I don't think I'll ever be able to retire'"
+date: 2026-05-25T05:58:08
+author: "badely"
+categories: [Business]
+tags: []
+excerpt: "People in their 70s say they cannot afford to quit their jobs, but others say work keeps them young."
+image: assets/images/f84b442afb071840bdc594a1e21766a5.jpg
+---
+
+Let's dive into the details: Mandy Kemp has worked since she was 16.
+
+But the 70-year-old is still working three days a week as a practice manager for a financial adviser - having been full-time until recently.
+
+"I only have a state pension, and it wouldn't pay the rent and my living costs," she said.
+
+"It's affordability more than anything else. I'm not a lover of benefits, so I'd rather try and do it on my own."
+
+Kemp, from Dover in Kent, told the BBC that she must support her husband, who cannot work due to health reasons.
+
+While she enjoys her job and keeping busy, the mother of two said that the future felt "very uncertain".
+
+"Unless I got redundancy, I don't see how I'd survive for that long," she said.
+
+"Unless I had a lottery win."
+
+Dr Andrea Barry, from the not-for-profit group Centre for Ageing Better, said that "more and more" people were working longer over the last two decades.
+
+Part of the growing trend is that people were living longer and that the state pension age had risen, according to Barry.
+
+But she added that women were disproportionately affected as they were more likely to have had part-time jobs without pensions or caring responsibilities that meant they could not work.
+
+She said that "overall" many people want to work past the retirement age, which she called no longer a "cut off".
+
+However, some had "no choice" but to work due to the cost of living, a lack of savings and the rise in renting, Barry added.
+
+He said that older workers contributed economically to society, especially if they had skills employers struggled to find.
+
+Meanwhile, work can improve health and wellbeing by keeping older workers fit and avoiding loneliness, according to Barry, but admitted that it could be harmful for others.
+
+"There are a lot of very precarious and vulnerable people in their 60s and 70s," she added.
+
+Jackie Haynes, who will be 80 this year, told the BBC that she loved her part-time job as an activity coordinator at the Sussex Grange care home.
+
+"Quite a few of the residents are even a bit younger [than me]," she said.
+
+Jackie added that working not only gave her purpose but also helped her feel socially connected.
+
+"I love being with the residents as we can talk about the old days," she added.
+
+"More important for me is the friendship. It keeps me young."
+
+Haynes said that she did not need to work financially as she has a couple of private pensions and owned her own home.
+
+"The money is very, very nice. I can do extra things that I wouldn't normally do. I don't have to worry," she said.
+
+Mike Sandford, from Redhill in Surrey, said that he was "extremely worried" about the possible mental impact if he retired from his role as a full-time mechanical design engineer.
+
+"I need something to stimulate the mind," the 78-year-old told the BBC.
+
+"I've got to be creative."
+
+Sandford said that his hobbies of wildlife photography and guitar could only fill up so many hours in the day.
+
+"I'd be climbing up the walls," he said.
+
+"I have seen others who have retired, and they do nothing but sit in front of the television drinking wine all day.
+
+"And you think, Jesus Christ, that's not me. I want to be active as long as I can be."
+
+Follow BBC Sussex on Facebook, X, and Instagram. Send your story ideas to southeasttoday@bbc.co.uk  or WhatsApp us on 08081 002250.
+
