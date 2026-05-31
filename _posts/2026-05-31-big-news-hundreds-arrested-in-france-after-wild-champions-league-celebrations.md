@@ -1,0 +1,37 @@
+---
+layout: post
+title: "Big News: Hundreds arrested in France after wild Champions League celebrations"
+date: 2026-05-31T06:41:02
+author: "badely"
+categories: [News]
+tags: []
+excerpt: "Thousands of officers tried to quell unrest as crowds of fans - some firing flares - celebrated PSG's victory over Arsenal."
+image: assets/images/8a6f04f8763365ee7f63856486c12208.jpg
+---
+
+According to new developments, Clashes between football fans and police across France have led to more than 400 arrests following the victory of Paris Saint-Germain (PSG) in the Champions League final against Arsenal.
+
+Thousands of officers were deployed to curb unrest that disrupted bus, train and rail services in the capital Paris.
+
+Fireworks and flares were set off, while several police officers were injured in the fray. Police fired tear gas to disperse crowds in the city centre.
+
+There was similar violence when PSG won the same trophy last year, with celebrations turning deadly. This time, the authorities were better prepared with a "very robust, very solid system in place", according to Interior Minister Laurent Nuñez.
+
+Paris's iconic Champs-Élysées was swarmed by fans shortly after the French team won in a penalty shootout. 
+
+Footage from the city shows flares being set off, electric bikes burning on roads and revellers smashing the glass of at least one shopfront.
+
+Earlier in the day there were clashes between police and supporters who showed up to watch the final on giant screens at PSG's Parc des Princes. 
+
+Police said six vehicles, two businesses and a bus shelter were damaged during the unrest.
+
+According to the authorities. 416 had been arrested in the early hours of Sunday, including 280 people in Paris.
+
+Nuñez said seven officers had been injured and called the unrest "absolutely unacceptable". 
+
+Far-right leader Marine Le Pen wrote on X: "Only in France does a football club's victory spark riots."
+
+"Only in France does everyone feel compelled to lock themselves in their homes on the evening of a victory to avoid being confronted with violence," she said.
+
+Players are due to take part in a victory parade on Sunday afternoon, which includes touring the Champ-de-Mars next to the Eiffel Tower and a reception held by French President Emmanuel Macron.
+
