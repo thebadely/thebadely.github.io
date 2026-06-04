@@ -1,0 +1,73 @@
+---
+layout: post
+title: "Latest: Costly fuel pushes more Indians to buy electric cars but challenges remain"
+date: 2026-06-03T23:28:31
+author: "badely"
+categories: [Business]
+tags: []
+excerpt: "High fuel prices are strengthening the case for EV adoption in the world's third largest auto market."
+image: assets/images/4aa921148c6e99aa2e13e50b42b99428.jpg
+---
+
+It has been recently reported that Are electric vehicles finally going mainstream in India? A slew of indicators suggests the transition may finally be gathering momentum.
+
+The market for electric cars expanded by a solid 25% in the year ending March 2026, while EVs crossed the important 5% threshold in India's passenger vehicle market earlier this year - a figure often seen as a tipping point for mass-market adoption.
+
+"The transition is no longer directional but substantive," India's automobile dealers association said in a press note recently.
+
+Adoption is accelerating particularly in larger cars priced above one million rupees ($10,481; £7,777), where one in every 10 vehicles sold is now electric. Electric three-wheelers and motorbikes already account for more than 30% and 15% of sales in their respective categories.
+
+Interest in electric cars has spiked sharply in the last few months, particularly against the backdrop of the Middle East conflict.
+
+India imports nearly 90% of its oil, and state-run fuel retailers have been forced to raise pump prices after keeping them relatively stable for four years, as crude prices jumped by 50%.
+
+Prime Minister Narendra Modi has also urged Indians to car pool, use public transport and work from home to conserve fuel.
+
+"This rising uncertainty, alongside elevated fuel prices, acts as an incremental driver strengthening the case for EVs," says Nomura, the Japanese brokerage.
+
+But beyond these immediate triggers, several longer-term factors are also driving buyer interest, most notably upcoming regulatory norms, known as CAFE-3, which are scheduled to come into force from April next year and run until March 2032.
+
+These "meaningfully tighten regulation and are likely to drive more visible acceleration in EV adoption", Venugopal Garre and Param Shah, analysts with Bernstein, said in a note.
+
+India currently doesn't pair its EV incentives with stringent targets or penalties, something CAFE-3 will make binding, say Garre and Shah.
+
+The draft rules seek to reduce carbon emissions in cars from 113 to 76g/km by 2032 - a 33% drop.
+
+Moreover, unlike in the present scenario where "penalties of about a billion dollars in fines across eight OEMs (original equipment manufacturers) were never collected, CAFE-3 penalties might be", according to Bernstein, all of which will push the case for EVs.
+
+Individual city-states like Delhi - one of the country's most polluted hotspots - have also recently released ambitious draft policies that propose to phase out conventional internal combustion engines and halt registrations of new ICE two and three wheelers by 2027.
+
+Another tailwind will be a "healthy launch pipeline", says Nomura, which expects EV penetration in India's passenger vehicle market to reach 9% by 2030.
+
+In the two-wheeler segment too, demand is expected to be driven by a wave of new affordable models, while EV three-wheelers are projected to outsell non-EV variants by 2030, accelerating the transition.
+
+"India's transition is more concentrated in high-utilisation, cost-sensitive categories such as three-wheelers, suggesting that the adoption curve is likely to be non-linear, with PV and two-wheeler penetration accelerating over time as affordability improves, charging infrastructure expands, and policy support strengthens," Nomura says.
+
+Yet, despite these encouraging signs, India lags behind major global economies in EV adoption.
+
+According to Nomura data, China's EV adoption in passenger cars accelerated sharply from just 5.7% in 2020 to 53.3% last year. EU is at 20% and the US is at 8%.
+
+One of the biggest challenges remains charging infrastructure. 
+
+Public charging stations have grown from 2,000 to over 10,000 in the last three years, yet infrastructure is uneven across regions with just four of India's 28 states accounting for over 50% of the chargers.
+
+Moreover, the sheer gap between India and China on charging points is staggering: China has now scaled to 20 million public charging points vs. India's 10,000.
+
+"Range anxiety" - or worries about whether a battery charge will be enough to complete a journey - as a result of charging limitations, remains a key deterrent for consumers, according to Nomura.
+
+The gaps in India's local supply chain are another major point of concern for analysts.
+
+India depends heavily on a global supply of rare earths that go into making batteries. And even though the government has announced a plan to ramp up local production, China controls some 70-80% of lithium and cobalt refining and nearly 90% of rare earth separation, according to KPMG.
+
+These underscore the geopolitical risks to the transition and could both delay "India's EV rollout and affect cost competitiveness", the consultancy said in a recent report.
+
+There are no immediate solutions to the challenge: building an integrated mining to battery pack or magnet manufacturing supply chain can take longer than a decade. India will need a mix of "short-term measures for supply security and long-term initiatives aimed at developing domestic capabilities", KPMG says.
+
+More immediately, though, from a buyer's lens, the timely implementation of CAFE-3 regulations will be a key propellent, Amitabh Kant, former CEO of Niti Aayog, the government's think-tank, wrote recently in the Indian Express newspaper.
+
+Despite being under discussion for three years, the standards still remain tentative, though a final draft is said to be imminent.
+
+"In the absence of regulatory clarity, manufacturers defer investment decisions, supply chains evolve more slowly, and the broader ecosystem remains uncertain," Kant writes, adding that what will drive adoption is certainty of policy.
+
+Follow BBC News India on Instagram, YouTube, X and Facebook.
+
