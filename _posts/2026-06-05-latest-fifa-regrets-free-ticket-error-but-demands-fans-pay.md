@@ -1,0 +1,39 @@
+---
+layout: post
+title: "Latest: Fifa regrets free ticket error but demands fans pay"
+date: 2026-06-05T09:10:45
+author: "badely"
+categories: [Sports]
+tags: []
+excerpt: "Fifa says fans who were mistakenly given free tickets to World Cup group stage matches in Toronto must pay for them within seven days or lose the seat"
+image: assets/images/f1d169d3611060cc0c2ed554daf17ee0.jpg
+---
+
+Here’s what you need to know: Toronto is one of 16 World Cup host cities
+
+Fifa has admitted an error on its website allowed 60 fans to purchase World Cup tickets for free.
+
+Football's world governing body has cancelled the tickets with incorrect prices, and given the affected fans the opportunity to re-purchase the tickets at full price.
+
+"Fifa can confirm that approximately 60 fans received a communication on Wednesday, 3 June regarding tickets that had been allocated at no charge due to a prior payment issue during the checkout process," it said, adding that it "regrets any inconvenience caused".
+
+Ticket Talk Network, a social media account which highlights ticketing errors, shared a letter which confirmed the fans have seven days to pay for the tickets before they are removed from their accounts.
+
+It is understood the affected tickets were for group stage matches in Toronto.
+
+The World Cup, which is being hosted in Canada, the United States and Mexico, gets under way on Thursday, 11 June.
+
+The glitch is just the latest ticket issue facing Fifa, which promised the event would be sold out but still has seats avaialble less than a week before the tournament begins.
+
+Last week, the attorneys general of New York and New Jersey started an investigation into Fifa's ticket practices, following allegations of "artificially inflating prices" and "misleading fans".
+
+Fifa is using a process it calls 'variable pricing' for ticket sales. It means ticket prices can be adjusted throughout the sales phases based on demand and availability.
+
+Fifa's final open sales window began in April. At the time it said that more tickets could be released right up to kick-off.
+
+World Cup fixtures and group standings
+
+How to watch the World Cup on the BBC
+
+Everything you need to know about the World Cup
+

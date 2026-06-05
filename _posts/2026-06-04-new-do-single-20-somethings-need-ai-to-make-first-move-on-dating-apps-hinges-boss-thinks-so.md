@@ -1,0 +1,61 @@
+---
+layout: post
+title: "New: Do single 20-somethings need AI to make first move on dating apps? Hinge's boss thinks so"
+date: 2026-06-04T23:05:54
+author: "badely"
+categories: [News]
+tags: []
+excerpt: "Jackie Jantos says loneliness and lack of confidence were challenges for young adults looking for relationships."
+image: assets/images/299946a25075eb26b2c7736c7556610e.jpg
+---
+
+Experts revealed that Single 20-somethings need AI to start conversations on dating apps because they lack the confidence of older generations, says the boss of Hinge.
+
+Jackie Jantos told the BBC Gen Z daters "absolutely want love" but were "struggling to have the confidence to put themselves out there" as they socialise less in person.
+
+She defended Hinge's AI feature which creates prompts to start chatting with a match as "not about writing words for you" but "helping you express who you are".
+
+Hinge has continued to grow its UK users despite some relationship experts warning of "dating app burnout" and a return to more organic in person meetings.
+
+Founded in 2012 and owned by Match Group, which also owns Tinder and Match.com, Hinge has built its brand around the slogan "designed to be deleted".
+
+Jantos dismisses accusations that this is "just a marketing line", saying it wants to help users find long-term relationships rather stay on the platform indefinitely.
+
+Tinder is the most visited dating app, but over the past three years usage has been dropping and it's now only marginally ahead of nearest competitor Hinge. Bumble and Grindr follow Hinge in the most used dating services. 
+
+Some 1.5 million adults used Hinge in the year up to May 2025, up from 1.4 million a year earlier.
+
+Over the same period, Tinder's audience fell from 1.9 million to 1.5 million, according to Ipsos iris data.
+
+Speaking to the BBC's Big Boss interview podcast, Jantos says Gen Z - who account for more than half of Hinge's monthly active users - were spending around 1,000 fewer hours a year in person with other people than those of the same age group two decades ago. 
+
+Jantos says this equates to more than two hours per day "spent not in the company of another human, but most likely going deep in some sort of experience engaged in your phone".
+
+She adds: "This prevents people from having the experience of being around others and that is quite a lonely experience."
+
+The 47-year-old says almost half of Gen Z people in the UK now feel lonely "often or always". 
+
+She says the Covid pandemic meant many young adults missed out on formative years of social interaction.
+
+"Those years when you're sort of experimenting with how you show up in person with another person, how you flirt, how you think about intimacy, that was interrupted for many people," she says.
+
+Dr Carolina Bandinelli, an associate professor at the University of Warwick, who researches dating, relationships and communication agrees that the pandemic changed dating for Gen Z.
+
+"There was the sense that dating apps are [now] the only way to meet people," she says. Now she thinks "we are past the hype" as "dating apps didn't work as they promised they would".
+
+She says they were pitched as giving single people "access to a virtually infinite pool of strangers" and sparing them "from the possibility of rejection".
+
+But "you're not really choosing, you're more guessing," she says. "The lack of social cues makes it very difficult."
+
+Hinge has an AI tool which users can ask to review their profile and suggest ways to make it more engaging. Another feature offers AI-generated prompts to help users start conversations.
+
+Jantos rejects suggestions that the tools are encouraging people to outsource dating to AI, arguing they are designed to boost confidence rather than replace authentic interactions.
+
+Siobhan Copland is the founder of Cupid in the City, a matchmaking service for young professionals. She sees many single 20-somethings suffering from dating app burnout.
+
+"We're just constantly bombarded with information...it's very much quality connections over quantity [now]."
+
+She says the big difference between Gen Z and their predecessors, when it comes to dating, is that "they're not really into drinking culture".
+
+"They'd be more likely at the gym on a Friday night than at the bar," she says.
+
