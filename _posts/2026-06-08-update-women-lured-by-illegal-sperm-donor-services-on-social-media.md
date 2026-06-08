@@ -1,0 +1,129 @@
+---
+layout: post
+title: "Update: Women lured by illegal sperm donor services on social media"
+date: 2026-06-08T04:54:45
+author: "badely"
+categories: [News]
+tags: []
+excerpt: "A BBC investigation paid £100 for one donor’s “baby batter” delivered by post with a carton of passata."
+image: assets/images/3b53805a608a15759de5565765b6646a.jpg
+---
+
+It has been recently reported that Women desperate to become parents are being harassed for sex and offered cheap, illegal sperm samples online.
+
+Some of those unable to access fertility treatment are seeking out options on social media sites, which is driving a growing unregulated market – with some even turning to "Tinder for sperm" websites.
+
+A BBC Wales investigation paid £100 for a next-day delivery sample from a man who advertised his "baby batter" online and sent it in a box with a frozen carton of tomato passata.
+
+The UK's regulator for fertility warned women were at risk of "exploitation by predatory donors".
+
+As part of the investigation, I set out to see how easy it would be to source sperm online - and there was no shortage of men offering their services.
+
+One online advert tells me I can "rely" on a man called Joe Donor for a delivery in the post.
+
+He's a prolific donor who claims to have 180 children around the world conceived through sex and artificial insemination.
+
+In a rare move, he was named publicly as Robert Albon by a family court judge after a case in Cardiff, to warn of the dangers of unregulated sperm donation.
+
+We contacted him using an alias, and it only took a couple of emails and a short phone call to arrange a next day delivery from him. He didn't ask us to verify who we were or offer any health checks for us to look at.
+
+He charged us £100 in cash, sent via post, for a syringe of sperm which came chilled by a box of tomato passata acting as an ice block.
+
+A licensed clinic checked the sample four hours after we received it and said all sperm cells were dead.
+
+Albon questioned how we had stored and transported it. He said enough sperm for fertilisation usually did survive his delivery process and he had "many successful pregnancies" this way.
+
+Albon and hundreds of other men have used Facebook to connect with women looking for sperm - some groups have up to 40,000 members.
+
+I joined a donor group with a blank profile and, while I had some messages that seemed genuine, many offered sex or suggested costs for samples, asked for intimate images and persistently messaged to try and make arrangements.
+
+Some of the men continually pushed for sex and tried to persuade me that it would be the cheapest and most effective option.
+
+I saw one woman warning she had received a donation from a man in north Wales who she then found out was a convicted sex offender.
+
+The Human Fertilisation and Embryology Authority (HFEA) defined unregulated donation as a donation occurring outside of an HFEA-licensed premises, adding it was a criminal offence in the UK.
+
+Tianna and her wife Nikki, from south Wales, turned to unregulated donation. They said they were not eligible for NHS funding, and felt private treatment was too expensive.
+
+"I always knew I wanted to be a mum, we knew that there was something missing from our family," Tianna said.
+
+She added she was aware of the risks and wary of any pressure from potential donors.
+
+"You do get weirdos who are in it for the complete wrong reasons," she said.
+
+"There's a website, it's kind of like a mixture between a catalogue and Tinder,  you can filter eye color, hair color, so you can look for exactly what it is you're looking for." 
+
+The couple were looking for artificial insemination but said men often recommended sex as the best option.
+
+"I think it was really helpful that me and my wife had each other so there was no way that anyone could really pressure us into doing something we didn't want to do, because when all you want to have is a baby you're in a really vulnerable position."
+
+Tianna and Nikki finally found a donor they felt safe with on a co-parenting website and created a contract so that all parties were aware of their plans for contact and parental rights.
+
+But this is not a legal contract.
+
+"There is still a chance that in the future, he could come and try and start claiming parental rights and take us through a court case,"  admitted Tianna.
+
+"But I do think we've put as much as possible in place to stop that happening and I genuinely do believe that he is never going to do that to us."
+
+They now have a one-year-old son.
+
+"We wanted him for so long. Obviously, we took a risk. But it was so worth it."
+
+Unregulated donors offer services in different ways, from those that have sex for free, to those charging expenses to fly across the world for an artificial insemination.
+
+Daniel Bayen, 25, is based in the US but travelled to the UK in the summer of 2025 to donate via artificial insemination - a trip he says resulted in four babies.
+
+The BBC spent three days filming with Dan, who claims in online videos to be both the "highest paid donor" and to work "not for profit".
+
+"Recipients have to help me cover all my health and my living expenses too, not just the travel," he said.
+
+"There is also communication, health, posting on Instagram, putting information out there, education."
+
+He said he only asked clients in the UK to covers travel costs, but elsewhere claimed to have been offered up to 20,000 US dollars for a donation.
+
+When the BBC challenged him on taking advantage of people who may have money to spend, he added: "I don't really care what other people think. I care what's best for the children and the families I work with."
+
+Dan calls himself an open donor and is happy for children to know his identity. He also posts videos about his lifestyle and health test results. But he is not open about everything.
+
+"In order to protect yourself as a donor, you don't want too many assets under your name, just to make sure that no one can destroy your life and your family if they wanted to," he said.
+
+"I think you, of course, shouldn't lie about your health and your SDI screenings. But the one thing that is OK to not give too much information out about is where you work, what you do, the information for recipients to sue you. Which could be, for example, your full name or your address."
+
+Dan claimed he had not broken the law while donating in the UK.
+
+Licenced clinics in the UK are regulated by the HFEA, which has created a page on their website where people can familiarise themselves with the law.
+
+The HFEA said it had referred several prolific unregulated donors to the police.
+
+"It's important to know that using an unregulated donor is not a criminal offence, and you are not breaking the law, but the donors or other people involved in the process of making the sperm available may be committing a serious crime," it said.
+
+According to the HFE Act, "using, storing, procuring, testing, processing, and distributing gametes" (eggs or sperm), to be used by humans, are all illegal unless they are carried out by a HFEA licensed clinic.
+
+Clare Ettinghausen, director of strategy and corporate affairs at HFEA, said the sperm delivery we received from Albon was "shocking".
+
+"The law's quite clear that without a license from the HFEA, you can't process sperm, you can't distribute sperm, which is what he's doing by sending it."
+
+In response, Albon said the regulations did not apply to him because he understood giving private donations, including charging for them, was legal.
+
+He also said he was not a  "direct risk" to any vulnerable woman.
+
+Ettinghausen said social media firm Meta, which owns Facebook, was "facilitating the law being broken" - a point she raised at a UK Parliament select committee in March.
+
+The HFEA said it had also contacted Meta directly about this, but Ettinghausen added she remained "realistic" that complete closure of these types of social media groups would just move the practice elsewhere
+
+"Having constant health warnings and options about where to get support and find treatment in a safe way wouldn't resolve the problem completely, but it would be help."
+
+She also raised concerns about personal safety.
+
+"Some of these donors are advertising as natural insemination only, which is essentially in some cases coercing women to have sex when they possibly wouldn't want to."
+
+Meta, which is the parent company of Facebook, said it would "review any groups or posts shared with us and remove content which violates our rules". 
+
+"We have a dedicated reporting process for regulators to flag content which doesn't break these policies but violates local law. We are in close collaboration with the relevant authorities on this matter," it added.
+
+A National Police Chiefs' Council spokesperson said: "Unregulated sperm donation carries many risks and can exploit the most vulnerable. We strongly advise the public to understand the risks and stick to regulated routes.
+
+"If anyone has concerns, we'd encourage them to report it to the police so we can provide support and investigate."
+
+Get our flagship newsletter with all the headlines you need to start the day. Sign up here.
+
