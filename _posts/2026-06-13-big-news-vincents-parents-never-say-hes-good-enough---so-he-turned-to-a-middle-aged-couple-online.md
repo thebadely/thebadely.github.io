@@ -1,0 +1,79 @@
+---
+layout: post
+title: "Big News: Vincent's parents 'never say he's good enough' - so he turned to a middle-aged couple online"
+date: 2026-06-13T22:05:24
+author: "badely"
+categories: [News]
+tags: []
+excerpt: "A niche group of content creators called 'virtual parents' have become hugely popular among young people."
+image: assets/images/849167c95b40b427cddc57212836a934.jpg
+---
+
+It has been recently reported that During mealtimes, Vincent Zhang, a tech worker in Shanghai, has a habit of whipping out his phone to check on his "virtual parents": a middle-aged couple online, armed with an endless stream of warm words for their imaginary child.
+
+In one of their most popular videos, the pair coos to the camera. "Are you tired from work and study lately? Don't push yourself too hard. Mum and Dad know that you have endured a lot."
+
+In the comments, many call the couple mum and dad, telling them about their lives and asking for birthday blessings.
+
+With nearly two million followers on Douyin – China's version of TikTok - Pan Huqian and Zhang Xiuping are among a niche group of content creators called "virtual parents".  
+
+They have exploded in popularity, drawing young Chinese followers who feel increasingly squeezed between the pressure of succeeding and the expectations of their families. 
+
+"My parents are never the ones who tell me not to drive myself too hard or that I am already good enough," says 33-year-old Vincent. "But virtual parents will ask me whether I am happy today."
+
+The vlogger, Pan, says he has felt the impact of his videos on viewers. He told Douyin in a 2024 interview that he understood some of their pain because he too had a difficult childhood.
+
+At the age of 14, he says he left home to become the family's breadwinner after his mother was paralysed: "I left home for 33 years, and my parents have never said a word of encouragement." 
+
+Pan says he was determined to create a different family atmosphere after his daughter was born, making sure that he always told her that he loved her. His daughter regularly features in the couple's videos.
+
+All of this resonates with Vincent. The Shanghai-based web developer says he finds the weekly calls with his parents stressful.
+
+They often criticise his career choice because they believe a government job would be more stable. And they ask him when he's bringing a girlfriend home.
+
+"From the moment the phone call begins, all my actions and choices are wrong, and something to be corrected by them."
+
+Zhao belongs to a generation of Chinese youth who have grown up during an economic boom, after their country became the world's second-largest economy.  
+
+Their grandparents lived through gruelling crises - famine in the 1950s, and the violent purges of the Cultural Revolution in the 1960s - and their parents grew up in a country that was still emerging from those shadows as it opened up to the world.
+
+Zhao's generation, however, enjoyed stability, prosperity and a far better standard of living. 
+
+But China has also become much more competitive and in recent years, especially in the wake of the pandemic, youth have been hit hard by a sluggish Chinese economy. 
+
+Unemployment rates among young people have hovered at more than 15% for years – a trend that has worried the government despite its efforts to downplay it.
+
+More and more young people talk about feeling burnt out, question the point of staying in the rat race and, in some cases, feel bruised by their parents' tough love.
+
+So much so that some state media have tried to steer the discussion online towards traditionals concepts of filial piety, urging young people to be more understanding of their parents.
+
+But Vincent is unconvinced: "I can understand my parents' difficulties, but I have my own generational trauma too."
+
+There seems to be a wave of reckoning among young people in China about parenting - a subject that can be just as emotive anywhere else in the world.  
+
+The discussions range from people frustrated with controlling parents, to those exhausted from the pressure to excel academically or heed advice in the name of filial piety.
+
+The exasperation runs so deep that it has inspired viral memes called "gourd soup literature". The name comes from a one-minute skit in which a son politely refuses a bowl of gourd soup from his mother but eventually he gets blamed for being ill-tempered.
+
+For many young people, the skit captures a familiar dynamic: their wishes are ignored by parents who claim to be doing things for their own good.
+
+Zhao Xuan, 28, tells the BBC that her parents dispensed so much "gourd soup literature" that she has muted her family group chat.
+
+In the past, she would lament to her friends while trying to understand her parents' behaviour. Now she turns to memes because the humour helps her.
+
+"I did go to a therapist, but I gradually realised that crying wouldn't solve the problem," Zhao says. "My mom wouldn't change, so I could only change my own mindset, which is to treat them with the same attitude, as if it was a joke."
+
+For Vincent, his "virtual parents" remind him of a more uncomplicated time.  
+
+Recalling a recent video by Pan and Zhang about a supermarket visit, he says, "I really miss the days when I was little and would go grocery shopping with my parents ahead of the Spring Festival. We have not had this kind of conversation, which comes with no social pressure, for a long, long time."
+
+Vincent realises that because the content has become so popular, it is also commercially successful. 
+
+"I know these vloggers are probably mass-producing now and are probably signed with companies," he says. 
+
+And he wouldn't argue with the fact that it is far easier to console and dispense advice to virtual children - and yet he finds some comfort in the trend.
+
+"I believe that a little bit of warmth is better than nothing."
+
+Top image by Andro Saini of East Asia Visual Journalism
+
