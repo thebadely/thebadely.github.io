@@ -1,0 +1,57 @@
+---
+layout: post
+title: "Big News: Could a Madison Square Garden wedding be the love story of Taylor Swift's wildest dreams?"
+date: 2026-06-25T17:00:51
+author: "badely"
+categories: [News]
+tags: []
+excerpt: "Officials confirmed someone applied for a permit to close the streets near Madison Square Garden on 4 July."
+image: assets/images/49864c514a18fa5f0325d31cff83c376.jpg
+---
+
+Here’s what you need to know: Rumours continue to swirl about whether pop queen Taylor Swift will marry NFL star Travis Kelce at New York City's Madison Square Garden over the 4 July Independence Day weekend, after city officials confirmed someone applied for a street closure permit nearby. 
+
+Dora Pekec, a spokesperson for the mayor's office, told the BBC a permit was filed in early June to close roads around Madison Square Garden from 2 to 4 July.
+
+The New York Times first reported, external the permit news and that several players on Kelce's Kansas City Chiefs team had booked hotel rooms nearby. 
+
+Since Swift and Kelce announced their engagement in August, fans have obsessively hunted for clues about where the two megastars will wed. 
+
+Pekec did not say who filed the permit application, and CNN reported that neither Kelce's nor Swift's name was on the application. 
+
+Rumours and speculation as fans forecast date of Taylor Swift's wedding
+
+The New York Times reported several other developments that indicate that Swift and Kelce could hold their upcoming nuptials at Madison Square Garden, including that Amtrak police officers - who provide security at Penn Station underneath the arena - have been told to expect a Swift wedding during the busy holiday weekend. 
+
+The outlet reported that Swift will have an intimate gathering of 100 people at Madison Square Garden on 2 July, followed by a bigger celebration on 3 July, with potential performances at the event. 
+
+The potential venue choice shocked many Swift fans, who envisioned the singer getting married in a more scenic outdoors location, such as a spot near her oceanside Rhode Island mansion. The couple's engagement photos show Kelce proposing to Swift in a fairy tale-like garden decorated with dozens of flowers. 
+
+Instead, Madison Square Garden, a window-less 19,500-seat arena in the middle of Midtown Manhattan, has no natural light and offers little in terms of scenic views. 
+
+Molly Gaffney, a Swiftie from Albany, New York, said the location choice made "little to no sense". 
+
+"Her getting married in Manhattan at all, let alone during the Fourth of July during America 250, plus the World Cup, is insanity," Gaffney said, referencing the 250th anniversary of the US and the FIFA World Cup games taking place nearby. 
+
+The city is planning several events related to the nation's 250th birthday for the 4 July weekend. 
+
+"This dark, industrial location as her wedding venue couldn't be more perplexing," Gaffney said. 
+
+Nicki Vleisides (left) and Andie Furber - who have a podcast on Swift - think Madison Square Garden makes sense for security and symbolism
+
+Some fans speculated that Swift was using the arena to distract from her real wedding venue - but Gaffney said it seemed like much effort just for a decoy. 
+
+To other fans, Madison Square Garden - where Swift has performed several times and where the championship-winning New York Knicks play - made sense symbolically and practically for the singer and her football star fiancÃ©. 
+
+"MSG is where music and sports come together at the most famous venue in the world," said Nicki Vleisides, a New York City resident who co-hosts a podcast about Swift's music. "The more I've thought about it, it kind of seems like the perfect choice for both Taylor and Travis and their respective industries."
+
+Vleisides' podcast co-host, Andie Furber, said the arena was also ideal from a security perspective. 
+
+"No drones or paparazzi can get in or out, and Taylor, Travis and guests can enter underground from blocks away with no chance of getting photographed," Furber said. The arena has a separate private entrance and ramp where celebrities can enter. 
+
+The occasion would mark yet another massive security undertaking for the city's largest indoor arena, which hosted US President Donald Trump earlier this month for a National Basketball Association (NBA) finals game featuring the Knicks and the San Antonio Spurs. 
+
+Taylor Swift makes tearful 21-minute speech as she joins Songwriters Hall of Fame
+
+Taylor Swift pays homage to Elizabeth Taylor with surprise music video
+

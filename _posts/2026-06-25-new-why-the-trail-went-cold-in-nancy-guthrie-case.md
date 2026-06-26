@@ -1,0 +1,111 @@
+---
+layout: post
+title: "New: Why the trail went cold in Nancy Guthrie case"
+date: 2026-06-25T23:12:22
+author: "badely"
+categories: [News]
+tags: []
+excerpt: "The lack of a breakthrough in the abduction of a famous TV anchor's mother is puzzling given the huge publicity."
+image: assets/images/4a21be6cbcddd4b30d86439cdbd41983.jpg
+---
+
+It has been recently reported that There's a different kind of depth to the darkness at nighttime in the upscale Catalina Foothills neighbourhood of Tucson, Arizona.
+
+Lights are limited by both the county and the homeowners' association; they must be shielded and can only face down, a deliberate effort to maintain Tuscon's "dark sky" status - designed to minimise light pollution, reduce energy waste and protect astronomical research at nearby facilities.
+
+The result is a quiet, peaceful blackness making Catalina Foothills the perfect spot for stargazing - or for furtive criminal activities like kidnapping an elderly woman.
+
+That's what happened overnight on 31 January, when 84-year-old Nancy Guthrie, mother of US television presenter Savannah, was pulled from her bed. The assailant - or assailants - vanished into the "dark sky" night with the church-going grandmother.
+
+An aerial shot of the Catalina Foothills neighbourhood
+
+And the case ever since has been nearly as obscured as the Catalina Foothills after nightfall - beset by everything from tricky terrain to law enforcement infighting. The list of challenges facing the investigation into Nancy Guthrie's disappearance goes on and on - and perhaps goes some way toward explaining why answers remain elusive nearly five months after the 84-year-old was abducted from her Arizona home.
+
+The lack of resolution, with no suspects identified and no information as to where Guthrie was taken, is all the more perplexing given the spotlight that's been on the case from the outset thanks to the celebrity of Guthrie's daughter, famous US news presenter Savannah.
+
+Law enforcement consultants, media and citizen sleuths have been poring over the case with no success - and details made public this week from ransom notes raise only more questions.
+
+The Guthrie family believes the notes, received in the days after the crime, to be real. One of them allegedly demanded millions in bitcoin, the second allegedly said she had died, while expressing regret on the part of the writer.
+
+This video can not be played
+
+"We're begging" - Savannah Guthrie pleads for help as details of her motherâs case emerge
+
+And the simple possibility of a kidnapping gone awry could be one explanation for why the case seems stalled, according to experts - though the Pima County Sheriff's Department says it remains "active and ongoing."
+
+If Guthrie died during the crime, says private investigator Dan Ribacoff, "now it's a murder and not just a kidnapping".
+
+"It probably drove the criminal underground," said Ribacoff, who founded the International Investigative Group and has dealt extensively with kidnappings and missing persons cases throughout his career.
+
+"He doesn't want to release â¦ where the body is buried, because he doesn't want to expose himself," said Ribacoff, who agrees with the Guthries that the notes could be genuine.
+
+If the kidnapping had gone according to plan, he says, there'd likely be a better chance of a happier ending - and even arrests.
+
+Ransom note claims Nancy Guthrie died after abduction
+
+"I believe that a ransom would have been paid, she probably would have been released, causing additional leads to be generated - maybe through IP addresses or telephone records, things along those lines, but it went cold very, very quickly evidence-wise right after that kidnapping."
+
+And evidentiary issues have plagued the case from the start for a variety of reasons, according to law enforcement experts.
+
+Not only are the Catalina Foothills area incredibly dark at night, but the region is also filled with terrain that makes it easy to hide - and hard to find evidence.
+
+"The Tucson Valley, if you look at it, it's rimmed by four mountain ranges, and they're pretty rugged, and the Catalinas are the most rugged - and [Guthrie's house is] right at the base of the Catalinas," says consultant David Smith, who spent 17 years in Arizona law enforcement, including time as a police officer in Tucson - the location of the home from which Guthrie was taken.
+
+"The terrain is such that it's difficult to see the actual roadway," he said. "If you look at the aerial view of her property, you could actually pull in the driveway and not ever be on her Ring camera."
+
+The landscape is not easy to search
+
+The neighbourhood is filled with dry watercourses called arroyos that "go right up to people's backyards, and very often the criminal element would use those to get around - and so would the innocent," said Smith, who's walked the area around Guthrie's house and personally witnessed the foot traffic.
+
+On top of that, he said, the evidence is "transitory" because of the weather.
+
+"Frankly, there's so much traffic, it's hard to pick out footprints, those types of things," he said. "That's the geographic challenge."
+
+On a wider scale, Tucson presents several criminal challenges because of its proximity to an international border, its high homeless and crime rates and its high drug use, he said.
+
+On top of that, local vs federal feuds have complicated the investigative effort. Pima County Sheriff Chris Nanos has repeatedly insisted that he involved the FBI immediately, including working with a liaison on site the night of the kidnapping.
+
+'We're begging' - Savannah Guthrie pleads for help as details of her motherâs case emerge
+
+But FBI Director Kash Patel has criticised the county's actions, stating in a May podcast interview that his agency was "kept out of the investigation" for "four days." Patel also claimed that local authorities rebuffed FBI offers to fly DNA evidence to the agency's lab at Quantico, instead choosing a private lab in Florida.
+
+"Decisions regarding evidence processing were made on scene based on operational needs," Nanos said in a rebuttal statement posted to the Department's X account. "The laboratory utilized by the Pima County Sheriff's Department and the FBI Laboratory in Quantico have worked in close partnership from the outset and continue to collaborate in the analysis of evidence."
+
+Patel, however, wasn't the only one to criticise the actions of the sheriff's department; multiple law enforcement experts have questioned various decisions and pointed to alleged missteps - such as unsealing the crime scene too early on. Nanos said during a 4 February press conference that the scene was "done" and had been turned over to the family the previous day.
+
+Despite that, crime scene tape was later put back up for further processing.
+
+A 'Bring her home' banner with the face of Nancy Guthrie, erected in Tucson 
+
+"There was absolutely no reason to release that crime scene," said Joseph Giacalone, retired NYPD sergeant, adjunct professor at John Jay College of Criminal Justice and the author of a textbook about criminal investigation now in its fourth edition.
+
+"That entire house, the property, should have been cordoned off. No one should have stepped foot in that location other than law enforcement, and only for the purposes of doing the investigation."
+
+Even if arrests were made in the future, he said, possible crime scene management issues mean "everything is going to be questioned" by the defence.
+
+Mishandling a crime scene drastically reduces the odds of solving a case, he added.
+
+Sheriff Nanos has alternately denied and admitted to mistakes. At a 5 February press conference, he said he'd have preserved the crime scene longer if given another opportunity.
+
+"I probably could have held off on that," he said, adding: "We got what we thought was complete."
+
+But Nanos has been embattled throughout the investigation, not just by criticism surrounding the Guthrie case. Local media have delved into his past - he had received written reprimands in El Paso, according to documents obtained by the Arizona Republic.
+
+When contacted by the outlet, Nanos responded on 9 March: "That's your 'urgent' request? You sure you don't want to go back to my high school and ask why I got swats from the principal? Good luck with your hit piece."
+
+The following month, the Pima County Board of Supervisors demanded answers from the sheriff who submitted written responses through his attorney, according to Arizona media. The board later voted not to remove him but Supervisor Rex Scott said the sheriff needed to repair a lack of trust in his leadership.
+
+As investigators soldiered on, the global interest in the case, and the celebrity of Guthrie's daughter, likely didn't help matters, experts said.
+
+"The fame probably drove the kidnapper underground, realising that there was a massive manhunt," said PI Ribacoff, who speculated that Guthrie probably died early on, prompting suspects to dispose of her body.
+
+Other theories differ. Smith, for his part, is dubious about the veracity of the ransom notes - and believes Guthrie was ferreted down to Mexico where she could more easily be kept out of sight.
+
+Nanos, meanwhile, told BBC News early on that he was confident Guthrie would eventually be found - whether it took "10 days, 10 months or worse." Nearly 40,000 tips had already poured in by February, he said, and the sheriff has stood by his commitment to solving the crime ever since.
+
+And the eyes of the world remain riveted to the case - while global sympathies remain with Guthrie's family. They continue to offer a $1million reward and plead for tips.
+
+Savannah Guthrie, after details of the two notes became public this week, renewed her appeals during a tearful segment on her NBC morning show.
+
+"I just want to take the opportunity to ask people, really to beg people, to come forward," she said. "Somebody knows something."
+
