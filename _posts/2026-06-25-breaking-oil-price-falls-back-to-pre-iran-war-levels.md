@@ -1,0 +1,65 @@
+---
+layout: post
+title: "Breaking: Oil price falls back to pre-Iran war levels"
+date: 2026-06-25T15:32:04
+author: "badely"
+categories: [Business]
+tags: []
+excerpt: "Signs that traffic through the key Strait of Hormuz shipping route is gradually resuming has helped to push the oil price down."
+image: assets/images/533860b78555df223720399de55e9104.jpg
+---
+
+Here’s what you need to know: The price of oil has fallen to levels not seen since before the Iran war as traffic through the key Strait of Hormuz shipping route gradually resumes.
+
+Global benchmark Brent crude briefly fell below $72.48 (Â£55) a barrel, the price it was at the day before the US and Israel launched attacks on Iran on 28 February, before edging up to $73.23.
+
+Energy prices have been on a wild ride since Iran responded to the strikes by effectively closing the strait, a critical waterway for oil and gas shipments.
+
+The cost of crude has been moving sharply lower since the US and Iran signed a Memorandum of Understanding (MOU) on 17 June which set out a 60-day period for negotiations on Tehran's nuclear programme and other measures to end the war.
+
+However, Pratibha Thaker, regional director of Middle East and Africa at the Economist Intelligence Unit, said though oil prices have fallen back to pre-conflict levels, risks still remain.
+
+"Markets are still watching the region closely, and any renewed tensions could quickly send oil higher again," she said.
+
+Representatives from the two sides met in Switzerland last weekend for talks to end the war, which resulted in the US partially lifting sanctions on Iranian oil exports.
+
+The number of vessels crossing the Strait of Hormuz has risen significantly since the MOU was signed, according to maritime intelligence firm Kpler.
+
+Its latest data suggests 284 vessels have made the transit from 18 June, the day after the deal was signed, although that is is still well below the pre-conflict average of some 138 crossings each day.
+
+The ships passing through the waterway in recent days include those carrying crude oil, liquefied natural gas (LNG), fertiliser and other goods, Kpler told the BBC.
+
+The US and Iran had also formed a "communication line" to prevent misunderstandings "with the aim of safe passage for commercial vessels through the Strait of Hormuz", mediators Qatar and Pakistan said in a joint statement on Monday.
+
+There has been a "tremendous shift" with far more ships using the strait in recent days, said Dimitris Maniatis, the chief executive of Marisks, a maritime risk advisory firm working with ships stuck in the region.
+
+A limited number of ships can cross a northern passageway with the permission of Iranian authorities, he said. 
+
+The US navy has also provided guidance for vessels to travel through a southern route that is safe from mines and other obstacles that has been laid out since the war, Maniatis said.
+
+But the number of ships crossing the strait is still below levels seen before the war, when it was used by more than 100 ships a day.
+
+Hundreds of ships still appear to be waiting in the Gulf.
+
+Fuel prices at the pump rose sharply when the Iran war  began, and now the focus is on how quickly they will fall.
+
+"On the back of the lowest oil price since before the Iran war started, drivers should see the average price of petrol fall below 150p [a litre] in the next week or so," said Simon Williams, head of policy at UK motoring group the RAC. He added the price of diesel "ought to go back under 160p.
+
+Petrol peaked at 159.53p a litre on 28 May, according to the RAC, while diesel has fallen from a high of 191.54p on 15 April.
+
+The average price of regular gasoline in the US has dropped to around $3.93 a gallon after reaching $4 a gallon in April, its highest since 2022, but is still well above pre-war levels.
+
+US President Donald Trump on Wednesday ordered an investigation into major energy companies, accusing Shell, ExxonMobil and other firms of "gouging" drivers by not reducing fuel prices even as oil costs fell. 
+
+"Oil prices have come down so much and we are not seeing anything at the pump by comparison the way they should be," Trump told reporters in the Oval Office.
+
+The American Petroleum Institute, which represents the oil and gas industry in the US, said fuel prices "don't move in lockstep with crude oil".
+
+British energy firms have faced similar accusations of unfairly hiking petrol prices since the Iran war.
+
+The UK competition watchdog said last month that there was no widespread evidence of this, adding that average profit margins were "broadly unchanged" between February and March.
+
+What Iran and US get from deal and why both could struggle to keep it
+
+Five ways the Iran peace deal could affect you and your money
+
