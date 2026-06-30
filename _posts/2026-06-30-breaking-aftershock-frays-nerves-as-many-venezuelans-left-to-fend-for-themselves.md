@@ -1,0 +1,89 @@
+---
+layout: post
+title: "Breaking: Aftershock frays nerves as many Venezuelans left to fend for themselves"
+date: 2026-06-30T04:21:58
+author: "badely"
+categories: [News]
+tags: []
+excerpt: "In areas devastated by the twin earthquakes, people are using crowbars, pickaxes and their bare hands to try to reach survivors."
+image: assets/images/9d6323c9d597b04e6915109d510eb957.jpg
+---
+
+Let's dive into the details: This video can not be played
+
+Watch: Desperate search for earthquake survivors continues outside Caracas
+
+Many areas of Venezuela devastated by last week's twin earthquakes have yet to receive significant government help, leaving residents to carry out much of the rescue effort.
+
+In the port of La Guaira, one of the hardest-hit cities, the BBC saw people using crowbars, mallets and pickaxes to try to dig out loved ones and neighbours. Tens of thousands of people are still believed to be missing. 
+
+Early on Monday, nerves were frayed by an aftershock, although no further damage was reported.
+
+More than 1,700 people have been killed in what Interim President Delcy RodrÃ­guez said was the "most brutal natural catastrophe" in Venezuela's history.
+
+International aid has mobilised but hopes of finding survivors are fading. Overnight into Monday, a 21-year-old man became the latest person to be pulled alive after being trapped for over 100 hours.
+
+The magnitude 7.2 and 7.5 quakes on Wednesday struck within 39 seconds of each other in the northern state of La Guaira, causing almost 800 buildings to collapse. 
+
+Monday's aftershock again shook La Guaira and the capital Caracas and was measured at magnitude 4.6.
+
+In nearby Catia La Mar the main search-and-rescue efforts were also still being carried out by local volunteers and international teams and there was anger at the authorities.
+
+The BBC saw signs of the Venezuelan police and army on the streets in the worst-affected areas, but not in the rubble.
+
+Ruben Rojas, a 32-year-old electrician who has been digging in the rubble with only gloves and a hard hat, said: "The civil protection people decided to help, but they don't have the equipment. The government doesn't give it. They are just like us, working with their hands."
+
+In La Guaira city the deployment of earth-moving equipment was patchy and sporadic, with local people working for days on a single building and the heavy machinery only arriving after it was too late.
+
+Carolyn Zerpa, 39, was searching for her father and brother under the rubble by hand.
+
+"You can't really do much with just a pickaxe," she told BBC Mundo. 
+
+Her focus has shifted from rescue to recovery, to find the remains of her family and give them a proper burial.
+
+Zuly MarÃ­n, a La Guaira resident of 15 years, said she believed it was impossible to prepare for such a disaster but that the response had been too slow, exacerbated by Venezuela's dire economic situation.
+
+"I lost my niece and my brother-in-law. I think that if they [the rescuers and digging equipment] had come sooner, many people could have been saved," she said.
+
+'No one move!': The agonising silence as Venezuela rescuers listen for survivors
+
+Dogs, drones and sound detectors: How rescuers search for quake survivors
+
+Residents and volunteers are searching the rubble with little more than their bare hands 
+
+In El Junquito, a mountainous area west of Caracas, residents told Reuters agency they had seen few public officials, while farmers and other residents have been providing basic supplies to the community.
+
+"We are waiting for answers, for debris to be cleaned up, for inspections, for people who have been really affected to be helped," resident Keily Ibarra, 33, told Reuters.
+
+On Monday RodrÃ­guez said more than 25,000 emergency workers, police officers and soldiers had been assisting Venezuelans affected by the earthquakes.
+
+"Every life saved is a victory for hope," she posted on social media platform X.
+
+She has also announced a commission to assess the damage, to be chaired by her brother, National Assembly President Jorge RodrÃ­guez. 
+
+Speaking on state television, she said the group would determine who could return home using a colour-coded traffic light system to classify safety. Temporary camps to house those displaced were being set up in the meantime, she added.
+
+The rescued 21-year-old was found in the town of Caraballeda by teams from Venezuela, Mexico, and El Salvador, Salvadoran President Nayib Bukele announced on Monday.
+
+The man, Aaron Levi Cantillo Vargas, is receiving specialised medical care, Bukele said, adding that the rescuers would "continue working with the hope of being able to save more lives".
+
+The UN's resident humanitarian coordinator Gianluca Rampolla Del Tindaro said on Monday that there had been more than 500 aftershocks and that at least 2,500 structures had been affected by Wednesday's initial quakes, most of which had fully collapsed.
+
+The UN was obtaining 10,000 body bags as part of its rescue operation, he added, saying that a rise in the death toll was unavoidable.
+
+"It is very sad and we truly hope that actually the number is going to be smaller than that and that's why we are focusing now on the rescue operation," he said.
+
+Meanwhile more international aid has been pledged. The US has announced more than $300m (Â£227m) to help Venezuela - an increase from its previous commitment of $150m.
+
+"These funds will provide emergency medical care, food assistance, water and sanitation, shelter, protection, and logistics," the US state department said.
+
+The US military has repaired and re-opened the Port of La Guaira to speed up aid delivery, with a frigate, the USS Fort Lauderdale, currently docked and offering support.
+
+Sailors and Marines have been seen using landing and amphibious craft to deliver aid to the most affected coastal areas.
+
+The Netherlands has also said it is sending a vessel carrying emergency supplies, while China has promised almost $15m in assistance.
+
+Mum rescued from Venezuela rubble with newborn baby tells BBC how he helped her survive
+
+Venezuela earthquakes in maps and graphics - where they hit and how severe they could be
+
