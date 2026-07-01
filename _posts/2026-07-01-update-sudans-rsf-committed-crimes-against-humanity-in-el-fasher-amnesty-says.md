@@ -1,0 +1,85 @@
+---
+layout: post
+title: "Update: Sudan's RSF committed crimes against humanity in el-Fasher, Amnesty says"
+date: 2026-07-01T06:29:31
+author: "badely"
+categories: [News]
+tags: []
+excerpt: "The Amnesty report adds to evidence of atrocities in el-Fasher, which the UN says bore the hallmarks of genocide."
+image: assets/images/108ef287fd353edc4c481803d2411e5c.jpg
+---
+
+It has been recently reported that More than 6,000 people were killed in el-Fasher last year, the UN says 
+
+Sudanese paramilitaries committed crimes against humanity and ethnic cleansing during their campaign to seize the city of el-Fasher last year, a rights group report says.  
+
+The siege and takeover of the city in the western region of Darfur marked one of the bloodiest episodes in Sudan's civil war between Sudan's army and the Rapid Support Forces (RSF).
+
+"The RSF's crimes included murder, forcible transfer, imprisonment, torture, rape, sexual slavery, other forms of sexual violence, enslavement, extermination and persecution," said an Amnesty investigations released on Wednesday, external. 
+
+The RSF has not commented on the Amnesty report but has denied previous such accusations.
+
+Sudan remains locked in a threeâyear power struggle between the regular army and the RSF paramilitaries. The ongoing civil war has killed hundreds of thousands of people, and forced more than 14 million people from their homes. 
+
+Widespread sexual violence against men, women and children is being used as a weapon of war, the UN says.
+
+Both the RSF and the Sudanese Armed Forces (SAF) have been accused of war crimes, which they deny.
+
+After being forced out of the capital, Khartoum, in March last year, the RSF shifted its focus to consolidating its control of the western Darfur region by capturing el-Fasher, and extending its reach into the Kordofan states in the south of the country.
+
+A simple guide to what is happening in Sudan
+
+'Our job is only killing' - how Sudan's brutal militia carried out a massacre
+
+Amnesty believes RSF fighters committed grave human rights violations in and around el-Fasher during its 18-month siege of the city. 
+
+"Children were not collateral damage of this violence â often, they were deliberately targeted and have suffered immensely. They have been killed, injured, raped, abducted, and forcibly recruited on a massive scale," said AgnÃ¨s Callamard, Amnesty International's secretary general.
+
+In its report that details dozens of accounts of more than 200 survivors, Amnesty said evidence gathered "may be relevant to the crime of genocide". 
+
+"They tied me up and beat me with sticks and the back of an AK-47. Then one of them approached on a camel andâ¦ just shot me in the leg," said a 17-year-old who was attacked in Abu Zerega, a town south of el Fasher. 
+
+The teenage boy, who now uses crutches to walk, said eight of his cousins, including four boys aged between 11 and 17, were killed in the same attack.
+
+Amnesty researchers, who reviewed 89 open-source videos and carried out extensive analysis of satellite imagery from North Darfur, say many victims were targeted and killed because of their ethnic identity.
+
+Arab fighters from the RSF went after members of local non-Arab communities, according to the rights group, often using ethnic slurs translated as "slave" or "servant".
+
+Arab militias associated with the RSF have a long history of violence against black African groups in Darfur. 
+
+In the case of el-Fasher, the armed groups defending the city came predominantly from the Zaghawa ethnic group, and RSF fighters targeted Zaghawa civilians as well as the fighters, says Amnesty.
+
+Witnesses also spoke about mass killings, sexual violence, and the deliberate targeting of children.
+
+Callamard, the Amnesty secretary general, said the "world was warned of the horrors that civilians in el-Fasher confronted as the RSF laid siege to the city".
+
+"It is a stain on the conscience of humanity," added Callamard, calling for an immediate ceasefire in Sudan, and for the urgent deployment of an international force to protect civilians.
+
+ Amnesty says it has identified RSF commanders responsible for violations of international law and is stressing the need for accountability.
+
+The RSF leadership has acknowledged some violations occurred and said it was investigating them, but insists the scale of the atrocities is being exaggerated.
+
+The report adds to mounting evidence of atrocities in el-Fasher, which the UN said early last year bore the "hallmarks of genocide."
+
+More than 6,000 people were killed in just three days of the assault on el-Fasher, the UN said in its report. 
+
+International pressure has been increasing on the backers of this conflict to disengage.
+
+The fighting has led to the world's worst humanitarian crisis with more than 14 million people forced from their homes and 28 million facing acute hunger, aid agencies say.
+
+Additional reporting by Kaleb Moges
+
+'I saw them driving over injured people' - the terrifying escape from war in Sudan
+
+One-year-olds among those raped during Sudan civil war, UN says
+
+'Half of my friends were killed' - the girls returning to a school caught up in war
+
+Go to BBCAfrica.com, external for more news from the African continent.
+
+Follow us on Twitter @BBCAfrica, external, on Facebook at BBC Africa, external or on Instagram at bbcafrica, external
+
+Focus on Africa
+
+This Is Africa
+
