@@ -1,0 +1,63 @@
+---
+layout: post
+title: "Breaking: German row over plan for workers to need sick note on first day of illness"
+date: 2026-07-03T14:56:30
+author: "badely"
+categories: [Health]
+tags: []
+excerpt: "A doctors' group says it 'borders on madness' that patients will have to obtain the note in person."
+image: assets/images/41473a7b7543bb14b9f7a0ea014fc93f.jpg
+---
+
+Here’s what you need to know: Chancellor Friedrich Merz said the number of sick days in Germany was "too high" (generic photo)
+
+A row has broken out in Germany after the coalition government announced changes to sick-leave rules, requiring Germans to provide a doctor's note to their employers on the first day of their illness.
+
+The changes also mean workers will not be able to obtain the note by phone, scrapping a measure brought in due to the Covid-19 pandemic.
+
+"The number of sick days in Germany is too high," said Chancellor Friedrich Merz.
+
+Under the current rules, a certificate is only required if a person is unfit for work for more than three days â in other words, on the fourth day, although employers are entitled to request the sick note earlier.
+
+The plans were agreed by Merz's conservative Christian Democratic Party (CDU) and his coalition partner the Social Democrats (SPD).
+
+"This is a tough decision," the chancellor said. "But we can no longer afford this competitive disadvantage caused by long periods of absence from work."
+
+Merz said the government would not accept what he called "exorbitant" levels of sick leave in the wake of the pandemic.
+
+Germany was "returning to the arrangements we had before the coronavirus pandemic," he told ARD TV on Thursday night. 
+
+"At the same time, it is up to individual businesses to agree on other arrangements as well."
+
+Medical groups have strongly criticised the plans.
+
+The KBV, a national association representing statutory health insurance physicians, said that it "bordered on madness" to force thousands of people to visit doctors' surgeries simply to fill in forms.
+
+"Anyone who is coughing or has a gastrointestinal infection belongs in bed â not in an overcrowded surgery," it said in a statement.
+
+The Association of General Practitioners warned that infection cases â which would only have required one or two days in bed â would fill up doctors' waiting rooms.
+
+The leader of the SPD, Vice-Chancellor Lars Klingbeil, attempted to calm the situation, telling RTL TV he was looking for "workable solutions".
+
+"We now need to put sensible arrangements in place for what has been proposed in the coalition committee," he said.
+
+Labour Minister BÃ¤rbel Bas, also from the SPD, said she would investigate the requirement to provide a doctor's certificate on the first day of illness. 
+
+"That wasn't my proposal," Bas told RTL.
+
+"We will look into whether this actually has any effect at all, or whether it is more likely to cause difficulties."
+
+But Jens Spahn, leader of the CDU's parliamentary group, defended the plans.
+
+He said Germany's rate of sick leave was among the steepest in the EU.
+
+"We have one of the highest numbers of sick days â around 18 per year per employee," he said. 
+
+"And those who are genuinely ill should, of course, be able to stay at home."
+
+The changes were agreed as part of sweeping tax, labour and pension reforms aimed at reviving Germany's economy.
+
+The legal fight to get equal pay for Germany's disabled workers
+
+How population decline is exposing Germany's old divides
+
