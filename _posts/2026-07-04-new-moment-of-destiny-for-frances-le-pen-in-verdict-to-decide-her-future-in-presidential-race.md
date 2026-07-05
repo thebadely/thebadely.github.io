@@ -1,0 +1,77 @@
+---
+layout: post
+title: "New: Moment of destiny for France's Le Pen in verdict to decide her future in presidential race"
+date: 2026-07-04T23:17:24
+author: "badely"
+categories: [News]
+tags: []
+excerpt: "Far-right leader Marine Le Pen is appealing against a verdict which found her guilty of misusing EU funds."
+image: assets/images/9c1968d185bdd739120fa6482819396d.jpg
+---
+
+Here’s what you need to know: Last year a Paris court found Marine Le Pen guilty of misusing European parliamentary funds, a case now before the court of appeal
+
+France is in a state of nervous excitement as it awaits Tuesday's court verdict that will determine whether nationalist frontrunner Marine Le Pen can stand in next year's presidential election.
+
+Rarely in a judicial decision in France have the political stakes been higher.
+
+Latest opinion polls suggest that the 57-year-old leader of the National Rally (RN) is well-positioned to become France's next head of state.
+
+But if the appeal court in Paris follows last year's initial verdict in her trial for misuse of European parliamentary funds, then Le Pen will be declared ineligible for public office and her political hopes will be in ruins.
+
+The RN's candidate in the April-May election would automatically become Le Pen's much younger colleague, 30-year-old Jordan Bardella. Polls currently indicate that he too would be favourite in the elections â but his youth and inexperience could start to show once campaigning gets underway.
+
+"Because of the presidential election, the decision you must render is of dizzying significance," Le Pen's lawyer Rudolphe Bosselut told the court in his summing-up in February.
+
+After deliberating for four months, the court will rule whether to confirm, overturn or adapt the verdict and sentence handed down on Le Pen in March 2025. Ten other RN officials â out of 25 originally convicted â are also appealing.
+
+Thirty-year-old Jordan Bardella is set to become RN's presidential candidate should Le Pen be blocked from running 
+
+In that first trial, the RN leader was found to have knowingly presided over a system in which RN staffers in Paris posed as EU parliamentary assistants in Brussels and Strasbourg to be paid out of EU funds. The party at the time was chronically short of money.
+
+If few â even in the RN â expect Le Pen to be acquitted in the appeal, everything depends on the sentence she receives on Tuesday.
+
+At the original trial, she was sentenced to two years imprisonment, to be served at home with an electronic tag. But the court also ordered five years ineligibility from public office. Crucially, this part of the sentence â unlike the jail term â was declared to be immediately effective and not suspended pending appeal.
+
+A furious Le Pen declared the verdict to be a "political decision" aimed at derailing her fourth - and most promising - attempt at the presidency. Under pressure, the courts arranged an early date for the appeal so there would be time for a potential change of sentence.
+
+At the second trial, the same arguments were produced by either side. Le Pen's lawyers pleaded for acquittal. The state advocate asked this time for one year, not two, with an electronic tag, but again the key part: five years ineligibility.
+
+If the court follows the state advocate, then Le Pen will clearly be out of the presidential race. In the unlikely event she is acquitted, she will equally clearly be in the race.
+
+But what has French legal minds racing is the possibility of an intermediate sentence. What, for example, if the court hands down not a five-year but a two-year ineligibility?
+
+In theory, that would allow her to stand, because two years from the first verdict would end on 31 March 2027 â just over two weeks before the first round of the election on 18 April.
+
+But if the court rules that she must also wear an electronic tag for a year, then that â Le Pen herself says â would make her candidature impossible. "A candidate needs total freedom of movement," she said. "Can you imagine having to ask permission every time to go to a meeting or a market?"
+
+While Bardella and Le Pen swear mutual loyalty, a power transition would be a new frontier for the Rassemblement National
+
+Another imponderable in the event of, say, a two-year ineligibility is recourse to the highest court of appeal, the Cour de Cassation.
+
+If on Tuesday she is found guilty but authorised to run for president, then it would not be in her interest to appeal to the Cour de Cassation because its decision â which would come in January â might go against her and reimpose ineligibility.
+
+However, it is not only a defendant who can turn to the Cour de Cassation. The prosecution can too. In which case, we might have Le Pen able to run for the next few months (because the original ineligibility would be suspended) only to be re-declared ineligible early next year.
+
+All these uncertainties have led some to speculate whether in her heart Le Pen has already resigned herself to not running and to handing over the campaign to Bardella.
+
+Speaking in a French television interview ahead of the verdict, she appeared almost content at the prospect: "Whatever happens, I'll still be alive.  Whatever happens, I will continue the fight for my ideas."
+
+But there is another school of thought tipping to the theory that - despite all the excitement over Bardella - it will in the end be Le Pen facing the electorate next April-May.
+
+According to this interpretation, apparently much-heard in government circles, the judges are not impervious to the political importance of their decision and would therefore be reluctant to deprive the electorate of so popular a candidate as Le Pen.
+
+In truth, no-one knows how the verdict will fall. All that can be said for certain is that much hinges on it. A Le Pen candidacy for the French presidency is not the same as a Bardella candidacy.
+
+For one thing, the two represent different sensibilities within the nationalist camp.  
+
+Le Pen has always declared herself to be "neither left nor right" and her appeal is strongest among the old working class. Bardella leans more to the economic liberalism of the traditional right â as shown by his recent contact with top business executives.
+
+Party insiders say the two are "complementary", each appealing to different sectors of the population and the combination potentially allowing the RN to break through its glass ceiling and finally win power.
+
+But however much they minimise the differences - and however much they profess their mutual loyalty â the passing of power from the seasoned, familiar, loyalty-inspiring warrior that is Marine Le Pen to the untested squire that is Jordan Bardella would be a step into the unknown.
+
+Le Pen blames European Parliament in appeal that could decide political fate
+
+Listen to The Global Story on BBC Sounds: Why France might soon have a far-right government
+
