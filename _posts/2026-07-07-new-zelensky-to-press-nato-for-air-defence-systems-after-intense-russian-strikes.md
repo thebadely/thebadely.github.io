@@ -1,0 +1,99 @@
+---
+layout: post
+title: "New: Zelensky to press Nato for air defence systems after intense Russian strikes"
+date: 2026-07-07T04:18:19
+author: "badely"
+categories: [News]
+tags: []
+excerpt: "The Ukrainian president will use the Nato meeting in Turkey to argue he needs more interceptor missiles."
+image: assets/images/76defc41c5da345924653546fb904275.jpg
+---
+
+Let's dive into the details: Ukraine's president plans to use the Nato meeting in Turkey to urge Kyiv's allies to deliver the air defence systems it urgently needs to protect it from escalating Russian attacks.
+
+Volodymyr Zelensky's call for help rings with extra intensity after Russian missiles rained down on the Ukrainian capital twice in less than a week, crashing into blocks of flats and killing more than 50 civilians.
+
+The summit in Ankara will also be a chance for Zelensky to hold a crucial meeting with Donald Trump and press home his case that Russia's "brutal" attacks are a show of weakness, not strength, and that Vladimir Putin should be pressured into talks towards a "dignified" peace.
+
+The latest strikes on Ukraine come as it has been stepping up its own long-range drone attacks against Russia, hitting oil refineries and military targets there and causing significant fuel shortages and power cuts.
+
+This video can not be played
+
+Watch: Russian attack leaves hole in Kyiv residential building
+
+Underscoring that threat, Moscow's mayor Sergei Sobyanin said anti-air defences intercepted "most" of the 430 unmanned aerial drones fired by Ukraine towards the capital overnight. The severity of the damage was not immediately clear.
+
+Russian social media accounts are full of videos of people queuing for hours to buy petrol and fighting over what little they're allowed.
+
+On the eve of the Nato gathering, which will be held on Tuesday and Wednesday, Zelensky voiced hope that the meeting in Turkey would not be "empty".
+
+Nato Secretary General Mark Rutte has urged member states to "pull their weight" and ensure Ukraine gets what it needs "to defend its sovereignty".
+
+He underlined that Kyiv was "changing the dynamic on the battlefield", referring to efforts to stall Russian ground troops in the east.
+
+That's also about the recent drone strikes, apparently giving Ukraine an edge. â
+
+The phrase of the month here is "window of opportunity".
+
+But as the war in the skies has intensified, Russia's ballistic missiles are causing Kyiv real problems.
+
+Ukraine's air force issues a daily tally of the weapons Moscow launches alongside the number intercepted.
+
+On Monday, almost all drones were blocked successfully but the failure rate for missiles was glaringly obvious.
+
+Ukraine did not stop a single ballistic missile in that attack.
+
+It isn't easy: they fly at several thousand kilometres an hour and there just aren't enough US-made Patriot air defence missiles in Ukraine to counter them.
+
+"It is simply absurd that, in today's world, production has still not been scaled up to the level actually required to protect people from ballistic terror," Zelensky said, venting his frustration in a video address on Monday.
+
+He has been calling on European allies to hand over their own stockpiles of Patriot missiles, arguing that they're no good to anyone in storage when civilians are being killed now in Ukraine.
+
+"Russia is placing its bets on ballistic weapons, and those who want peace must place their bets on protection against ballistic attacks," Zelensky argues, setting out his case for meetings in Ankara.
+
+But Patriot systems are in short supply worldwide and it's not clear how many would ever be enough if Russia were to escalate its ballistic attacks further.
+
+That's why Zelensky also talks about Ukraine producing its own equivalent, with Nato help.
+
+The Russian attacks, though, do suggest that Ukraine's deep strikes are getting under the Kremlin's skin.
+
+After years of Russia targeting civilian infrastructure in Ukraine, including power stations in mid-winter, Moscow now accuses Kyiv of "terrorism" for hitting its oil refineries with drones.
+
+Zelensky calls it an "influence campaign" and he will be keen to share details with Nato allies.
+
+The aim is to pressure Putin into peace talks on terms that Kyiv could stomach â that doesn't include surrendering the entire eastern Donbas region, as Moscow still demands.
+
+This video can not be played
+
+Explosions in Kyiv during deadly Russian strikes
+
+The campaign targets have been high profile.
+
+An oil terminal in St Petersburg was hit with drones ahead of Putin's showpiece economic forum in the city in June. Then there were strikes on a refinery in Moscow itself, creating explosion videos that went viral.
+
+Now there's a confirmed hit on an oil refinery in Omsk, Siberia, 2,500 km from Ukraine's border. The drone must have flown undetected for many hours, which shows how stretched Russia's own air defences actually are.
+
+Ukraine's "influence" efforts also include Crimea, the peninsula which Putin seized in 2014 and which is deeply important to him personally.
+
+Ukrainian drones are now hitting military logistics, oil refineries and power plants there almost every day, causing power cuts, fuel and food shortages and an official state of emergency.
+
+A local resident told the BBC the situation was "catastrophic", reminiscent of the turbulent 1990s after the USSR collapsed.
+
+One of Putin's great claims is that he "saved" the country from that chaos, raising Russia "from its knees".
+
+Now his all-out war is bringing danger even to Moscow in the form of drone strikes, and widespread fuel rationing.
+
+So Zelensky will tell Nato, and try to persuade Trump, that Ukraine has turned the tide in this war, and that its campaign of pressure can, with help, compel Russia to engage in proper negotiations for peace.
+
+Trump has seemed impressed by Ukraine lately, although he spoke to Putin for 90 minutes by phone this week, giving the Russian leader a chance to get his war story in first.
+
+Above all, Kyiv wants to end this war fast, through "strength or diplomacy", before another gruelling winter kicks in.
+
+But to have any chance of that, Zelensky will argue, Ukraine needs more interceptor missiles to protect its cities and civilians.
+
+Ukraine warns of interceptor missile shortage as 23 killed in Kyiv region
+
+Why Ukrainian strikes on annexed Crimea are a blow to Putin 
+
+Putin makes rare admission of fuel shortages caused by Ukrainian strikes
+

@@ -1,0 +1,15 @@
+---
+layout: post
+title: "Update: How often do you get up from your desk?"
+date: 2026-07-06T15:32:59
+author: "badely"
+categories: [Health]
+tags: []
+excerpt: "A study found that even a five-minute walk boosts your mood and lowers fatigue."
+image: assets/images/957f91152a53e83604d33808650cbee6.jpg
+---
+
+According to new developments, This video can not be played
+
+Click here for more tips on staying active while at work.
+

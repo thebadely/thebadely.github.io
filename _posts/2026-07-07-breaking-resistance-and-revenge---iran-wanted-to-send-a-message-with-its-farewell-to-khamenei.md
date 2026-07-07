@@ -1,0 +1,85 @@
+---
+layout: post
+title: "Breaking: Resistance and revenge - Iran wanted to send a message with its farewell to Khamenei"
+date: 2026-07-07T00:46:03
+author: "badely"
+categories: [News]
+tags: []
+excerpt: "Three days of public mourning in Tehran was a political spectacle Iran's leaders wanted the world to see, writes the BBC's international correspondent"
+image: assets/images/d378d8f2c92bb5a4acbd754b9bd399ab.jpg
+---
+
+Experts revealed that Three days of public mourning in Tehran for its slain supreme leader ended with a major political spectacle the men now in charge wanted the world to see.
+
+The hulking funeral cortÃ¨ge, carrying the coffins of Ayatollah Ali Khamenei and four family members, inched along a 10km route â slowed, and often stopped, by millions of mourners in one of the largest public gatherings in many years.
+
+In a week of funeral events, Monday's march was the most significant in carefully choreographed ceremonies steeped in political messaging of resistance and revenge.
+
+But many also stayed away, hurting from two wars in less than a year, inflation spiralling at around 80%, and the pain of January's anti-government protests. 
+
+Some blame Khamenei, who was also the commander-in-chief, for the security crackdown which killed many thousands.
+
+"Of course I'm not going to the funeral," one man told us outside one of the many "mookebs", the rest stations set up in the city and on its outskirts to provide free food and water, most of it from private donations. 
+
+"Many people don't have work and are so unhappy," he explained.
+
+Aerial footage from Monday's procession showed one of Tehran's main arteries chock-full of loyalists consumed by grief and chanting the Islamic Republic's signature slogans of "death to America" and "death to Israel".
+
+This video can not be played
+
+'The spectacle Iran wants the world to see': Lyse Doucet in Tehran
+
+"Tears arise from the pain and sorrow that surges within a person, and the world sees this truth," declared Iran's President Masoud Pezeshkian, rebutting US President Donald Trump's claim that these were "fake tears".
+
+The commemorations now move to some of the most sacred sites for Shia Muslims, including in Qom, south of Tehran, on Tuesday, and then to Najaf and Karbala in neighbouring Iraq. 
+
+The final burial is on Thursday at the sprawling Imam Reza Shrine in Mashhad, the ayatollah's birthplace and Iran's holiest city.
+
+"The funeral proceedings are designed to frame him as more than a national leader but a transcendent religious and political figure whose authority extended across the Muslim world, and particularly Shia Islam," observed Mohammad Eslami, research fellow at Tehran University.
+
+There's a harsher view of his legacy. "The revolution he preserved was for a world which no longer exists," assesses Karim Sadjadpour, author of Reading Khamenei: the World View of Iran's Most Powerful Leader.
+
+The coffins of Khamenei and four family members were carried in a hulking funeral cortege
+
+In Tehran, a flatbed truck, decorated with intricate latticework and Arabic Islamic script, carried five caskets, painted in the green, red and white of Iran's flag, including the smallest for Khamenei's 14-month-old granddaughter Zara. 
+
+All were killed by Israeli-American air strikes on 28 February, in the first hours of the war.
+
+Red was the loudest colour in the huge crowds of bereaved wearing black. Religious flags symbolising blood and martyrdom amplified calls to avenge the supreme leader's assassination. 
+
+Posters in English singling out Trump as the main target were held high for the hundreds of foreign journalists given rare access to cover this funeral.
+
+An Iranian messaging app had advised government supporters to use slogans such as "Our revenge is inevitable," and "They will pay. Hard."
+
+Mojtaba wanted to send a message to the US president and the world
+
+"I want to say one sentence to President Trump and the world," declared a grey-haired man named Mojtaba, who came to us saying he had a message. 
+
+"Soon, very soon you will see signs of revenge at the top of the White House, and soon the colour of the White House will be the colour of my red flag."
+
+"Some of these calls are just ritualistic," a government official told me. "But the anger is real among hardline critics within the system who oppose the new deal with the United States which killed our leader. "
+
+To address a dire financial situation, Iran's new leaders, after surviving weeks of war, must now keep negotiating if they wish to see badly needed relief through the easing of sanctions and unfreezing of assets.
+
+Government supporters in what were welcoming crowds kept approaching foreigners - including what the government says were 400 social media influencers - to ask "where are you from?" They often urged visiting media to "tell the truth".
+
+But even in this throng there were other voices too. Two young Iranian women, clad in the black cloaks of most female mourners, pulled us aside to whisper that the "real voices of revolution" had been heard in the protests just months ago on these same streets.
+
+The road ahead is still uncertain as Iran buries the last of the first-generation founders of its 1979 revolution.
+
+Nearly four decades ago, I was in Iran when it buried its first supreme leader Ayatollah Khomeini. In the frenzied stampede, his flimsy wooden coffin broke and his white shrouded body tumbled into the crowds.
+
+Iran enters a new era with its third Supreme Leader, 56-year-old Mojtaba Khamanei, who's still not been seen in public since the air strikes which killed his father severely injured him.
+
+The sight of his three brothers at the open-air Grand Musalla mosque compound, where their father lay in state made his absence all the more conspicuous.
+
+Iranian officials point to Israel's continuing threats to assassinate him too.
+
+"He's in my heart and I hope he is safe from Trump and Netanyahu," insisted one woman who had travelled with her family from Hamadan, a four-hour drive away, to join the procession.
+
+But the organisers of what they've called the "event of the century" have tried to maximise other symbols.
+
+The biggest of all is the colossal statue of a clenched fist that now towers over Enqelab or Revolution Square â  the "fist of defiance" meant to send a message to enemies outside and inside Iran that their Islamic Republic cannot be defeated.
+
+The BBC's chief international correspondent Lyse Doucet is reporting from Tehran on condition that none of her material is used on the BBC's Persian Service. These restrictions apply to all international media organisations operating in Iran.
+
