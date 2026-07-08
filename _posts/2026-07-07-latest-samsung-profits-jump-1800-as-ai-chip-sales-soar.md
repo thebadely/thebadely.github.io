@@ -1,0 +1,53 @@
+---
+layout: post
+title: "Latest: Samsung profits jump 1,800% as AI chip sales soar"
+date: 2026-07-07T07:28:10
+author: "badely"
+categories: [Business]
+tags: []
+excerpt: "The firm's shares fell sharply on Tuesday as some investors had expected an even stronger performance."
+image: assets/images/d44945ec7b8b29f009f2fbac44a85be5.jpg
+---
+
+Let's dive into the details: Samsung is also one of the world's leading smartphone makers
+
+South Korean technology giant Samsung Electronics says it expects to post a 19-fold jump in its profits, driven by global demand for artificial intelligence (AI) memory chips.
+
+The company forecast that it made 89.4tn won (Â£43.6bn; $58.4bn) between the start of April and the end of June, marking its third record quarterly operating profits in a row.
+
+Major South Korean firms like Samsung release forecasts of their earnings ahead of official detailed reports to help guide investors.
+
+Samsung's latest forecast, released on Tuesday ahead of its full results due later in July, comes as demand for semiconductors continues to outstrip supplies - which has pushed up prices.
+
+Samsung said in the preview, known as earnings guidance, that it brought in around 171tn won of sales during the quarter, more than double the amount for the same period last year.
+
+The company's projected earnings mark one of "the best quarterly performances ever", which was close to the tech sector record set by Nvidia earlier this year, said industry analyst Marc Einstein from Counterpoint Research.
+
+"This has everything to do with the AI boom as memory companies continue to ride a tidal wave driven by limited supply and unprecedented demand," he added.
+
+Samsung has hiked the prices of its memory chips as supplies remain tight.
+
+Research firm IDC said demand for semiconductors for data centres and other AI infrastructure has been "different from anything the memory industry has navigated", impacting the supply of chips for everyday electronics.
+
+"We do expect supplies to be tight through next year given the unabated demand from AI data centres," said tech devices researcher Bryan Ma from IDC.
+
+Samsung is one of the world's biggest semiconductor manufacturers, making chips for firms like Nvidia and Google along with its range of electronic devices. The shares of major tech firms have soared in recent months due to surging demand for chips.
+
+Samsung's shares fell by almost 7% in Seoul on Tuesday as some investors had expected its profits to have been even higher.
+
+Its stock market value has more than doubled since the start of this year, while South Korean rival SK Hynix has jumped by more than 200%.
+
+The strong performance of both companies has helped lift the value of South Korea's benchmark share index, the Kospi, by more than 80% this year.
+
+In May, Nvidia posted record quarterly sales and profits, with revenue between January and March topping $80bn.
+
+But Nvidia's stock fell at the time, in what some analysts said was a sign that investors were increasingly worried about rising competition in the sector.
+
+In June, South Korea unveiled plans for at least $880bn of investments in projects led by Samsung and SK Hynix to build out the country's chip manufacturing in the coming years.
+
+Rival Asian firms in Japan, China and Taiwan are also investing heavily in chip factories to meet soaring demand.   
+
+Booming AI chip demand helps create two new $1tn club members
+
+South Korea unveils $880bn chip and AI investment plan
+
