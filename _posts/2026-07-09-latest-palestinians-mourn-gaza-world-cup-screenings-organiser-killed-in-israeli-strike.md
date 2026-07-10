@@ -1,0 +1,63 @@
+---
+layout: post
+title: "Latest: Palestinians mourn Gaza World Cup screenings organiser killed in Israeli strike"
+date: 2026-07-09T21:04:09
+author: "badely"
+categories: [News]
+tags: []
+excerpt: "Aid worker Mohammed al-Wahidi had become a prominent humanitarian figure during the Israel-Hamas war."
+image: assets/images/ab29ce45ca1610924d8513b43dfdb541.jpg
+---
+
+Here’s what you need to know: This video can not be played
+
+Man who ran Gaza World Cup viewings killed by Israeli strike
+
+The killing of Palestinian aid worker Mohammed al-Wahidi in an Israeli air strike in Gaza City on Tuesday has triggered an outpouring of grief across the Gaza Strip, where for many people he was one of the most recognisable humanitarian figures.
+
+Within hours of his death, social media platforms were flooded with photographs and videos documenting his work, alongside hundreds of messages of condolence from people who said they had encountered him during aid distributions or while living in displacement camps.
+
+An Israeli missile struck the taxi al-Wahidi was travelling in through the Sabra neighbourhood. He was killed along with three other people, including two brothers aged eight and 10 who were passing by and another man.
+
+The Israeli military said it had struck a Hamas operative and was aware of claims that uninvolved individuals were killed in the strike. 
+
+Al-Wahidi, 65, was an English teacher before the war but became a senior official with the Egyptian Relief Committee in Gaza, an Egypt-backed organisation that has played a prominent role in humanitarian relief efforts in the Palestinian territory during the war between Israel and Hamas.
+
+For more than two-and-a-half years he helped co-ordinate emergency food assistance, oversaw the establishment of camps for displaced families and worked to deliver aid to communities affected by repeated waves of displacement.
+
+Many Gazans say he became a familiar face in shelters across the territory because he preferred to remain in the field rather than directing operations from an office.
+
+Volunteers who worked alongside him describe a man who was regularly present at aid distribution points, speaking directly with displaced families and responding to their immediate needs.
+
+In recent weeks, al-Wahidi became more widely known after helping organise public screenings of World Cup matches in Gaza City, Deir al-Balah and the al-Mawasi area in southern Gaza.
+
+Mohammed al-Wahidi was killed shortly before the Argentina-Egypt football match - one of several World Cup public viewings he had help to organise in Gaza City
+
+The initiative aimed to offer families, particularly children, a brief escape from the realities of war.
+
+Egypt's matches attracted large crowds, reflecting the long-standing popularity of the team among many Palestinians in Gaza who have long shared cultural, emotional and political ties with their neighbours.
+
+Videos of children and families gathering around giant screens among destroyed buildings spread widely online, offering rare scenes of celebration amid the conflict.
+
+Al-Wahidi was killed only hours before one of those screenings, Egypt's last 16 match against Argentina, deepening the sense of loss among many Palestinians.
+
+"He was not simply an aid worker in a humanitarian committee," wrote activist Mohammed Hmeid, who documented al-Wahidi's work. "He was a door to hope that opened every day for displaced people and those who had lost everything."
+
+"Everyone who knew him speaks of his kindness, integrity and generosity," he added. 
+
+"In Gaza, even those who dedicate their lives to helping others are not spared. But good deeds cannot be killed. They live on in the hearts of the people."
+
+Al-Wahidi's death comes as humanitarian workers in Gaza continue to face significant risks.
+
+As of late April, the UN had recorded the killing of at least 593 of them since the war began, including eight since Israel and Hamas agreed a ceasefire 10 months ago
+
+Palestinians mourn Mohammed al-Wahidi
+
+The Israeli military launched a campaign in Gaza in response to the unprecedented Hamas-led attack on southern Israel on 7 October 2023, in which about 1,200 people were killed and 251 were taken hostage.
+
+At least 73,118 people have been killed in Israeli attacks in Gaza since then, according to the territory's Hamas-run health ministry, whose figures are seen as reliable by the UN.
+
+Lawyer says detained Gaza doctor was severely beaten in Israeli jail
+
+'Two weeks after her death I got a call': Gaza patients face agonising delays for evacuation
+
