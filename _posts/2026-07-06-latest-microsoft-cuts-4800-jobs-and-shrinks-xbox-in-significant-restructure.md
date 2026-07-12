@@ -1,0 +1,75 @@
+---
+layout: post
+title: "Latest: Microsoft cuts 4,800 jobs and shrinks Xbox in 'significant restructure'"
+date: 2026-07-06T15:18:53
+author: "badely"
+categories: [Technology]
+tags: []
+excerpt: "The sweeping layoffs equate to 2.1% of Microsoft's workforce, with 1,600 immediate job losses at Xbox."
+image: assets/images/b0ca969712413dbe6f9f991610b7663b.jpg
+---
+
+It has been recently reported that Microsoft has announced it has cut 4,800 jobs - roughly 2.1% of its workforce - with Xbox to bear a large number of its latest layoffs.
+
+Amy Coleman, executive vice president at Microsoft, told employees in a memo that the tech giant needed to focus on areas that can deliver for customers amid a "fast-changing industry".
+
+The sweeping layoffs will see more than 1,600 roles immediately axed at Xbox.
+
+Asha Sharma, who recently took over as Xbox's chief executive, said in a note to staff it was "beginning the most significant restructure in Xbox history".
+
+Four Xbox game development studios - Compulsion Games, Double Fine Productions, Ninja Theory and Undead Lab - would also be spun off as part of the changes, she added.
+
+Another 1,600 roles will be reduced from Xbox as a result.
+
+"These changes are about a bigger future for Xbox, not a smaller one," Sharma said in a note, shared on X, external.
+
+"History is full of companies that mistake longevity for inevitability. We will not be one of them."
+
+Coleman meanwhile pointed to a changing customer needs in announcing Microsoft's company-wide cuts.
+
+"Companies don't get to choose whether their industry changes; they only get to choose whether they change with it," she said.
+
+She noted that while the company would not replace the lost roles with AI, "what isâ¯true is that AI is changing how work gets done".
+
+The announcement comes at an already difficult time in the gaming industry, with many studios still reeling from brutal layoffs in recent years.
+
+In 2024, Xbox culled more than 2,000 staff and shuttered four studios bought prior to its bumper acquisition of Call of Duty maker Activision-Blizzard.
+
+Little more than a year later, Microsoft said it would cut up to 9,000 jobs after setting out plans to double down on its multi-billion-dollar AI spending.
+
+Asha Sharma, Xbox's recently minted chief executive, warned of a company "reset" back in June
+
+The spiralling costs of hardware have also prompted firms including Microsoft to hike the price of years-old consoles and similar consumer gadgets - with many blaming AI data centres for pushing up demand too quickly for supply to catch up.
+
+Sharma said on Monday that while she knew the cuts were "painful", there was a "reset" needed across Xbox's entire content portfolio, platform and operations.
+
+Tech analyst Paolo Pescatore told the BBC the changes indeed marked a "major reset" for the company, which has further trials ahead.
+
+"The challenge is not just cutting costs; it is defining what Xbox stands for in a world where games are moving across console, PC, cloud and subscription platforms," he said.
+
+As part of Xbox's sweeping changes, Minecraft developer Mojang and Candy Crush developer King will now report directly to Sharma.
+
+Piers Harding-Rolls of Ampere Analysis said this restructuring "underlines Xbox's vision for its studios and content, which will be more heavily focused on the biggest IP and audiences".
+
+He said the company had previously bought a plethora of studios to boost offerings on its subscription service Game Pass.
+
+"But the company has now decided that some of these teams and the games they are building would be better suited to sit outside the Xbox organisation," he said - adding that its decision not close them was "positive news during a difficult time".
+
+Double Fine and Compulsion will both return to independent management.
+
+Double Fine, acquired by Microsoft in 2019, wrote on X, external that it was "thankful to everyone at Xbox for seven great years together".
+
+The Psychonauts developer added it was grateful to have been able to reach an outcome "which preserves our history and culture, and returns ownership of our games to us".
+
+Both itself and Compulsion, which developed action-adventure title South of Midnight, will depart with their intellectual property (IP).
+
+"Our immediate priority is to support our team throughout this transition period," Compulsion said on X, external - adding it was confident in its future.
+
+Tech firms are blaming AI for mega device and console price rises
+
+Xbox producer tells staff to use AI to ease job loss pain
+
+PlayStation will stop releasing games on discs in 2028
+
+Sign up for our Tech Decoded newsletter to follow the world's top tech stories and trends. Outside the UK? Sign up here.
+
