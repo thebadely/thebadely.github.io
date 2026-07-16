@@ -1,0 +1,79 @@
+---
+layout: post
+title: "Update: From Wimbledon towels to Scotch - What India-UK trade deal could mean for shoppers"
+date: 2026-07-14T22:17:43
+author: "badely"
+categories: [Business]
+tags: []
+excerpt: "The free trade agreement between the world's fifth and sixth largest economies has come into effect - can it deliver?"
+image: assets/images/1979d756f0043af7272dff870c0fa038.jpg
+---
+
+Experts revealed that The trade deal could give a fillip to India's garment exports which face stiff competition from Bangladesh and Pakistan 
+
+In the offices of Welspun Living, the Indian company that makes championship towels for Wimbledon, preparations have been gathering pace to take full benefit of the India-UK free trade agreement  (FTA) that came into effect on Wednesday.
+
+The home textile manufacturing giant, among India's largest, supplies bedsheets and towels to several major British high-street retailers.
+
+"Many of these brands have been in India in recent weeks to chart a business roadmap for the next few years. We typically did joint forward planning only for our US customers, but now, with the deal, it's happening with UK clients too," Dipali Goenka, CEO of Welspun Living, told the BBC.
+
+The FTA between the world's fifth and sixth largest economies removes or reduces tariffs on 99% of Indian exports to the UK and 90% of UK imports into India. 
+
+The British government has called it "the UK's biggest and most economically significant bilateral trade pact" since leaving the EU, with its GDP estimated to increase by 0.13%, equivalent to Â£4.8bn ($6.4bn), and India's by 0.06%, or Â£5.1bn per year in the long run because of the deal.
+
+Labour-heavy sectors like textiles, garments, footwear, cars and marine products are counting on the agreement's implementation to spur business growth
+
+"I'm expecting our exports to the UK to now grow in double digits," Goenka said.
+
+She adds that India was at a disadvantage to countries like Bangladesh and Pakistan because their exports entered the UK duty-free through the Developing Countries Trading Scheme (DCTS), while India paid 12% tariffs. 
+
+But that will now change.
+
+"If you look at just home textiles, Pakistan's share of UK exports are at around 55%, whereas India's is just 6-7%. That's the gap we can finally cover."
+
+India and the UK began negotiating the trade pact in 2022 and formally signed the agreement in July 2026 
+
+The pact could also be a tipping point for British alcohol and spirits companies.
+
+The reduction of customs duties on Scotch whisky from 150% to 75% immediately and then gradually to 40% over 10 years is a "real shift, not a small tweak", says Avneet Singh of Modern Drinks Pvt Ltd, an import house based in the capital Delhi.
+
+How much this boosts imports will become clearer in the coming months, says Singh, though he sees momentum building ahead of the new terms of trade taking effect.
+
+"The focus has been on getting the operational side ready. That means working closely with UK suppliers to ensure certificates of origin and other trade documentation are in place, reviewing customs and compliance requirements, and co-ordinating with logistics and clearing partners so shipments can benefit from the revised tariff structure from day one," Singh said.
+
+So far, it's been a period of "careful preparation rather than rapid expansion", he says. Bigger changes will come once businesses see the actual savings on imported goods.
+
+Beyond these few pockets of the industry though, the overall impact of the deal could be "incremental rather than transformational", according to trade experts.
+
+Data from the Delhi-based Global Trade Research Initiative (GTRI) think-tank shows India exported $13.4bn worth of goods to the UK in the financial year 2025-2026, yet more than half of these exports entered the country duty-free under its most favoured nation regime.
+
+On the import side, India imported $11.7bn from the UK, and over 45% consisted of silver, which remains on India's exclusion list and is outside the agreement.
+
+"The real test is whether products that previously faced UK tariffs of 4-16% - such as textiles, garments, footwear, carpets, cars, seafood, grapes and mangoes - see higher export orders, larger export volumes and better profit margins. Those indicators will provide the clearest evidence of the agreement's success. The FTA's impact should become visible over the next one to three years," Ajay Srivastava of GTRI told the BBC.
+
+But several unresolved challenges, such as the UK maintaining tariffs on steel imports above a specific quota to protect domestic producers, could prove to be impediments to utilising the full scope of the deal, according to Srivastava.
+
+The UK's proposed carbon tax (called CBAM, external) could also reduce some of the FTA gains, he adds, because even if tariffs "fall to zero under the FTA, carbon-related border charges could increase the effective cost of Indian exports in sectors covered by the CBAM, creating new trade frictions".
+
+The UK-India trade deal cuts tariffs on Scotch whisky from 150% to 75% with immediate effect
+
+There are also other non-tariff barriers that continue to pose challenges.
+
+Historically India's utilisation of FTAs has been low because small businesses are often unaware of the new rules. As a result, only about 20-30% of India's eligible exports are estimated to use FTA preferences even though import-side utilisation rates are much higher.
+
+For example, an Indian garment exporter must actively tell a UK buyer that the import duty on shirts has fallen from 12% to zero and renegotiate prices or contracts accordingly. 
+
+Many will need training to comply with origin requirements and documentation so they can claim preferential tariffs.
+
+"The government and industry associations will have to be proactive in dealing with these issues because otherwise tariff reductions will not automatically translate into higher exports," says Srivastava.
+
+Yet, for India this is an opportunity that comes at the right time, especially in certain industries such as ready-made garments (RMG), according to CareEdge Research.
+
+China holds the largest market share in UK's RMG imports; however, it has continued to lose market share due to declining competitiveness and higher labour costs. Additionally, brands are also looking to diversify sourcing from countries like Bangladesh which was gripped by socio-political turmoil until recently.
+
+"In such a scenario, India is expected to double its market share from 6% in 2024 to 12% in the UK's RMG import in the near to medium term," CareEdge said in a report.
+
+Overall bilateral trade could also increase by 15% every year, higher than the current growth rate of 10-12%, according to CareEdge, with consumers from both sides broadly benefiting from improved product quality and broader choice.
+
+Follow BBC News India on Instagram, external, YouTube,, external X, external and Facebook, external.
+
