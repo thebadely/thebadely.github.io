@@ -1,0 +1,129 @@
+---
+layout: post
+title: "Big News: What are the symptoms of meningitis and how is it spread?"
+date: 2026-07-16T13:27:27
+author: "badely"
+categories: [Health]
+tags: []
+excerpt: "Some people can carry bacteria in their nose or throat without getting sick, but can spread it to others."
+image: assets/images/edbd5afc29d1236703e4a50603900487.jpg
+---
+
+Here’s what you need to know: An emergency vaccination programme followed an outbreak in Kent
+
+A vaccination programme targeting one million teenagers and young adults is being launched, after concerns about the number of meningitis B infections.
+
+Officials say the programme will help protect those at "highest immediate risk".
+
+Meningococcal disease can lead to life-threatening illness.
+
+Teenager's family 'heartbroken' by meningitis death
+
+Meningitis B vaccine to be offered to a million young people 
+
+Meningitis is an infection of the protective membranes that surround the brain and spinal cord.
+
+It can affect anyone but is most common in babies, young children, teenagers and young adults. It can be very serious if not treated quickly.
+
+The cause of the infection - either certain bacteria or viruses - can be determined by tests. 
+
+Bacterial meningitis is rarer but more serious than viral meningitis. It can lead to blood poisoning or sepsis, and can affect the brain. 
+
+This acute, severe infection is known as invasive meningitis. It means the infection has invaded the blood stream or brain linings.
+
+Meningitis B, or MenB, is behind most cases of more severe meningococcal disease in the UK. 
+
+Cases happen every year - in 2024-2025, there were 378 cases of invasive meningococcal disease, according to official data.
+
+NHS: Meningitis
+
+Symptoms can develop suddenly and can include:
+
+a rash that doesn't fade when pressed with a glass
+
+sudden onset of high fever
+
+severe and worsening headache
+
+stiff neck
+
+vomiting and diarrhoea
+
+joint and muscle pain
+
+dislike of bright lights
+
+very cold hands and feet
+
+seizures
+
+confusion/delirium
+
+extreme sleepiness/difficulty waking
+
+Two vaccines protect against the main causes of meningitis and septicaemia.
+
+The MenACWY vaccine offers protection against four types of bacteria that can cause meningitis - meningococcal groups A, C, W and Y - and is offered to teenagers aged 14 years old. Anyone who missed out can get it for free until their 25th birthday. 
+
+The MenB vaccine helps protect against meningococcal group B bacteria and is recommended for babies aged eight weeks, followed by a second dose at 12 weeks and a booster at one year.
+
+The vaccines do not contain any live bacteria and cannot cause meningitis.
+
+Meningitis can sometimes occur as a complication of some other infections, meaning several other vaccinations can also help protect people. 
+
+A six-in-one vaccine given to young children - also known as the DTaP/IPV/Hib/Hep B vaccine - offers protection against diphtheria, tetanus, whooping cough, hepatitis B, polio and Haemophilus influenzae type b (Hib).
+
+A pneumococcal vaccine offers babies protection against serious infections caused by pneumococcal bacteria, including meningitis.
+
+The MMRV vaccine - which replaced the MMR vaccine in January 2026 - offers infants protection against measles, mumps, rubella and chickenpox. 
+
+The MMR vaccine is free for anyone who missed getting it when they were younger, regardless of their age.
+
+Generally, it takes a couple of weeks to get full protection from a vaccine and some require booster doses. 
+
+The MenB vaccine was added to the UK NHS childhood immunisation programme for babies born on or after 1 July 2015. 
+
+That means teenagers and young adults over the age of 11 have not received this jab.
+
+Young babies are vaccinated because they are more likely to get invasive infections more often than other age groups, and their bodies are less likely to be able to fight them off.
+
+However, research suggests the MenB vaccine doesn't necessarily prevent transmission of the infection from person to person, doesn't target all the different B bacteria strains and doesn't provide very long-term protection.
+
+But UK vaccine experts now say government should consider routinely offering the vaccine to all teenagers at around age 15. It will be up to ministers in each nation to decide whether to do this.
+
+Additionally, one million young people are now being offered the MenB vaccine in a one-off, targeted programme this summer to help protect them. 
+
+All Year 13 pupils - meaning those who could soon leave for university - and anyone under 25 who is starting university or residential further education for the first time this autumn, will be able to get two doses of the vaccine for free on the NHS.
+
+Experts say this population is at higher risk of potentially catching meningitis B which can spread when people live together in shared accommodation.
+
+Invasive meningococcal disease tend to peak in October to November each year, which further heightens the risk.
+
+NHS Kent and Medway: Meningitis outbreak
+
+Why is MenB vaccine not given to teenagers in UK and should they be offered it?
+
+'Meningitis jab supply nowhere near demand'
+
+Outbreaks of meningococcal disease are rare, but can occur in places where large numbers of people group together, such as university campuses or entertainment venues. 
+
+Some people carry the bacteria in their nose or throat without getting sick, but can spread it to others through the exchange of spit or saliva in coughs, sneezes and kissing, or by sharing vapes and drinks. Close personal contact is necessary for spread to happen.
+
+The infection can also be spread by someone with meningitis, although this is less common.
+
+It's possible to get meningitis more than once.
+
+The best way to stop the disease spreading is to give antibiotics to people who may have come into contact with it.
+
+Vaccination can also provide some protection from future infection.
+
+NHS: MenACWY vaccine
+
+NHS: Men B vaccine
+
+NHS: MMR vaccine
+
+Anyone becoming unwell with symptoms of meningitis or sepsis should seek medical help urgently at the closest Accident and Emergency Department or by dialling 999. 
+
+Early treatment can be lifesaving.
+

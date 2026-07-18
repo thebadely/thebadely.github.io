@@ -1,0 +1,99 @@
+---
+layout: post
+title: "Latest: Why has British Steel been nationalised?"
+date: 2026-07-17T09:57:02
+author: "badely"
+categories: [Business]
+tags: []
+excerpt: "The UK's only remaining plant making virgin steel has been taken into public ownership after years of uncertainty over its future."
+image: assets/images/6766512aa41cf7ef142b09b819b26a61.jpg
+---
+
+It has been recently reported that British Steel has been taken into public ownership after years of uncertainty over the future of the steelworks.
+
+It comes months after the UK government took control of the company's plant in Scunthorpe, Lincolnshire, though it was still owned by China's Jingye Group.
+
+British Steel's Scunthorpe plant employs 2,700 people, about three-quarters of the company's workforce.
+
+It is the last plant in the UK producing virgin steel, which is used in major construction projects like buildings and railways. It has fewer imperfections than the recycled steel made elsewhere in the country.
+
+Were the plant to stop producing virgin steel, the UK would be the only member of the G7 group of leading economies without the ability to make it. The government views that as a risk to the UK's economic security.
+
+In 2016, Tata Steel sold the loss-making part of its business that made "long products" like transport rails and steel sections for construction.
+
+Private investment firm Greybull Capital bought it for Â£1 and renamed the business British Steel.
+
+However, following financial collapse in 2019, British Steel was taken over by the government's insolvency service.
+
+It was sold to Chinese steel-making firm Jingye the following year.
+
+On 16 July this year, the UK government brought it into public ownership, and Jingye is now seeking compensation for nationalisation.
+
+China's commerce ministry has hit out at the nationalisation, saying it "firmly opposes and is strongly dissatisfied with the British government's decision".
+
+In late March 2025, Jingye said the plant was losing around Â£700,000 a day and launched a consultation on its closure.
+
+It said the blast furnaces were "no longer financially sustainable," blaming "highly challenging" market conditions, tariffs and costs associated with moving to lower-carbon production techniques.
+
+A later report from the National Audit Office in March this year noted that the Scunthorpe steelworks was costing the government about Â£1.3m a day.
+
+UK steel production has been falling for several decades and the financial pressures facing the industry were heightened last March when the US imposed a 25% tariff on any steel it imports.
+
+Global over-production has created "a glut of steel on the international market", according to a a House of Commons Library briefing,, external which has pushed prices down. British manufacturers also face higher costs, particularly on electricity, than firms in other countries.
+
+The government says nationalisation will protect jobs and safeguard "a vital national capability".
+
+Nationalisation buys it time and gives it the power and freedom to decide on the future of the plant, while keeping the blast furnaces going.
+
+Ultimately it is unlikely the government will want to remain in charge of a business that is costing it more than a million pounds a day.
+
+The question over whether Jingye should be compensated for the nationalisation based on the value of the company will be determined by an independent assessor, Business Secretary Peter Kyle told the BBC.
+
+"But let me be really clear, there is an alternative here - that we let this business go bust," he said.
+
+"If that business disappears, we will lose the ability for primary steel production in our country, we will become entirely dependent on global supply."
+
+Scunthorpe's skyline has four blast furnaces, all named after English Queens - Bess, Mary, Anne and Victoria. Bess and Anne are the only two still working.
+
+Both are very old - Bess started producing steel in 1938 and Anne in 1954 - and   are approaching the end of their operational lives.
+
+Blast furnaces are designed to run continuously. Allowing them to cool can cause serious damage, and extensive work is required to restart them. Even a planned refurbishment can cost tens of millions of pounds.
+
+The supplies needed to keep them running - coking coal and iron pellets - are also running low.
+
+Turning off a blast furnace without making it permanently unusable is notoriously difficult.
+
+The furnaces operate at extreme temperatures, with iron ore and coking coal poured in at the top and liquid iron extracted at the bottom. This iron goes to the steel plant to make steel.
+
+If a furnace stops working, the molten metal will cool and solidify. This is called a "salamander".
+
+When the furnace is turned back on this metal heats up again and expands which can crack the furnace.
+
+A so-called "Salamander Tap" process can be used to temporarily shut down a blast furnace by drilling a hole to remove any remaining hot metal. However, this can be a dangerous process.
+
+There are 1,160 businesses in the UK steel industry, directly supporting 40,000 other firms, according to the House of Commons Library., external
+
+Tata Steel at Port Talbot in Wales was once the UK's largest virgin steel producer but it turned off its blast furnace in September 2024, saying it was losing Â£1.7m a day. 
+
+An agreement with the UK government was reached which saw it commit Â£500m to help the company move to greener forms of steelmaking.
+
+Other steelmakers in the UK include Liberty Steel, Celsa, Marcegaglia and Outokumpu.  
+
+Liberty Steel also has a plant in Scunthorpe that is facing closure. The government took control of its Speciality Steels UK (SSUK) division in August last year, and agreed to cover the ongoing wages and costs of the plant while a buyer is sought.
+
+In 2024 the UK steel industry contributed Â£1.7bn to the UK economy -  equivalent to 0.1% of total UK economic output and 0.8% of manufacturing output.
+
+The latest figures for 2023 show the UK produced 5.6 million tonnes of crude steel, or 0.3% of the world's total. In comparison, China produced more than 1,000 million tonnes, 54% of global production.
+
+The EU produced 126 million tonnes of steel in 2023, about 7% of the world's total. Compared with EU countries, the UK ranked as the eighth largest steel producer, after Germany, Italy, Spain, France, Austria, Poland and Belgium.
+
+In 2024, the UK imported nearly 7 million tonnes of steel. About two-thirds of that came from the EU.
+
+The Netherlands, Spain and Germany were the top three countries of origin for imports of finished steel in 2024, according to industry body UK Steel.
+
+The UK also gets some steel from Asia, from countries such as India, South Korea, Vietnam and China.
+
+British Steel taken into public ownership to protect 'vital' UK supply
+
+China hits out at British Steel nationalisation
+
