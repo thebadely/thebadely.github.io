@@ -1,0 +1,63 @@
+---
+layout: post
+title: "Big News: Chris Mason - Burnham is fifth PM in four years - now he'll try to buck the trend"
+date: 2026-07-19T23:53:59
+author: "badely"
+categories: [News]
+tags: []
+excerpt: "Determined to hit the ground running, the former mayor hopes to maintain the leadership style he adopted in Manchester."
+image: assets/images/faef071634fdf427298873cd24e98c51.jpg
+---
+
+Let's dive into the details: By lunchtime today, the UK will have its fifth prime minister in four years.
+
+No other sentence can so pithily summarise the nature of British politics right now than that one.
+
+In the summer of 2022 Boris Johnson was on his way out, but still in office. Since then there has been Liz Truss, Rishi Sunak and Sir Keir Starmer.
+
+Little wonder Andy Burnham will say later, we are told, that he is "acutely conscious" of this churn at the top. His critics, within the Labour Party and beyond it, may allow themselves a wry smile at that, given they would argue he has been agitating for this moment for ages.
+
+In the post-pandemic, post-Brexit 2020s, when for so long so many have felt like life is getting harder, the national mood is impatient and political support is fragmenting.
+
+The consequence of that in recent years has meant those in government have been unpopular.
+
+That is the backdrop to Burnham's arrival in Downing Street, just as it was for Sir Keir Starmer 746 days ago - on another sunny July day, just two years back.
+
+That trend of unpopular governments is the thing Burnham is now trying to buck.
+
+He is determined to hit the ground running and, where possible, to maintain the style of leadership he adopted as the mayor of Greater Manchester.
+
+The rules of the House of Commons and meetings with the King, among others, will probably mean he wears a suit more often than he has in recent years.
+
+But other conventions may be very intentionally ditched. I hear, for instance, that he may not bother with a lectern for his first speech as prime minister, outside 10 Downing Street, on Monday.
+
+I also hear he is keen on question and answer sessions with voters around the country - "People's Question Time" as one ally put it.
+
+Before Burnham's big moment will come Sir Keir's departure.
+
+Having spent his final weekend in office at Chequers, the prime minister's country retreat in Buckinghamshire, Sir Keir will give a brief address - with a lectern - before heading to see the King to stand down as prime minister.
+
+I expect he will want to talk up what he sees as his achievements at home, as well as those on the world stage. His team talk with particular pride about getting immigration and NHS waiting lists in England down, lifting children out of poverty and introducing a social media ban for teenage children.
+
+I expect there will be a modest gathering of staff and supporters to see him off. And there will be some overlap between the supporters of the departing prime minister and the supporters of his successor - but, as you would expect, some there for one bit and not for the other.
+
+The afternoon and evening will bring news of appointments to the cabinet, including, we hear, a cabinet minister whose focus will be on artificial intelligence.
+
+A keen eye will be on who gets the big jobs - chancellor, home secretary and foreign secretary. Shabana Mahmood, Wes Streeting, Ed Miliband, Angela Rayner, Lucy Powell to name just five - which roles do they get, and what do the appointments say about how Burnham intends to govern? We will soon find out.
+
+We will also begin to get a sense of the new prime minister's immediate priorities: the cost of living and energy bills among them, and how his new government will work. To what extent will the No 10 operation be beefed up, and how much clout will No 10 North, Burnham's office in Manchester, have?
+
+What beckons in the coming hours is no longer novel, given the turnover of prime ministers recently, but it is no less significant for its increased frequency.
+
+What we learn in the coming hours will have a big bearing on how we are governed in the coming weeks, months and years.
+
+What questions do you have about the new PM?
+
+Burnham to promise 'more breathing room' in first speech as PM
+
+Ruthless plotter? Flip-flopper? Dad dancer? Insiders reveal the real Andy Burnham
+
+Is Burnham promising a new dawn for North Sea oil and gas?
+
+Sign up for our Politics Essential newsletter to keep up with the inner workings of Westminster and beyond.
+
