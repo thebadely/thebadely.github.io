@@ -1,0 +1,17 @@
+---
+layout: post
+title: "Breaking: GB's Shriever claims historic win as extreme weather halts final"
+date: 2026-07-19T14:05:51
+author: "badely"
+categories: [Sports]
+tags: []
+excerpt: "Bethany Shriever of Great Britain wins her fourth elite world title of her career at the UCI BMX Racing World Championships after persistent strong wi"
+image: assets/images/2be728f332027c687acee6a4f5906b0d.jpg
+---
+
+Experts revealed that There was an error
+
+Bethany Shriever of Great Britain wins her fourth elite world title at the UCI BMX Racing World Championships after persistent strong winds on day two forced racing to be halted, with results taken from the last completed rounds and riders ranked based on lap times.
+
+Available to UK users only.
+

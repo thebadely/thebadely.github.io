@@ -1,0 +1,37 @@
+---
+layout: post
+title: "New: Tropical Storm Bertha threatens US Gulf coast"
+date: 2026-07-21T02:42:44
+author: "badely"
+categories: [News]
+tags: []
+excerpt: "Storm surges up to 4ft are possible along parts of the Louisiana and Mississippi coasts, officials say."
+image: assets/images/15ff54d3b0a7c06ca487c509eaa7c523.jpg
+---
+
+According to new developments, A tropical storm swirling in the US Gulf is expected to bring heavy rainfall and a "life-threatening storm surge" to the south-east of the country, according to the National Hurricane Center (NHC).
+
+Tropical Storm Bertha was located about 105 miles (165km) south of Panama City, Florida, carrying windspeeds of 40mph (65 km/h) on Monday.
+
+"Bertha will move near or along the northern Gulf coast during the next several days," said the Miami-based NHC.
+
+The storm could trigger flooding and storm surges in Alabama, Florida, Louisiana and Mississippi as it drifts west towards Texas. Some areas could receive 8in (20cm) of rain by Friday, and "isolated" tornados could spawn in Florida, say forecasters.
+
+In an updated bulletin on Monday evening, forecasters said that the tropical storm may build in strength over the next several days, before potentially making landfall in New Orleans, Louisiana, by Wednesday.
+
+The bulletin added that tropical storm-force winds extended 70 miles outward from the centre of the storm, and that the storm was moving north-west at around 3mph.
+
+"A tropical storm watch is in effect for Ochlockonee River, Florida, westward to the Jefferson/Plaquemines Parish border in Louisiana," forecasters said.
+
+Surges are expected to be between 1-4ft along parts of the Louisiana and Mississippi coastlines, officials said. Flash flooding could occur in urban areas. 
+
+The storm's arrival comes amid sweltering summer heat in the US south.
+
+In New Orleans, sandbags are being distributed to stave off flood waters. Residents have also been asked to ensure that local storm drains are clear. 
+
+Bertha is forecast to weaken back to a tropical depression on Thursday and may dissipate by the end of the week as it nears the Texas coast.
+
+This is only the second named storm of the season, after Tropical Storm Arthur brought some flooding to the US last month.
+
+How a developing El NiÃ±o will impact the Atlantic hurricane season
+
