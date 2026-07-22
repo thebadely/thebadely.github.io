@@ -1,0 +1,67 @@
+---
+layout: post
+title: "Breaking: Boost youth jobs by cutting employers' national insurance, MPs urge"
+date: 2026-07-21T23:17:58
+author: "badely"
+categories: [Business]
+tags: []
+excerpt: "A select committee says it has heard 'overwhelming evidence' that rising employment costs are reducing training and job vacancies."
+image: assets/images/dfb21b46cc9d69e8db7d33fa06eb4fd8.jpg
+---
+
+Experts revealed that Employer national insurance (NI) contributions for all under-25s should be cut to boost job opportunities for young people, a group of MPs has urged.
+
+The Work and Pensions Committee said it has heard "overwhelming evidence" that rising employment costs, including from employer NI, were reducing training and job vacancies, particularly for young people.
+
+Over one million 16 to 24-year-olds are not in education, employment, or training (known as Neet). The committee said an employer NI cut for all under-25s would tackle this "travesty".
+
+The government said it was determined to create opportunities for young people, reform education and support people to stay and progress in work. 
+
+The previous government, which introduced NI increases for businesses last year, said at the time they were making the right choice to fund public services. 
+
+In its 2024 election manifesto, Labour said it would not raise taxes on "working people", specifically income tax, NI, or VAT.
+
+Critics have argued that the employer NI raise ultimately affects workers by limiting job opportunities.
+
+Some employers have argued it has become more difficult to hire young people due to higher minimum wages and increased taxes, such as employer National Insurance contributions, although the Institute for Fiscal Studies (IFS) found there is no clear evidence, external that higher minimum wages have been a "major driver" of young people becoming Neets.
+
+In April last year, the rate that employers pay in NI contributions rose from 13.8% to 15% and the threshold at which they start paying the tax on each employee's salary fell from Â£9,100 per year to Â£5,000.
+
+However, the employment allowance, which is amount employers can claim back from their NI bill, rose from Â£5,000 to Â£10,500.
+
+The committee said employer NI had hit the retail and hospitality sector, which it said tends to employ young people, particularly hard.
+
+It added that there was a "gap" between the government's employment strategy for under-21s and their strategy for under-25s. 
+
+The committee said: "While businesses pay no employer NI contributions for employees under 21 or for apprentices under 25 â unless their salary is above the Â£50,270 threshold â they pay 15% on annual earnings above Â£5,000 for non-apprentices aged 21-24, undermining government schemes to improve employment rates in this age group."
+
+The committee also said there were "policy contradictions", with benefits cuts for people in training undermining the government's drive to encourage apprenticeships, describing the "lack of coherence" as "inexcusable".
+
+The committee's chair Debbie Abrahams said the government needs a unified strategy on youth employment to tackle these contradictions.
+
+"It'll improve policy coherence so no policy unintentionally pulls against attempts to help more young people into work," she said.
+
+The committee welcomed early steps taken to prioritise work and training opportunities for 18 to 24-year-olds, but said the changes were needed to tackle the issue of Neets.
+
+"Even a short spell as Neet in one's formative years can damage mental health, impact future career opportunities and reduce lifetime earnings," said Abrahams.
+
+Former minister Alan Milburn found in his review into youth unemployment that the government spends 25 times as much on benefits for young people than it does on supporting them into work.
+
+The interim report, published in May, also found that one in six young people were on track to become Neets in the next five years without a solution â up from one in eight today.
+
+The report also estimated that Neets cost the UK around Â£125bn a year from a combination of benefit payments and lost economic output.
+
+It said there was no one single factor causing the crisis, citing the Covid-19 pandemic, smartphones, health issues and the current jobs market, which has seen a sharp drop in the number of entry-level positions.
+
+A government spokesperson said: "For too long, governments have paid for failure rather than invested in people's success. 
+
+"We're determined to turn that around by creating real opportunities for young people, reforming education so everyone has a clear path to a good job and providing the support people need to stay and get on in work."
+
+Opportunities shrinking for too many young people, says major report on 'lost generation'
+
+Reeves 'not immune' to criticism over NI hike 
+
+Reeves unveils Â£820m funding to support jobless young people
+
+What does Neet stand for and why does the UK have so many?
+

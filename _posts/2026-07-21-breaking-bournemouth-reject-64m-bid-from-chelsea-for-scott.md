@@ -1,0 +1,57 @@
+---
+layout: post
+title: "Breaking: Bournemouth reject £64m bid from Chelsea for Scott"
+date: 2026-07-21T21:47:05
+author: "badely"
+categories: [Sports]
+tags: []
+excerpt: "Bournemouth reject a £64m bid from Chelsea for Alex Scot after the midfielder turns down a new contract amid growing Premier League interest."
+image: assets/images/515b014e5cd155d0bfc7e807d8c04c68.jpg
+---
+
+Experts revealed that Alex Scott has two years left on his current contract with Bournemouth
+
+Bournemouth have rejected a Â£64m bid from Chelsea for midfielder Alex Scott.
+
+The Cherries made it clear to the Blues that any further approaches would not be welcomed and that they intend to keep hold of one of their star players. 
+
+However, it remains a difficult situation for the club as the England Under-21 international has rejected a new contract that has been on the table for at least two months. 
+
+Arsenal, Manchester United, Tottenham and Manchester City also expressed an interest in Scott earlier in the window. 
+
+BBC Sport reported in June that Arsenal had an approach for Scott turned down by Bournemouth.
+
+The 22-year-old, who joined Bournemouth from Bristol City in 2023 for Â£25m, has two years left on his current deal.
+
+Bournemouth have insisted publicly, directly to the player and to interested clubs that he will remain on the south coast, even on that current contract.
+
+The south coast club are under no pressure to sell after qualifying for the Europa League and generating significant income through the sales last summer of Dean Huijsen, Milos Kerkez, Illia Zabarnyi and Dango Outtara.
+
+They have taken a similar stance with highly rated forward Junior Kroupi, who is attracting interest from Arsenal and Tottenham.
+
+Brazil international Rayan is also not expected to leave and has given no indication that he wants to, having only joined the club in January.
+
+Chelsea interested in former Man City defender Stones
+
+Villa in talks to sign Chelsea's Garnacho
+
+Why Chelsea have signed so many Man City academy graduates
+
+Scott and Kroupi are with the squad for new manager Marco Rose's pre-season training camp in Austria, with Rayan due back at a later date having played for Brazil at the World Cup.
+
+Scott was selected in his first England squad last November and was then called into Thomas Tuchel's extended pre-World Cup training camp in Florida but is yet make an appearance at senior international level.
+
+In a busy Premier League midfielder market this summer, Morgan Rogers has completed a Â£117m move from Aston Villa to Chelsea, while Nottingham Forest's Elliot Anderson is set to join Manchester City for Â£116m.
+
+Tottenham have spent Â£100m on Newcastle's Sandro Tonali and Â£85m on West Ham's Mateus Fernandes.
+
+Scott joined Bristol City from Guernsey FC in 2020, going on to make 91 appearances for the Championship side in all competitions.
+
+Having been named the division's young player of the season in 2022-23, he joined Bournemouth, where he has made 89 appearances and scored six goals.
+
+Chelsea sign Â£117m Rogers - what will he bring?
+
+Why are Premier League transfer fees soaring?
+
+How the World Cup has affected your Premier League team
+

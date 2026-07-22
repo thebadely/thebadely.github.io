@@ -1,0 +1,91 @@
+---
+layout: post
+title: "Latest: Carney looking at 'all options' as Trump announces 50% tariffs on Canada"
+date: 2026-07-21T17:33:22
+author: "badely"
+categories: [Business]
+tags: []
+excerpt: "The duties mark a major escalation in trade tensions between the North American neighbours."
+image: assets/images/ff0560ea206be5577c94c868e896d4e0.jpg
+---
+
+Let's dive into the details: This video can not be played
+
+Trump: 50% tariffs response to Canada's treatment of US farmers
+
+US President Donald Trump has imposed a 50% tariff on a wide range of goods imported from Canada, in retaliation for what he called "unequal treatment" of US cars, dairy and alcohol. 
+
+Everyday consumer items like wine and hockey sticks, as well as industrial goods such as cement, are on the target list. Several key exports, though, will be spared, including energy, potash, critical minerals and fish. 
+
+Prime Minister Mark Carney said he had spoken to Trump and both leaders agreed to "intensify" trade talks in a bid to calm growing trade tensions between the North American neighbours.
+
+But he warned "all options" were on the table in terms of how Canada could respond to the fresh tariff threat.
+
+Since the tariff war broke out more than 18 months ago, Carney said, Canadians have "stood together" by buying home-produced goods and agreeing new trade routes with other countries.
+
+"[The] country is stronger, stronger because we are united, and we will remain united," he told reporters.
+
+Tensions between the major trading partners have been simmering since Trump returned to office in January last year and unleashed a wide-ranging global programme of tariffs, sometimes to pursue objectives not directly linked to trade. 
+
+Tariffs are taxes on imported goods that are paid to the government by companies bringing in the foreign products.
+
+Asked about the latest tariffs, which the White House says will take effect in 30 days, on Tuesday, President Trump said Canada had been "very, very tough on us over the years" and  "no other presidents done anything about it".
+
+"I love Canada, I love the people of Canada, many friends that live in Canada," he said. "Without us, there's no way they can survive."
+
+The latest move by Trump comes after the US Supreme Court ruled earlier this year that many of the tariffs imposed globally under emergency powers were illegally enacted. The president has since sought other legal avenues to push through his flagship trade policy, as seen in Monday's announcement.
+
+Trump has said the levies will boost American manufacturing and jobs, but some economists have warned that higher charges on imported goods risks pushing up prices for consumers.
+
+This new round of duties on Canadian goods has also fuelled speculation about a potential wider tariff announcement by the US on countries across the world. US Trade Representative Jamieson Greer said on Tuesday that he expected to "see some action soon", when asked on CNBC about the possibility of forthcoming levies.
+
+Canada, which is one of the US's closest trading partners, was one of the few countries to retaliate last year against Trump's tariffs, placing a 25% levy of its own on about C$30bn (Â£16bn; $21.7bn) worth of US goods. 
+
+Carney later dropped some of them.
+
+The new US tariffs add to trade barriers already in place between the two nations.
+
+The US has been maintaining active tariffs ranging from 15% to 50% on Canadian steel, aluminium and copper. It also charges a 35% tariff on Canadian softwood lumber, alongside a 25% tax on non-US parts in cars. 
+
+Meanwhile Canada has its own 25% counter-tariff on selected imports of American steel, aluminium and vehicles.  
+
+A White House fact sheet said the new tariffs announced this week applied regardless of whether the product was included under the existing free trade agreement between Canada, the US and Mexico, known as the USMCA.
+
+But Carney said the move was the "latest in a series of unilateral US trade actions that began with the US imposing a series of tariffs in direct violation" of the USMCA.
+
+The prime minister also cited "threats to Canadian sovereignty", possibly in reference to Trump's repeated calls to make America's northern neighbour the 51st US state.
+
+Ontario Premier Doug Ford said that if the US goes ahead with its latest threat, "Canada should respond tariff for tariff, dollar for dollar".
+
+The BBC has contacted the White House and the Canadian government for further comment.
+
+Canadian wildfires rage as Trump warns Carney again over 'poisoning' US air
+
+US blocks long-term renewal of North American trade deal
+
+US announces new tariffs over forced labour concerns
+
+As part of his executive action announcing the new tariffs, Trump issued three proclamations, relating to to cars, dairy products and alcohol.
+
+Cars: Trump's proclamation pointed to Canada charging a tax on imports of US motor vehicles and parts that are not covered under USMCA. He argued it was "unreasonable" and that Canada has discriminated against the US by not charging other countries a similar tax. Automotive manufacturing in North America is highly integrated between Canada, the US and Mexico.
+
+Dairy: The administration says Canada has taken protectionist measures on cheese, discriminating against US producers and putting the country as a whole at a disadvantage.  In Canada, dairy products that exceed its importation limits are charged a tariff up to 300%.
+
+Alcohol: The boycott of US alcoholic drinks by most Canadian provinces has become a major sore point for the Americans since it started last year, but Canadian premiers have said that the boycott will be lifted if the US removes its tariffs on key Canadian sectors, including metals and automobiles.
+
+Monday's announcement also comes in the wake of President Trump's threat to impose tariffs over Canadian wildfire smoke drifting into US cities, though this issue has not been officially mentioned as the justification for the move.
+
+Earlier this year, the US chose not to renew the USMCA in its current form - while Canada and Mexico sought a renewal - as it aimed to make changes to the agreement, which was reached during Trump's first term in office. 
+
+Despite the recent US action, the treaty will continue to govern North American trade over the next decade on a rolling basis, but it will require annual reviews.
+
+The recently announced tariffs highlight the Trump administration's opposition to USMCA, said Michael Devereux, a professor of economics at the University of British Columbia. 
+
+"It is a significant escalation because it directly targets goods that were previously exempt under the US, Canada, Mexico trade agreement that President Trump negotiated and signed himself in 2018," he added.
+
+In February, the US Supreme Court struck down sweeping international tariffs imposed by Trump through the International Emergency Economic Powers Act (IEEPA) of 1977, saying he had exceeded his authority under a law reserved for national emergencies. 
+
+The White House then vowed to invoke other mechanisms to impose import taxes, and in recent week has announced fresh tariffs on a range of countries under a different law commonly called "Section 301". That included a new levy on Brazil, which has vowed to retaliate.
+
+What tariffs has Trump introduced and why?
+
