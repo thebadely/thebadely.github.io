@@ -1,0 +1,83 @@
+---
+layout: post
+title: "Big News: OpenAI says its AI went rogue and launched 'unprecedented' cyber-attack"
+date: 2026-07-22T11:40:11
+author: "badely"
+categories: [Business]
+tags: []
+excerpt: "It is one of the first publicly disclosed cyber-attacks carried out by AI without direct human involvement."
+image: assets/images/b187417de7356c4efaed6f27259c4cc3.jpg
+---
+
+It has been recently reported that This video can not be played
+
+Watch: Why is the OpenAI cyber-attack so alarming?
+
+OpenAI has revealed some of its most advanced AI models went rogue and hacked a start-up after it lost control of them during a security test.
+
+The ChatGPT-maker said its agent - an AI system which can operate alone after human instruction â was being tested in a controlled environment but, after finding weaknesses, was able to escape the test limits.
+
+They targeted Hugging Face, one of the world's largest hubs for sharing AI models, gaining access to some internal company systems.
+
+OpenAI said the incident was "unprecedented", external, and it was conducting an investigation alongside Hugging Face, whose boss Clement Delangue said in a post on X it was "mind-blowing that all of this happened autonomously".
+
+"The investigation is ongoing, and we'll share more learnings from what might be the first incident of its kind," Delangue added.
+
+A government spokesperson said the UK's AI Security Institute was studying the behaviour from the AI system seen in the incident and was continuing to work with OpenAI and other labs to improve safeguards.
+
+They said organisations should step up their cyber-defences by taking steps such as enrolling in the government-backed Cyber Essentials certification scheme.
+
+Gina Neff, head of the Minderoo Centre for Technology and Democracy at the University of Cambridge, told BBC Radio 4's Today programme that the security tests - called sandboxes - are "supposed to be secure environments where you can see what the models are capable of".
+
+"In this case, it looks like OpenAI didn't make a secure enough sandbox," she added.
+
+Instead, the agents created their own cyber-attack against the sandbox itself, finding a vulnerability which allowed them to escape the restrictions.
+
+Once outside, the AI identified Hugging Face as a likely source of the answers they were seeking in the test, and tried to gain access.
+
+Neil Lawrence, Professor of machine learning at Cambridge University, called it an "impressive feat", but cautioned it "falls well within the known capabilities of the current generation" of high-powered AI models.
+
+He pointed out that OpenAI is looking to list itself on the stock market, and faces intense pressure from rival firm Anthropic, which has made headlines with its own powerful AI tool, Mythos.
+
+"OpenAI are now playing catch-up, they are trying to demonstrate their own systems' capabilities in cyber-security."
+
+"It shows us that OpenAI are not capable of safely deploying their own technology," he added.
+
+In its initial disclosure of the hack on 16 July, external, Hugging Face said it was still assessing whether any customer or partner data was affected and would contact affected parties if necessary.
+
+It said it has now closed the vulnerabilities highlighted by the incident and rebuilt the affected systems.
+
+"Autonomous, AI-driven offensive tooling is no longer theoretical," it said. 
+
+"Defending an online platform now means treating the data and model surface as a first-class attack surface, and using AI on defence to keep pace. 
+
+"We will keep investing there, and keep sharing what we learn."
+
+The incident has prompted fresh questions about the capabilities of advanced AI systems and whether existing safeguards are sufficient as the technology becomes more powerful.
+
+Spencer Starkey, an executive at cyber-security firm SonicWall, told the BBC the incident made it clear organisations needed to "step up" their own defences and "treat cyber resilience as a core operational priority".
+
+"The uncomfortable truth is that too many organisations are still defending at human speed while adversaries are escalating to machine speed," he said.
+
+Meanwhile Travis Lelle, principal security engineer at cyber-security consulting firm Guidepoint Security, said the update marked a "sobering moment in cyber-security".
+
+"This highlights a known asymmetry," he said.
+
+"Offensive agents are unconstrained, while the best defensive tools are locked behind guardrails that cannot understand context."
+
+But Jake Moore, global cyber-security advisor at ESET, said the announcement could also have a competitive dimension.
+
+He argued OpenAI may be seeking to highlight its own AI capabilities as rival Anthropic attracts growing attention for its Claude Mythos model.
+
+"It does pose the question that OpenAI are potentially chasing the marketing dream of Anthropic of late," he said.
+
+It comes a week after Chinese AI start-up Moonshot unveiled Kimi K3 - a massive new artificial intelligence model it said could rival top US firms.
+
+Apple sues OpenAI, its employees claiming theft of trade secrets
+
+What is Claude Mythos and what risks does it pose?
+
+How to stop AI agents going rogue
+
+Sign up for our Tech Decoded newsletter to follow the world's top tech stories and trends. Outside the UK? Sign up here.
+
