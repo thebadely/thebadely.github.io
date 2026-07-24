@@ -1,0 +1,79 @@
+---
+layout: post
+title: "New: Airport drop-off fees up by a third - here are the priciest"
+date: 2026-07-23T11:25:34
+author: "badely"
+categories: [Business]
+tags: []
+excerpt: "The cost of parking closest to the terminal has hit £10 at two of the UK's airports."
+image: assets/images/a3d97455ba8805adc6068f27939188f3.jpg
+---
+
+Experts revealed that Gatwick charges Â£10 for 10 minutes at its drop-off point
+
+Drop-off fees at the UK's major airports have risen by a third on average since last summer, new analysis has found.
+
+The RAC motoring group looked at the cost of pulling up to the closest point to terminals at the 20 busiest airports, 16 of which had put up their prices since last year.
+
+London airport Gatwick topped the list by charging a "farewell fee" of Â£10 for 10 minutes, after lifting it by Â£3 from last year. Stansted also charges Â£10 but drivers are allowed 15 minutes at its "express set down" outside departures.
+
+Airports UK, the trade body, said that free drop-offs were available and fees were part of airports' business models and climate change objectives.
+
+The RAC said that the price of dropping people off in "kiss-and-fly" areas rose by an average of Â£1.70 to Â£7 compared to this time last year.  
+
+London City Airport, which only started making people pay this year, is the most expensive on a per-minute basis. Its Â£8 charge for five minutes works out at Â£1.60 per minute.
+
+There have been increases in Northern Ireland too. At Belfast International Airport, it is now Â£5 for 10 minutes in the drop-off zone, up Â£2 on last year.
+
+In contrast, none of the top 10 airports in the EU charge for drop-offs, according to RAC research.
+
+The RAC acknowledged UK airports generally offered other options for setting people down at locations further from the terminal, sometimes with free shuttle buses.
+
+But the motoring organisation's senior policy officer, Rod Dennis, said "having a captive audience should be no excuse for these 'farewell fees' â especially when they're completely at odds with how major airports around the world operate". 
+
+He said drivers needed to be especially careful of barrierless "park now, pay later" drop-off zones, as they could face a parking charge notice if they failed to pay online or by phone within a certain period of time.
+
+The Aviation Environment Federation (AEF) campaign group defended the drop-off fees.
+
+It said there needs to be an incentive for people to use other forms of transport to reduce congestion and air pollution around airports, which it said can cause a range of childhood illnesses such as asthma.
+
+Celeste Hicks, policy manager at AEF, said: "Any parking charges or drop-off charges could be reinvested by laying on local bus and rail services instead of lining the pockets of airport shareholders."
+
+Parking directly in front of the terminal at Aalborg airport in Denmark is free for the first hour
+
+Airports want more people to arrive by trains and buses.
+
+When Transport Secretary Heidi Alexander approved Gatwick's plans for a second runway, one requirement was to have 54% of passengers using public transport.
+
+Heathrow may also have to act to try and put people off driving to get a third runway.
+
+A London Gatwick spokesperson said drop-offâ¯charges were aimed at disincentivising "kiss-and-fly" trips and data indicated it was "influencing passengers to seek alternative options".
+
+The airport links to 120 train stations across London and the south east, with eight local bus routes running 24/7.
+
+Passengers can still beâ¯dropped off for free at long-stay car parks, with a free shuttle bus to the terminal and Blue Badge holdersâ¯areâ¯exempt from the charge, the spokesperson said.
+
+A spokesperson for Airports UK said where drop-off fees are charged, they are "necessary to manage congestion, and the traffic and air pollution concerns of our local communities, as well as our climate change objectives". 
+
+"These are issues that airports are mandated to manage by the government and local authorities."
+
+But Clive Wratten, chief executive of the Business Travel Association, said fees were adding to businesses' costs.
+
+"First it was environmental [reasons]. Then congestion management. Then funding new routes. Now apparently it is about offsetting tax rises," he said. 
+
+"The goalposts have moved so many times now that the credibility of any justification has long since gone."  
+
+Check fees and how to pay them before setting off. Blue Badge holders are sometimes exempt.
+
+Look for cheaper or free alternatives, for example car parks slightly further away which have shuttle buses to the terminal.
+
+Research possible public transport alternatives.
+
+Keep an eye on the time; make your goodbyes quick to avoid overstaying the limit.
+
+Check where a taxi will drop you and whether they include the fee in their fare.
+
+Tell us your experience of airport drop off fees. 
+
+Get our flagship newsletter with all the headlines you need to start the day. Sign up here.
+

@@ -1,0 +1,65 @@
+---
+layout: post
+title: "New: Google and Tesla shares plunge as AI spending rattles markets"
+date: 2026-07-23T20:42:33
+author: "badely"
+categories: [Business]
+tags: []
+excerpt: "As major tech companies race to capitalize on a new wave of AI technology, investors wonder when financial benefits will appear."
+image: assets/images/f1fd4e060b39acc52cfef8ed2d7c3ad7.jpg
+---
+
+Here’s what you need to know: Google and its parent company Alphabet have spent huge amounts on AI
+
+Shares of Google and Tesla plunged on Thursday as investors were spooked by the ever-increasing amounts of money being spent on artificial intelligence (AI).
+
+Google's parent company Alphabet saw its share price drop by nearly 7%, while Elon Musk's electric vehicle-maker Tesla saw its stock fall 14.5%.
+
+Both reported negative free cash flow - the money retained after paying for operations and investments - in financial results on Wednesday, alongside promises to spend billions more in the months and years to come.
+
+It was the first time Google had seen the cash metric turn negative since it became a public company in 2004, according to its financial records.
+
+As major tech companies race to capitalize on a new wave of AI technology, investors are wondering when financial benefits will show up. 
+
+Alphabet now expects to spend as much as $205bn this year, mainly on AI projects and infrastructure, a $15bn increase from a spending estimate it gave just three months ago. 
+
+Meanwhile, Tesla expects this year to spend up to $25bn on unspecified projects.
+
+"There is still a healthy degree of scepticism about the ability of these investments to generate a commensurate level of return," Russ Mould, an investment director at AJ Bell, said. 
+
+Alphabet's combined quarterly revenue hit $119.8bn, up 23% compared with the same period last year.
+
+Though Google parent Alphabet saw its business continue to grow in recent months, heavy spending on artificial intelligence (AI) infrastructure pushed its leftover cash into negative territory.
+
+The company's free cash flow came in at negative $5.9bn (Â£4.3bn) for the first time in at least a decade, according to its past financial records.
+
+Its stock quickly fell 4% in after-hours trading.
+
+Anat Ashkanazi, Google's chief financial officer, noted on a call with financial analysts that the company had recorded negative free cash flow due to growing capital expenditures, essentially all of which were related to AI spending.
+
+She said the company spent $45bn in the second quarter, with 60% of the cost going towards servers and the remaining 40% going towards data centres. 
+
+Alphabet's capital spending was $36bn in the first quarter of this year.
+
+Ashkanazi said on the call that when it comes to AI, "the demand still outpaces that investment". 
+
+"As long as we see these attractive opportunities to invest, we will continue to invest."
+
+Sundar Pichai, Google's chief executive, said the technological shift to AI tools and capabilities still "feels like early innings in a shift across multiple areas" and the company's plans around generating financial returns on its spending were "disciplined". 
+
+"What I see with what you can do with frontier capabilities, there is still a lot of work left to do to translate that into experiences for our users. So that looks like extraordinary opportunities with extraordinary returns."
+
+Rachel Winter, a partner at the wealth management firm Killik & Co, said there was some surprise among investors about how much Google was spending.
+
+"These are huge numbers. The fact that the shares dropped when the results came out, that suggests there is a little bit of concern about those levels."
+
+Tesla reported negative free cash flow on Wednesday of $1.1bn for the second quarter due to its own increasing investment costs.
+
+It was the company's first negative showing of leftover cash in two years, according to its financial records.
+
+Tesla's plans to spend $25bn this year is more than double its capital spending in 2025.
+
+Vaibhav Taneja, Tesla's chief financial officer, said on Wednesday that Tesla was in "a big investment cycle" and its spending would probably increase further over the next three years.
+
+Amazon shares fall as it joins Big Tech AI spending spree
+

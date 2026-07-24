@@ -1,0 +1,109 @@
+---
+layout: post
+title: "Latest: Why Rogers and Palmer will thrive together in Alonso's Chelsea"
+date: 2026-07-24T05:28:55
+author: "badely"
+categories: [News]
+tags: []
+excerpt: "Why Morgan Rogers' skillset means he and fellow attacking midfielder Cole Palmer will prosper in Xabi Alonso's Chelsea."
+image: assets/images/515b014e5cd155d0bfc7e807d8c04c68.jpg
+---
+
+Experts revealed that Good friends Palmer (left) and Rogers are now team-mates
+
+Morgan Rogers was quick to mention one of his closest friends, Cole Palmer, when he signed for Chelsea from Aston Villa.
+
+"We've been speaking about this for a while - that we would always love to play together," said the Â£117m attacking midfielder.
+
+"He's been non-stop ringing my phone, texting me, and I can't wait. That's probably the most special thing, playing with one of your best friends and being around him every day. It's something I'm really excited about."
+
+Both men might be keen to play together... but can new Chelsea manager Xabi Alonso find the system to accommodate two such similar profiles?
+
+We take a closer look at Rogers' skillset and assess how Alonso might set up his side this season.
+
+It is difficult to clearly define Rogers by a fixed position.
+
+As with all players, getting the best from them means appreciating the wider role they are capable of. A player's ideal role can also change depending on the players around them and the opposition's set-up.
+
+Aston Villa manager Unai Emery gave Rogers a major role in the side's recent successes, something that contributed to his hefty transfer fee.
+
+Emery's system is built upon defensive solidity, often in a 4-4-2 shape off the ball. Villa often spent long periods without the ball before attacking into large areas of space at pace.
+
+This is a style of play that suits Rogers, who combines impressive ball-striking with standout athleticism.
+
+Last season, he generally played on the left of a 4-2-3-1, narrowing in from the wing and leaving the left-back to provide the width.
+
+From here he often opted to curl the ball into the far post with his stronger right foot, but could just as easily drag his shot inside the near post at the last moment.
+
+Although Rogers often defended as a wide midfielder in a 4-4-2 under Emery, he would look to get into positions such as this one to shoot from
+
+Out of possession, Rogers usually defended as a left midfielder in Emery's 4-4-2 but is capable of pressing in the front two alongside a traditional number nine.
+
+His positional versatility allows him to play as a narrow winger on both the left and right side of attack, before making runs akin to a centre-forward.
+
+He consistently injects pace into his team's attack with his direct nature both with and without the ball.
+
+Alonso's system has overarching principles, with the Spaniard seeking to dominate the ball and set up attacks in the opponent's half for long periods. 
+
+This is different to the approach that got the best out of Rogers for Villa.
+
+Although this might raise some alarm bells, last season there was a rise in man-to-man pressure high up the pitch - making playing out from the back tougher.
+
+The best teams in the league, in response, have prioritised players who are capable of holding the ball up, carrying the ball over big distances, and able to beat their marker one against one.
+
+With opposition sides matching up man-for-man, the game then becomes a series of one-against-one duels, so strong players who can beat their defender are exceptionally valuable.
+
+All of these descriptions line up with Rogers' strengths.
+
+In the Europa League final in May, in order to beat Freiburg's pressure, Aston Villa could chip the ball into Rogers, who showed good hold-up play
+
+Against intense pressure, teams have opted to play longer passes into their forwards, skipping build-up altogether. Rogers is more than capable of receiving such direct passes.
+
+Although a possession-based coach, Alonso has shown the flexibility and intelligence to look for solutions against man-to-man pressure. 
+
+The Chelsea manager is associated with a short passing game, but after Leverkusen lost the 2024 Europa League final to Atalanta - who man-mark intensely across the pitch - he showed pragmatism in his analysis.
+
+"We probably tried to play too many passes in the first phase, when we should have tried to attract the first player and then go long a bit more," he said.
+
+Rogers gives him a solution to the problems of a tactical landscape that has an emphasis on man-to-man pressing.
+
+In the 2024 Europa League final, Atalanta beat Alonso's all-conquering Bayer Leverkusen 3-0. Leverkusen initially tried to play out against Atalanta's intense press but as the game progressed, Alonso encouraged his team to play long
+
+Understanding Alonso's set-up can help to explain how Rogers and Palmer could thrive together.
+
+Irrespective of whether the Spaniard sets Chelsea up in a back four or a five, his team will move in the same shape in attacking possession, namelyÂ 3-2-2-3 or 3-2-5.
+
+Alonso's Leverkusen in possession usually had a back three, a narrow midfield two, and a front five encouraged to take turns and drop deep to support players on the ball. The two wide players are the wing-backs and the three central players are Leverkusen's striker and two attacking midfielders
+
+Many of Rogers' best moments at Villa were in the inside-left channel. Alonso is likely to try to position him there when Chelsea have the ball. 
+
+This means width on the left would have to come from another player - either a wing-back if Chelsea defend with a back five or a winger if it is a back four. In the latter formation, Rogers would be positioned more centrally from the start. 
+
+One of the reasons Alonso will have championed the Rogers signing is his ability to play across the attack -Â most recently demonstrated as a right winger for England against Argentina. 
+
+Here, Rogers is in a more central position coming in off the wing. Left-back Lucas Digne has pushed up to provide width with Villa in a 3-2-5 shape for this move - a similar manner to Alonso's preferred in-possession shape
+
+Palmer similarly thrives in-field - but on the right half of the pitch. Both players in possession could be positioned alongside each other in the middle of the pitch in a 3-2-2-3 behind a striker such as Joao Pedro.
+
+Rogers can take advantage of big spaces, but his combination play, central passing, and ball-striking from the edge of the box also mean that when he is surrounded by players on a similar wavelength - such as Palmer - it is a potent strategy for playing through structured defences. 
+
+A key part of Alonso's game model is prioritising short passes to ensure his players are well placed to counter-press if the ball is lost. 
+
+Rogers' combination play plus his physicality make him a good fit for this plan and his ability to repeatedly make runs in behind is something Palmer will seek to exploit.
+
+During Alonso's spell at Real Madrid we can see five players across the attacking line despite the team starting with a back four. The close proximity of four players around the ball is noticeable, ready to press and win the ball back if they lose it. This is something Rogers can do well
+
+In Alonso's preferred 3-2-2-3 when in possession, Rogers in the left number 10 position and Palmer in the right number 10 position is likely to work best.
+
+To get them in these areas in attack, Alonso can start with them in those positions, ahead of a back five using wing-backs either side of them. This was his usual formation during his success at Leverkusen.
+
+When starting from a 4-2-3-1, this can be achieved with one of the two starting as a number 10 with the other inverting centrally from the wing, with a full-back pushing up on that flank. Width on the other side would be held in this situation by a winger. 
+
+Whether leaning into the longstanding chemistry of the duo, who won the FA Youth Cup together at Manchester City in 2020, will bear fruit remains to be seen.
+
+What is certain is that Rogers is a versatile, Premier League-proven player whose skillset has synergy with many of the aspects required in what Alonso will try to do at Chelsea.
+
+Garnacho, Rogers and two clubs trying to balance the books
+
+Garnacho joins Villa on loan from Chelsea
+

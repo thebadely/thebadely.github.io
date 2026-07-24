@@ -1,0 +1,61 @@
+---
+layout: post
+title: "Breaking: Arsenal sign Greece forward Tzolis for £34m"
+date: 2026-07-23T14:32:50
+author: "badely"
+categories: [Sports]
+tags: []
+excerpt: "Arsenal sign 'extremely versatile attacking player' Christos Tzolis from Club Brugge for £34m."
+image: assets/images/3a3d4d851c6c3cdca0dae79ebb072228.jpg
+---
+
+Let's dive into the details: Christos Tzolis has previously played for Norwich City
+
+Arsenal have signed "extremely versatile" Greece forward Christos Tzolis from Club Brugge for Â£34m.
+
+The 24-year-old has joined on what the Premier League champions describe as a long-term contract.
+
+Tzolis scored 43 goals and provided 45 assists in 108 appearances for Club Brugge.
+
+He joins Arsenal after the departure of Belgium forward Leandro Trossard to Besiktas earlier this month.
+
+Arsenal sporting director Andrea Berta said: "Christos is an extremely versatile attacking player who naturally operates on the left but is comfortable across the front line.
+
+"He's an excellent finisher with both feet, thrives in tight spaces, and possesses incredible technical ability.
+
+"Christos has produced outstanding numbers in terms of goals and assists over the last three seasons, and he's a player who will raise the technical level of our squad, while bringing positive energy, enthusiasm, and a strong mentality to our team."
+
+Tzolis, who started his career at PAOK, made 30 appearances for Norwich between 2021 and 2024, scoring three goals.
+
+During his time at the club he had spells on loan at Twente and Fortuna Dusseldorf before joining Club Brugge.
+
+Tzolis, who made his Premier League debut for the Canaries in a 1-0 defeat at Arsenal in September 2021, said he had a "nice conversation" with Arsenal boss Mikel Arteta.
+
+"We talked about everything - about the club, about myself, about his plans, about me of course, about the team," he said. "It was only positive things.
+
+"I'm a direct player, I go for goals or assists. That's my point of view as an attacker, as a winger.
+
+"I'm always hungry to score or to give the final pass to my team-mates. And I can say I work hard for the team, also in the defensive part."
+
+Tzolis arrives in north London on the back of the best season of his career, but it has taken him time to show his quality.
+
+The Greek forward struggled to make an impact during a three-year spell at Norwich City, scoring three times in 30 appearances, but rebuilt his career away from Carrow Road.
+
+After impressing on loan in the 2023-24 season at German second-tier side Fortuna Dusseldorf, where he scored 24 goals in 35 games, he left Norwich for Club Brugge in 2024 and quickly established himself as one of Belgium's most productive attacking players.
+
+Last season, the 24-year-old was directly involved in a league-high 40 goals, scoring 17 times and providing 23 assists as Club Brugge were crowned league champions.
+
+His influence extended beyond goals and assists. Tzolis created more chances (135) than any other player in Belgium's top flight, and also recorded the most progressive carries (359) and successful dribbles (40).
+
+He also proved he could deliver against Europe's leading clubs, scoring against Atalanta and Atletico Madrid in the Champions League, while registering an assist against Barcelona.
+
+Predominantly a right-footed left winger, Tzolis is comfortable across the frontline and possesses quality from set-pieces. Of the 135 chances he created in the Belgian Pro League across the 2025-26 campaign, 52 came from dead-ball situations (38.5%).
+
+Although Trossard recorded more goal involvements in last season's Champions League for Arsenal, the Greece international produced almost twice as many chances (13 to seven) and completed more passes in the final third (138 to 80).
+
+Arsenal set to make Â£70m bid for Newcastle's Guimaraes
+
+Saliba to miss extended period with back injury
+
+Ask about Arsenal - what do you want to know?
+

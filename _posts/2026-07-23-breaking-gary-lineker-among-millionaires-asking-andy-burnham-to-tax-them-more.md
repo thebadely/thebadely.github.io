@@ -1,0 +1,71 @@
+---
+layout: post
+title: "Breaking: Gary Lineker among millionaires asking Andy Burnham to tax them more"
+date: 2026-07-23T16:20:45
+author: "badely"
+categories: [Business]
+tags: []
+excerpt: "A group including the former England footballer write to the new PM telling him 'we can afford it'."
+image: assets/images/f11999f40799789accfaa74a6f38201c.jpg
+---
+
+Here’s what you need to know: (left to right) Gary Lineker, Val McDermid and Gary Stevenson are some of the signatories asking to be taxed more.
+
+Millionaires including former footballer Gary Lineker and music producer Brian Eno have written to new prime minister Andy Burnham asking to be taxed more.
+
+In an open letter, 120 well-off Britons told Burnham: "We can afford it. We're not talking about higher taxes on those who get up and go to work for their income every day, but on the very richest whose income is derived from the wealth they hold."
+
+Organised by Patriotic Millionaires, the letter said it would lead to a more equal society, and urged a "devolution of wealth and power from the very richest". 
+
+People can already give money or stocks voluntarily to the Treasury using a donation facility.
+
+Conservative leader Kemi Badenoch said Lineker is "very welcome to pay more tax he can write a cheque to the Treasury, no one is stopping him."
+
+Patriotic Millionaires support a 2% tax on wealth over Â£10m.
+
+"Millionaires are a patriotic bunch," the letter states. "We love this country and we want it to succeed.
+
+"But success requires investment and a primary source of untouched capital investment is sitting with us, in untaxed potential."
+
+Other signatories include Richard Curtis, who wrote the film Notting Hill, and Ian Gregg, the former managing director of Greggs and son of the bakery chain's founder. Scottish crime writer Val McDermid and former financial trader-turned-equality campaigner Gary Stevenson also signed the letter.
+
+Chief Secretary to the Treasury Emma Reynolds said she would welcome UK millionaires increasing the amount of tax they pay but said any major changes would be announced during a Budget.
+
+"I welcome the fact that people of good means are saying that they want to pay more. They can pay more," she said and pointed to the Treasury's donation link.
+
+The renewed call for higher tax on the wealthy follows a similar campaign in previous years. 
+
+Burnham did not rule out a wealth tax when asked about it by Lineker - formerly the BBC's highest paid presenter -  a few days before he became prime minister.
+
+He suggested he may have "to ask for a little more" tax at some point.
+
+Lineker was paid around Â£1.3m a year before he left the BBC. He is worth a reported Â£30m.
+
+In 2023, Lineker won his appeal against HMRC over a Â£4.9m tax bill, after the UK tax authority pursued him over taxes on income from both the BBC and BT Sport, from 2013 to 2014, and 2017 to 2018.
+
+The latest call from Patriotic Millionaires said there is a "need to embrace a new kind of devolution of wealth and power, from the very richest in order to reinvest back into our greatest asset in every region".
+
+It added that in its own poll, the majority of millionaires wanted a higher tax on themselves. 
+
+"There are a few people left with outdated economic thinking and few others desperate to hold onto every penny they can... Those that can't see past the end of their own self interest have no place in designing a Britain for the future," the letter said.
+
+Musician Brian Eno told BBC Radio Lincolnshire the tax system was "very generous to rich people".
+
+"If you're wealthy you don't pay very much tax but hire a clever bunch of accountants who somehow get you off that," he said.
+
+He also dismissed the idea that lots of millionaires would leave the UK if they were taxed too much.
+
+Musician Brian Eno said the UK tax system was generous to rich people
+
+"That is the story that has always been told by the rich to avoid this but in fact people don't leave that much.
+
+"Of course a few people will," he said, but added that people don't necessarily leave other high-tax countries, such as those in Scandinavia.
+
+He insisted most of his financial peers do want to see better roads and schools and that they don't like seeing people living in extreme poverty, and that many financially support community groups.
+
+Burnham does not rule out wealth tax
+
+Wes Streeting pledges 'wealth tax that works'
+
+Gary Lineker wins appeal over Â£4.9m tax bill
+
