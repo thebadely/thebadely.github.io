@@ -1,0 +1,91 @@
+---
+layout: post
+title: "New: Schools to offer technical subjects to pupils from age 14 in England, Burnham says"
+date: 2026-07-28T16:35:05
+author: "badely"
+categories: [Business]
+tags: []
+excerpt: "The government wants pupils to take courses like AI and manufacturing which are linked to local jobs."
+image: assets/images/f98f847a49ea86fc1fe6066e93b1fb41.jpg
+---
+
+It has been recently reported that Secondary school pupils in England will be able to study subjects like manufacturing and AI in addition to core academic learning under reforms outlined by Prime Minister Andy Burnham.
+
+The government said the courses, which would be available from Year 10, would be linked to local industries and designed to give children a clearer pathway into work.
+
+Data published this year showed more than one million young people across the UK were not in education, employment or training, the highest level in more than 12 years.
+
+Few details have been published about how the new vocational courses would work in practice and it is not clear how they would operate in areas with low industrial activity.
+
+The BBC understands that the government expects the new pathways into work to be up and running in some areas by 2028.
+
+Later on Tuesday, the government also announced a new bursary of up to Â£4,500 for some families who would lose out on money if their children wanted to do an apprenticeship, because the child benefit they would lose out on would be worth more than the apprenticeship starter salary.
+
+Speaking at a train manufacturing site in Derby, Burnham said: "We've had a system built for too long around the university route and it sends a message to some young people that they're some kind of second-class citizens, and it's just not right.
+
+"They need an education system that works for them as well, that offers a path to all young people, that's balanced between academic and technical."
+
+The prime minister said he was "on a mission" to reduce the number of young people not in education, employment or training - known as "Neet" - but declined to put a target date on his ambition.
+
+"The trend is rising at the moment, so the first thing I've got to do is to stop that rise," he said.
+
+"It's hard to put a firm date on the moment when you can say there are fewer than now."
+
+However, shadow work and pensions secretary Helen Whately said while there was a "broad consensus" on improving vocational education, it was "not a big bold announcement".
+
+She told BBC Breakfast: "What's going on there is a drastic shortage of jobs because Labour's policies over the last couple of years have killed job opportunities for young people. This announcement will not solve that."
+
+Under the proposals, pupils would continue to study core maths, English and science but would also have the option of combining the subjects with technical education.
+
+It will include the chance to gain work experience and create connections with local employers, Burnham said, with the government saying the policy will eventually drive down the amount spent on welfare for young people.
+
+While some business leaders welcomed the move, others said youth jobs could be boosted by other means.
+
+Jon White, chief financial officer at building materials firm Huws Gray, said employers were "struggling" with a lack of incentives to hire younger people, pointing to the government narrowing the gap between the national minimum wage for under-21s and the national living wage.
+
+He also said the government should change the rules around how employers can spend the apprenticeship levy. The levy is paid by big employers, with the money raised available to all businesses to help fund apprenticeship training - but White said businesses should be allowed to use it to pay young people's wages as well.
+
+For schools, the Association of School and College Leaders said they welcomed the prime minister's ambition, but warned that schools could face capacity issues as they continued to face tight budgets and implemented radical reforms to special education needs.
+
+The National Education Union said the new proposals would "hit the skids unless there is sufficient investment in schools", while the NAHT school leaders' union called for "greater clarity" about funding and practical details.
+
+Along with the changes to learning, Ofsted will change the way it measures performance and will inspect for technical education, but it is not clear how this will fit alongside national measures designed to hold schools to account.
+
+Tuesday's announcement is the latest in a series of policies in recent years designed to offer a vocational route in education as a counter-balance to high numbers of young people going to university. 
+
+Former prime minister Sir Keir Starmer previously said a technical education should be valued as much as a university degree, scrapping Labour's previous ambition to get half of children to university.
+
+In 2020, T-levels were introduced as a technical education alternative to A-Levels in England, with courses including construction, agriculture and health.
+
+Starmer announced earlier this year that V-levels would be an additional vocational option for students post-16 from 2027.
+
+Where T-levels are a set course broadly equivalent to three A-levels, V-levels would be equivalent to one A-level, allowing students to mix and match academic and vocational subjects.
+
+Burnham says he wants an education system "which gives all young people a clear path in life"
+
+The changes announced on Tuesday will only impact England, but improving access to technical and vocational education has been a common focus for governments in Wales, Scotland and Northern Ireland too in recent years.
+
+The policy will build on local initiatives like the MBacc, or Greater Manchester Baccalaureate, which was launched in September 2024 by Burnham when he was the city's mayor.
+
+It has provided a framework for pupils to pick GCSE subjects in both academic and technical subjects which align with growing local industries, like green energy or digital.
+
+Teenagers under this programme have also been promised more careers advice and work experience that links to seven sectors of work.
+
+Education Secretary Lucy Powell said the announcement marked the "start of a real shared effort with employers, businesses, mayors and councils to design an education system that connects young people to jobs and careers in their local area".
+
+In May, an interim report by former Alan Milburn warned the number of young people not in employment, education or training risked leading to a "lost generation".
+
+That report was published the same day as figures from the Office for National Statistics showed more than one in eight of UK 16- to 24-year-olds were Neet at the start of this year.
+
+Milburn told the BBC the announcement on education would help prevent children becoming Neet by "equipping them with the skills and aptitudes that they're going to need to be successful in the future labour market".
+
+Liberal Democrat education spokesperson Munira Wilson said there had to be provisions to allow pupils flexibility to "change direction and move between 'academic' and 'technical'".
+
+"We must not allow these changes to predetermine children's futures at just 14, baking in disadvantage," she added.
+
+Would a more technical education appeal to you? Whether you're a student, parent or teacher, get in touch. 
+
+Opportunities shrinking for too many young people, says major report on 'lost generation'
+
+'I've applied for more than 400 roles' - how young people are facing the job shortage
+

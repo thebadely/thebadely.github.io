@@ -1,0 +1,75 @@
+---
+layout: post
+title: "Big News: 'No safe options' for thousands sheltering in key Sudan city as RSF fighters advance"
+date: 2026-07-29T05:01:46
+author: "badely"
+categories: [News]
+tags: []
+excerpt: "International leaders have issued warnings the RSF may be preparing to attack the city, raising fears of further atrocities being committed."
+image: assets/images/162cc440d3e4c76d0361dd2e1b0bf8d1.jpg
+---
+
+According to new developments, Thousands of people who have poured into the city of el-Obeid hoping to find shelter from Sudan's raging civil war have found themselves under threat again, amid warnings that paramilitary fighters are preparing to descend on the army-controlled city.
+
+Clashes between the paramilitary Rapid Support Forces (RSF) and the military has escalated in the North Kordofan region - a critical target for both sides in the conflict which could open a gateway into contested territory.
+
+Displaced people have flocked to el-Obeid, which remains heavily defended by the Sudanese military, despite ongoing strikes being carried out on the city as paramilitary forces advance. The UN's International Organization for Migration (IOM) said it has become a key refuge for people escaping ongoing violence in the surrounding areas.
+
+Satellite imagery shows the main displacement camp has expanded significantly since March, with aid workers reporting dozens of new arrivals each day.
+
+"Families have run out of safe options to protect themselves," Mohamed Refaat, IOM chief of mission in Sudan, said. "Many have already been displaced before and are once again forced to leave behind their homes, livelihoods and support networks."
+
+The UN and G7 foreign ministers have now issued warnings that the RSF may be preparing to attack the city, raising fears that atrocities akin to those seen during the massacre in el-Fasher could be repeated. Thousands of people were killed in mass executions after the paramilitary overran SAF troops defending the city last October, in one of the worst atrocities since the civil war began in 2023.
+
+Fears of similar reprisals occurring in el-Obeid have grown for weeks and verified footage now shows dozens of heavily armed RSF troops in armoured trucks stationed in Nyala, a key nearby stronghold, vowing to "liberate" the city.
+
+The RSF launched a record number of drone strikes on the city in June, according to the monitoring group Armed Conflict Location and Event Data (Acled). The number of attacks only fell in July because the RSF was responding to Sudanese military attacks elsewhere in Sudan, analysts added.
+
+Satellite images show that despite the strikes, el-Obeid's displacement camp has continued to swell, with hundreds of new tents erected since March. The UN has estimated that more than 83,000 civilians have now fled fighting in other parts of the state and sought shelter in the city.
+
+As the displacement camps have expanded, the conditions in el-Obeid have deteriorated. Last week the UN warned nearly 400,000 people in the city's vicinity are facing food shortages, following a sustained effort by RSF commanders to cut off supply routes into the city for months, creating what one UN official called a "functional siege".
+
+Locals have previously said that supply convoys attempting to reach the city have been targeted by drone attacks, while the charity Islamic Relief - which has operated aid stations in el-Obeid - told BBC Verify that flights carrying aid arriving via the airport have also stopped.
+
+Aid agencies say the food and water shortages have been exacerbated by RSF drone strikes on critical infrastructure. Verified video footage last month showed a massive explosion at a fuel station in the heart of the city after one such strike, while satellite images also appear to damage to power stations and supply warehouses in the city's market district.
+
+One humanitarian official working with Islamic Relief said the slowing of drone strikes in recent days has improved the situation in the city. But he emphasised that while more aid is being distributed and some power has been restored, the situation remained extremely "unpredictable" - with fuel shortages still an issue.
+
+"Every day we are seeing new arrivals due to fighting in areas around El-Obeid. It is not possible to get the exact number of people who are arriving on a daily basis, but it would be about 80 or 100 households daily," the aid worker said.
+
+This video can not be played
+
+Verified footage shows RSF fighters in Nyala
+
+Meanwhile, RSF fighters and leaders have repeatedly vowed in verified video footage to move on the city. In one clip posted to the paramilitary's official Telegram channel, a commander could be seen waving an assault rifle while addressing a group of troops - promising that they would soon see combat in el-Obeid.
+
+Another verified clip from late May showed paramilitary fighters gathering alongside dozens of armoured vehicles just outside the RSF heartland of Nyala. One fighter seen leaning on the door of an armoured vehicle boasted that the unit's next target was el-Obeid. Recent footage located by BBC Verify placed fighters within 40km (24 miles) of the city.
+
+These threats also appear to be stoking tensions within the city. Volker TÃ¼rk, the UN's High Commissioner for Human Rights, recently said that many displaced people who have sought shelter in el-Obeid have faced suspicion and hostility from locals over fears that RSF sympathisers are infiltrating the city.
+
+Meanwhile, the Sudanese military appears to be digging in and building a defensive berm - or earth wall - around the city, satellite images suggest. Unlike the one built around el-Fasher by the RSF last year, which trapped people inside the besieged city, this appears to be defensive and aimed at keeping attackers out.
+
+On Monday, the military also said that a massive operation had secured a vital highway between el-Obeid and the capital, Khartoum. In response, the RSF's leader Mohamed Hamdan Dagalo, who is known as Hemedti, said he was "unleashing" his fighters and ordered his front-line commanders to "move straight forward. No more retreat. No more hesitation".
+
+Nohad Eltayeb, Senior Research Assistant at Acled, told BBC Verify that the city is a key hub for both sides to the conflict.
+
+"It is the critical juncture connecting RSF-controlled western territories with the military-held central and White Nile regions," Eltayeb said.
+
+She added that the RSF "need to regain momentum following territorial losses in the eastern Blue Nile region, alongside internal instability and defections within its Darfur strongholds".
+
+The joint EU/G7 warning of atrocities in el-Obeid urged all "external actors" to suspend "armed, logistical, or financial support to the parties to the conflict". Earlier this month the European Parliament expressly named the United Arab Emirates (UAE) as a key backer of the RSF. Emirati officials have repeatedly denied the allegations.
+
+Alan Boswell, Crisis Group's Horn of Africa Group director, suggested that the flurry of early Western interventions may be motivated by the failure to avert the el-Fasher massacre - which was the culmination of an extended siege and RSF build-up.
+
+"Many are trying to turn up the volume on those warnings to prevent another round of mass atrocities in el-Obeid," he said.
+
+"The key is if world leaders will put enough pressure on the RSF and its main backer to make a difference this time."
+
+What claims do you want BBC Verify to investigate?
+
+Fears of a massacre in this city on the front line of Sudan's war
+
+Drones hammer Sudan's gold and oil zone - the pivotal new front line
+
+Sudan's paramilitary RSF chief sentenced to death over war crimes
+
