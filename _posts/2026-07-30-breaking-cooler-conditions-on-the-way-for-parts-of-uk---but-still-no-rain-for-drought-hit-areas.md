@@ -1,0 +1,79 @@
+---
+layout: post
+title: "Breaking: Cooler conditions on the way for parts of UK - but still no rain for drought-hit areas"
+date: 2026-07-30T01:40:07
+author: "badely"
+categories: [News]
+tags: []
+excerpt: "After another day of record-breaking temperatures for some parts of England, a cold front is moving in."
+image: assets/images/ad4c963b3d8fc8f3f7550dfcc691625c.jpg
+---
+
+Experts revealed that The Grand Union Canal in Warwickshire has seen low water levels and algae growth due to rising water temperatures
+
+Cooler conditions and some rain are on the way for parts of UK on Thursday into the weekend, as a cold front moves into the UK.
+
+However, with more than half of England and parts of Wales officially in drought, the coming days are unlikely to bring any rain to the driest areas of the country.
+
+The latest UK heatwave peaked on Wednesday with temperatures soaring to 35.2C at Writtle in Essex. It was the hottest day for more than two weeks, when 35.2C was also recorded in Cotton in the Elms, Derbyshire, on 10 July. 
+
+It did not reach the highs experienced last month, when a new UK June temperature record of 38C was set at Lingwood in Norfolk on the 26th, which was also the hottest day of the year so far.
+
+Last month's record was provisionally reported as 37.7C but the Met Office announced on Wednesday a new figure of 38.0C following a verification process.
+
+It comes after drought was declared across more than half of England on Wednesday as hot, dry weather takes its toll on the country's water supplies.
+
+The Environment Agency (EA) announcement covered much of central, eastern and southern England, and was a public sign that further restrictions on water use might follow.
+
+It added that the impacts are already being felt, including low river flows, early harvests and high risk of wildfires. More than 20 million people are already under hosepipe bans.
+
+North Wales and the Upper Severn river basin entered drought conditions last week, Natural Resources Wales said.
+
+Scotland does not declare drought but monitors "water scarcity". Some parts of eastern Scotland are in the most extreme category of "significant scarcity", according to the Scottish Environment Protection Agency.
+
+Northern Ireland is not currently in drought.
+
+Pictures show scale of drought across England as rivers dry up
+
+Three consecutive days meeting the threshold temperature are required for it to be considered a heatwave.
+
+The extent of this latest heatwave has been limited because Monday did not reach the threshold across most of the Midlands, East Anglia and central southern England. 
+
+Tuesday and Wednesday were both hot days, but the cold front moving in on Thursday drops the temperatures just below the threshold for many, meaning many areas narrowly miss the mark. 
+
+However, the cold front does not quite reach East Anglia and south-east England, so the heat hangs on for one more day with temperatures reaching the high 20s or possibly 30C in the hottest areas, which will therefore reach three days above the threshold. 
+
+For Friday and the weekend, temperatures in central and eastern England will still reach the mid-20s so it will still feel warm in the sunshine. 
+
+Sunday will probably turn a bit warmer again with temperatures into the high 20s. The weather will be cool in the north-west of the UK with temperatures often below average.
+
+Heatwave thresholds vary across the UK
+
+Boiling Point: The Week of Extreme Heat
+
+The last week of June 2026 saw record-breaking temperatures across parts of the UK and Europe. While some enjoyed the sunshine, the heat caused trains, schools and emergency services to buckle. 
+
+For the most parched areas of the UK, there is unlikely to be any rain over the next few days. 
+
+Wisley in Surrey has had 42 consecutive dry days as of Tuesday 29 July. The weakening cold front should reach Wisley but is unlikely to produce any rain there.
+
+The wettest weather will affect the north-west of the UK, which has already seen plenty of rain this month. Aultbea in the Highlands has already had about a third more rain than its July average.
+
+Next week there is going to be more rain in the forecast, and again the north-west will probably end up being the wettest area.  
+
+A few forecast models produce some useful rain in the south too but this is far less certain with many models producing little if any rain. It is too soon to know for sure.
+
+The summer so far has seen temperature records tumble. 
+
+We have now had seven days with temperatures over 35C, beating the previous record of five set in 1976 and equalled in 2020. 
+
+There have been 31 days with temperatures over 30C, not far off the record of 34 days set in 1995 and comfortably beating 1976, which had 24 days. 
+
+There is still plenty of time left this summer to equal or beat this mark.
+
+Do you live in one of the affected regions? Do you have any questions about the drought?
+
+Is there a hosepipe ban in my area? What you need to know 
+
+Bumblebees are struggling in UK heatwaves - but you can help them
+

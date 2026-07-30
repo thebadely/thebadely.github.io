@@ -1,0 +1,29 @@
+---
+layout: post
+title: "Breaking: Shell profits double as oil prices rise due to Iran war"
+date: 2026-07-30T07:11:44
+author: "badely"
+categories: [News]
+tags: []
+excerpt: "Disruption to global supplies of oil and liquid natural gas through the Strait of Hormuz has pushed up prices."
+image: assets/images/831771ac57f04d9078aea4ad11d4d535.jpg
+---
+
+According to new developments, Shell's profits for the second quarter of the year have more than doubled after the Iran war pushed up oil prices.
+
+The oil giant's profits for the April-to-June period reached $9.84bn (Â£7.37bn) - up from $4.26bn at the same point last year.
+
+The price of oil has soared since the outbreak of the US-Israel war with Iran due to major disruption to global supplies of oil and liquid natural gas (LNG) through the Strait of Hormuz.
+
+Shell chief executive Wael Sawan said the company's "operational performance enabled very strong results during another quarter of severe disruption in global energy markets".
+
+Together with its profits of $6.92bn for the first three months of the year it means Shell has seen a 70% surge in first-half earnings.
+
+Shell and other energy giants such as BP and Norway's Equinor have seen bumper profits this year, partly down to trading on oil price swings.
+
+Before the conflict began, the price of Brent crude, the global benchmark for oil prices, was around $73 a barrel.
+
+Since then, it has peaked above $120 but also fallen back below $100 as speculation has swirled over when the Strait of Hormuz will reopen.
+
+These big movements in the oil price can widen the gap between buying and selling prices which typically enables traders to make bigger profits.
+
