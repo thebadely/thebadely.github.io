@@ -1,0 +1,71 @@
+---
+layout: post
+title: "Breaking: Boxer's Commonwealth Games racism claim rejected"
+date: 2026-07-30T14:05:43
+author: "badely"
+categories: [Sports]
+tags: []
+excerpt: "Claims made by boxer Aziz Abdul that racism was behind his disqualification at the Commonwealth Games are rejected."
+image: assets/images/9462a5d2cf3e32a61b9a45a814d494ad.jpg
+---
+
+Let's dive into the details: Aziz Abdul (centre) was disqualified early in the third round of his fight against Damar Thomas (right)
+
+Claims made by boxer Aziz Abdul - the grandson of Ugandan dictator Idi Amin - that racism was behind his disqualification at the Commonwealth Games have been rejected by the president of the event organisers.
+
+Abdul was ruled to have headbutted England boxer Damar Thomas as the pair grappled during the third round of their fight.
+
+The 25-year-old claimed the judges were against him because he is a "black African" and, answering questions from BBC Sport, referred to Thomas by using a racial slur.
+
+"When you watch the previous fights of England their boxers create a lot of fouls," said Abdul.
+
+"I land a heavy punch on him, they never count. Instead of counting they deduct me. 
+
+"I am black African. He is in homeland."
+
+Commonwealth Sport president Donald Rukare, who is also from Uganda, said: "We at Commonwealth Sport believe every athlete is treated fairly and in a non-discriminatory manner. 
+
+"We are inclusive.  That is a field-of-play decision and that is something that was said in the heat of the moment."
+
+Idi Amin's boxer grandson determined to become new King of Scotland
+
+Before the super-heavyweight bout, Abdul told the BBC he wanted to become the new 'King of Scotland' - in reference to Amin giving himself that name in 1976.
+
+After taking power in a coup in 1971, Amin ran a brutal regime during which an estimated half a million people were killed. He was also known as the Butcher of Uganda.
+
+Abdul, who never met his grandfather, was chasing Uganda's first Commonwealth boxing medal since Auckland in 1990 - something which would have been guaranteed had he beaten Thomas.
+
+Instead, he was given warnings in the previous two rounds and was trailing on all of the judges' scorecards.
+
+"All I can say about this is the decision is not right, I am not happy," he said.
+
+"He elbowed me. He caught me with the elbow. It [the head movement] was not intentional. I was trying to come back.  How can I headbutt someone? I would not. 
+
+"He was the person they wanted to win. He was the winner before.  I knew if I did not get knockout I could not win the fight."
+
+Rukare raised the prospect of Abdul facing punishment from the Ugandan team.
+
+"We have a team manager and chef de mission and I am sure the appropriate channels will be followed," he said.
+
+"We have a code of conduct. I don't represent Uganda here.  I am sure that matter will be handled appropriately with our own code of conduct."
+
+Thomas, who is now guaranteed at least a bronze medal, said it was "not the way" he wanted to win.
+
+"I can't change what happened today but I can control how I box on Friday," he said.
+
+Amin - himself a boxer - harboured a fascination with Scotland after serving in the King's African Rifles in his 20s. 
+
+At the height of the regime, he was fond of wearing a kilt and playing the bagpipes - and even declared himself "King of Scotland" in 1976.
+
+Some years later, those predilections even spawned an Oscar-winning film, The Last King of Scotland, starring Forest Whitaker and James McAvoy.
+
+In a previous interview, Abdul said he was "inspired" by Amin, although it was not entirely clear whether he was talking about his boxing feats or not.
+
+Speaking to the BBC, he refused to answer when asked if he was proud to be the dictator's grandson, but he did address the question of how he feels when he is linked to someone with such a sinister reputation.
+
+Commonwealth Games daily schedule
+
+Commonwealth Games medal table and results
+
+What are the Commonwealth Games?
+

@@ -1,0 +1,37 @@
+---
+layout: post
+title: "Big News: BP puts North Sea industry up for sale"
+date: 2026-07-31T08:35:38
+author: "badely"
+categories: [Business]
+tags: []
+excerpt: "The decision follows a review of BP's operations and is set to end 60 years of production in the region by the oil giant."
+image: assets/images/2a32a00973e258648f4bfb4206ab2162.jpg
+---
+
+According to new developments, BP has said it is putting its North Sea business up for sale in a move that would end 60 years of production in the region by the oil giant.
+
+The decision follows a review of BP's operations as it seeks to slim down the group. Its North Sea business has five production hubs - two in the central North Sea and three west of Shetland - and employs about 1,100 people.
+
+Earlier this week, Prime Minister Andy Burnham said he told US President Donald Trump he would take a "pragmatic approach" to the issue of North Sea oil and gas.
+
+Trump, some trade unions, industry figures and some Labour MPs all back increased drilling in the North Sea.
+
+"The UK has been our home for more than 100 years and will continue to play an important role in our future," BP chief executive Meg O'Neill said.
+
+"We're proud of the jobs we create, the contribution we make to the UK economy, and the work we do to keep energy flowing every day," she said.
+
+The company said it remained committed to operating the business safely and reliably throughout the sale process.
+
+Its North Sea business produced 117,000 barrels of oil equivalent per day in 2025, a small fraction of the oil giant's 2.3 million barrels of daily production.
+
+O'Neill, who took the helm at BP in April, said earlier this year there was "untapped potential" in the North Sea.
+
+However, in announcing Friday's decision she said: "As we focus our portfolio and direct capital to our highest-value opportunities, we believe our North Sea business will be better positioned as part of another company. 
+
+"It has world-class people, resilient assets and a proud heritage, and it is precisely these qualities that can attract an owner ready to back its next chapter. We are seeking an outcome that recognizes that value."
+
+The sale could potentially bring in Â£2bn to BP. Last month, the FT reported the company was in talks with Ithaca Energy to sell its North Sea assets for around this amount, although the talks fell through.
+
+BP employs around 13,960 people in the UK.
+

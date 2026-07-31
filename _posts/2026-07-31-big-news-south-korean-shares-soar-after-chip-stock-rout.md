@@ -1,0 +1,37 @@
+---
+layout: post
+title: "Big News: South Korean shares soar after chip stock rout"
+date: 2026-07-31T06:56:02
+author: "badely"
+categories: [Business]
+tags: []
+excerpt: "It comes after a three-day rout that wiped hundreds of billions of dollars off the value of the country's stock market."
+image: assets/images/ee2540347cf46a1f28beae9a7406a05b.jpg
+---
+
+Here’s what you need to know: Share prices jumped in South Korea on Friday, partly reversing a three-day rout that wiped hundreds of billions of dollars off the value of the country's stock market.
+
+The benchmark Kospi index closed almost 18% higher, driven by chip makers SK Hynix and Samsung Electronics.
+
+It came after earnings updates from US technology giants Amazon and Microsoft helped boost optimism over the huge amounts of money being invested in artificial intelligence (AI). South Korean regulators have also announced measures aimed at curbing this week's sell-off.
+
+Surging chip stocks also helped push markets in Japan and Taiwan higher.
+
+SK Hynix, which is a major supplier to leading AI chip firm Nvidia, saw its shares gain almost 30%, while Samsung was up by 28%.
+
+Both firms had seen their stock market value slump this week as a sell-off in AI-related stocks deepened.
+
+Investors had become concerned over the hundreds of billions of dollars being poured into in AI by big technology firms. 
+
+In recent months stock market trading has been particularly volatile in South Korea as it has attracted large numbers of retail investors.
+
+South Korea's tech-heavy Kospi has been halted multiple times this year under a stock market mechanism known as a circuit breaker, which is designed to calm panic selling.
+
+The index had more than doubled in value this year and despite a series of big falls since hitting a record high in mid-June it is still more than 50% higher than it was at the end of 2025.
+
+Shares of AI-related companies rallied after Amazon and Microsoft beat earnings expectations.
+
+On Thursday Amazon jumped by more than 9% in after-hours trading in New York on Thursday, while Microsoft gained more than 15%.
+
+South Korea's stock boom
+
