@@ -1,0 +1,131 @@
+---
+layout: post
+title: "Big News: What happened to star signings your club never made?"
+date: 2026-08-02T05:42:58
+author: "badely"
+categories: [Sports]
+tags: []
+excerpt: "BBC Sport takes a look at some star players who were close to moving to the Premier League, only for the deals to fall through."
+image: assets/images/98d90ed8c98ef9d1520149109681a49c.jpg
+---
+
+Experts revealed that Striker Gift Orban was regarded as one of the hottest young talents when he was linked with a move to Tottenham in 2023
+
+Fans always get excited when the transfer window comes around.
+
+Your team is linked with a big-name signing and you start to dream they could be the ones to lead your club to glory.
+
+Tottenham fans might have felt this way a few years ago when they were strongly linked with a young, prolific striker from Nigeria by the name of Gift Orban.
+
+They had every reason, on paper at least, to be excited.
+
+In the summer of 2023, Orban, then 21, was regarded as one of the hottest prospects in the game.
+
+After scoring 16 goals in 22 games for Norwegian top-flight side Stabaek, he moved to Belgian side Gent and continued his impressive goalscoring record, netting 20 times in 22 matches.
+
+In a wild four-day period in March 2023, he scored seven goals in two matches. He got four in a 6â2 away league win over Zulte Waregem, becoming the first Gent player with a four-goal haul in one game in the 21st Century.
+
+He then followed up with a quick-fire hat-trick in a 4â1 away victory over Istanbul Basaksehir in the Conference League last 16. 
+
+That hat-trick was completed within three minutes and 25 seconds, at the time a record in Uefa club competitions.
+
+Gift Orban was on loan at Verona last season and has now moved on another loan deal, this time to Turkish club Amedspor
+
+With England captain Harry Kane set to join Bayern Munich later that summer, Tottenham needed a striker. 
+
+Orban was even touted in the BBC Gossip Column as the club's Kane replacement. The headline of a follow-up story read: "Could Orban be a global star?"
+
+However, Spurs, with new boss Ange Postecoglou recently appointed, stalled at the Â£25m fee and the move collapsed.
+
+In the three years since, Orban has had four clubs, most recently joining newly-promoted Turkish top-flight side Amedspor on loan last week.
+
+He has struggled to regain his form with only three goals for Gent in 2023-24, three for French side Lyon and four for Bundesliga outfit Hoffenheim, although he scored seven times in Serie A on loan at Verona last season.
+
+While his career is yet to reach the heights it once promised, other missed transfer targets have had rather different outcomes...
+
+Kaka collected the Ballon d'Or trophy for being the best player in the world in December 2007
+
+In January 2009, newly-rich Manchester City were looking to spend a bit of their bulging bank balance to sign Brazilian playmaker Kaka.
+
+AC Milan and Kaka's heads were turned by City's staggering Â£108m offer, which would have been more than double the world record transfer at the time. 
+
+One City fan was so sure the deal would be done that he apparently got the playmaker's name tattooed on his chest., external
+
+However, in the end, the 2007 Ballon d'Or winner decided the timing wasn't right and turned down the chance to move to Manchester.
+
+Kaka did make a world-record move later in 2009, joining Real Madrid for Â£56m six months later. 
+
+He won the Spanish Cup in 2011 and La Liga the following year before one season back at AC Milan. 
+
+He then spent three years at Major League Soccer side Orlando City before ending his playing career back in his homeland with Sao Paulo.
+
+Rivaldo played against Liverpool in the Champions League in 2004-05, but would have faced them in the Premier League if he had joined Bolton
+
+In 2004, Bolton Wanderers were flying high, with dreams of Europe. 
+
+Manager Sam Allardyce went big, with an enquiry for 32-year-old Brazilian World Cup winner Rivaldo, who had been frozen out at AC Milan.
+
+Rivaldo himself made a statement, saying: "I want the challenge of trying to get Bolton into Europe for the first time in their history. It is an exciting time."
+
+In the end, he had a change of heart and went to Greek side Olympiakos instead, where he stayed for three seasons.
+
+Bolton finished that 2004-05 campaign  in sixth - tied on points with Liverpool and just three points off the top four. That earned them a place in Uefa Cup qualifying, and they went on to reach the last 32.
+
+After Olympiakos, Rivaldo had spells with AEK Athens, then in Uzbekistan and Angola before returning to Brazil.
+
+Zinedine Zidane was already a France international by the time Blackburn wanted to sign him in 1995
+
+In 1995, Blackburn Rovers had just won the Premier League title and turned down the chance to sign a young French midfielder, Zinedine Zidane from Bordeaux. 
+
+Club management urged owner Jack Walker to buy Zidane and France forward Christophe Dugarry, but Walker famously replied: "Why do we need Zidane when we have Tim Sherwood?"
+
+Sherwood had lifted the Premier League trophy a few months earlier and both Zidane and Dugarry had flown to England to talk to the club but no deal was completed.
+
+Zidane and Dugarry went on to win the World Cup with France in 1998 and the European Championship two years later, with Zidane lifting two Italian titles with Juventus and then La Liga and the Champions League with Real Madrid.
+
+Dugarry had spells at AC Milan, Barcelona, Marseille and back at Bordeaux, although he did end his career in England with two seasons at Birmingham City.
+
+Steven Gerrard helped Liverpool past Jose Mourinho's Chelsea on their way to the 2005 Champions League title
+
+In 2005, just off the back of a sensational Champions League win when Liverpool fought back from 3-0 down at half-time against AC Milan before winning on penalties, Steven Gerrard upset the red half of Merseyside. He handed in a transfer request.
+
+Chelsea boss Jose Mourinho was interested in acquiring the England midfielder's services in a potential Â£32m move, with Gerrard refusing to sign a new contract.
+
+Eventually Gerrard decided to stay with Liverpool, citing "family reasons". Gerrard would go on to make more than 700 appearances for the Reds and guide them to the 2007 Champions League final, although AC Milan would get their revenge.
+
+Ten years later, Mourinho said his failure to sign Gerrard was one of his greatest transfer disappointments.
+
+Kylian Mbappe cost Paris St-Germain Â£166m when he moved from Monaco
+
+France striker Kylian Mbappe is the record goalscorer in World Cups, helping his country win the 2018 competition and then scoring a hat-trick in the 2022 final as Les Bleus lost on penalties to Argentina.
+
+However, he could have been a Liverpool player in 2017 as he had talks with the Reds when still at Monaco.
+
+"I talked to Liverpool because it's the favourite club of my mum, my mum loves Liverpool," said Mbappe.
+
+Then-Liverpool boss Jurgen Klopp recently revealed how the club laid on a private jet and food for Mbappe and his family. 
+
+However, despite his mother's favourite club being the Reds, Mbappe joined Paris St-Germain, where he won six successive Ligue 1 titles before joining Real Madrid in 2024.
+
+Antoine Griezmann scored 205 La Liga goals before moving to Orlando City earlier this year
+
+France striker Antoine Griezmann has had a great career, but never played in the Premier League.
+
+But he nearly did, with Fulham making an unlikely Â£12m bid for him in January 2014 when the Cottagers were fighting to stay in the Premier League.
+
+Fulham enquired about Griezmann to his club Real Sociedad and were quoted a price of Â£12m. In the end, the west London side spent that figure on Olympiakos striker Kostas Mitroglou, who only played three Premier League matches, scoring no goals, before the Cottagers were relegated.
+
+Mitroglou then had loan spells back at Olympiakos and then Benfica, who he joined permanently in 2016-17.
+
+Griezmann stayed in Spain with nine seasons over two spells at Atletico Madrid and two years at Barcelona. He helped France win the World Cup in 2018.
+
+Get news, insight and fan views on your Premier League team
+
+All your football quizzes in one place
+
+Premier League index
+
+Premier League table
+
+Premier League fixtures
+

@@ -1,0 +1,53 @@
+---
+layout: post
+title: "New: Shell profits double as oil prices rise due to Iran war"
+date: 2026-07-30T09:16:29
+author: "badely"
+categories: [Business]
+tags: []
+excerpt: "Disruption to global supplies of oil and liquid natural gas through the Strait of Hormuz has pushed up prices."
+image: assets/images/831771ac57f04d9078aea4ad11d4d535.jpg
+---
+
+Here’s what you need to know: Shell's profits for the second quarter of the year have more than doubled after the Iran war pushed up oil prices.
+
+The oil giant posted profits of $9.84bn (Â£7.37bn) for the April-to-June period, up from $4.26bn at the same point last year.
+
+The price of crude has risen since the outbreak of the US-Israel war with Iran due to major disruption to global supplies of oil and liquefied natural gas (LNG) through the Strait of Hormuz.
+
+But energy prices have also seen sharp swings during the conflict, which has boosted Shell's trading business.
+
+Shell chief executive Wael Sawan said the company's "operational performance enabled very strong results during another quarter of severe disruption in global energy markets".
+
+Together with its profits of $6.92bn for the first three months of the year it means Shell has seen a 70% surge in first-half earnings.
+
+Shell and other energy giants such as BP and Norway's Equinor have seen bumper profits this year, partly down to trading on oil price swings.
+
+Before the conflict began, the price of Brent crude, the global benchmark for oil prices, was around $73 a barrel.
+
+Since then, it has peaked above $120 but also fallen back below $100 as speculation has swirled over when the Strait of Hormuz will reopen.
+
+These big movements in the oil price can widen the gap between buying and selling prices which typically enables traders to make bigger profits.
+
+However, the conflict in the Middle East has also affected some of Shell's operations. 
+
+Its LNG production in Qatar has been shut down since early March because of the conflict, and its Pearl gas-to-liquids facility in Qatar suffered "extensive damage" when it was hit by a missile attack in March. The company has said repairs could take about a year.
+
+Overall gas production fell to 631,000 barrels of oil equivalent per day for the April to June period, from 909,000 barrels per day in the first quarter, the firm said.
+
+Total oil and gas production in the first half of the year fell 16% compared with the first half of 2025, although Shell did point to new oil production in Brazil and the Gulf of Mexico, which President Trump ordered to be renamed the Gulf of America last year.
+
+"The standout contribution came from Shell's trading operation, which once again demonstrated the value of its integrated business model, supported by healthy refining and chemicals performance and robust production growth in Brazil," said Maurizio Carulli, global energy analyst at Quilter Cheviot.
+
+"[Shell] remains a steady ship in an industry where conditions can change rapidly."
+
+However, environmental campaigners reacted with anger to the latest results.
+
+"With extreme heatwaves and wildfires hitting the UK and ravaging Europe, it's outrageous that Shell is making huge profits while continuing to fuel the climate crisis," said Friends of the Earth energy campaigner Danny Gross.
+
+"These profits have been built on an energy crisis that's left households across the country struggling with high energy bills at home and expensive fuel at the pumps. This underlines the urgent need to end our dependence on costly oil and gas."
+
+CLARIFICATION 31 July 2026: This story has been updated to say the Gulf of Mexico was renamed the Gulf of America by the Trump administration last year
+
+The companies making billions from the Iran war
+
