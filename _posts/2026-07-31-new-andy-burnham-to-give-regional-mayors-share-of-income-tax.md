@@ -1,0 +1,103 @@
+---
+layout: post
+title: "New: Andy Burnham to give regional mayors share of income tax"
+date: 2026-07-31T13:16:44
+author: "badely"
+categories: [Business]
+tags: []
+excerpt: "The prime minister says the move will give power to 'every postcode' but critics say the plans lack detail."
+image: assets/images/015a3d79964d4c1406ed6ed9c0c3c9c4.jpg
+---
+
+Here’s what you need to know: Burnham held his first meeting at No 10 North in Manchester last week
+
+Prime Minister Andy Burnham will give all mayors of city regions in England a share of income tax revenue for the first time, as part of his drive to transfer power from Westminster to local leaders.
+
+Burnham will also allow English strategic authorities to keep some cash from business rates collected in their areas, and gain greater control over services such as housing, transport, skills.
+
+The government has not yet decided the exact portion of taxes mayors will get, with more details to be announced when Chancellor John Healey delivers his first budget in the autumn.
+
+Opposition parties said the plans lacked detail and could lead to areas with weaker economies losing out on funding.
+
+But Burnham said the move would "make good" on his pledge to "bring power home" to "every postcode in the country".
+
+"Under our plans, more of the taxes raised in a community will stay in that community," the prime minister added.
+
+First Secretary of State Louise Haigh told BBC Radio 4's Today programme areas without mayors would also benefit from investment because devolution powers would be held by new strategic authorities across England.
+
+Strategic authorities bring together local councils to control regional issues such as transport and economic development, with decisions taken collectively by council leaders rather than a single elected mayor.
+
+But Labour backbencher Perran Moon said the government's plans were "discriminatory" and could create a "two-tier system". 
+
+The MP for Camborne and Redruth in Cornwall said the area would never have a mayor or become a combined authority and so risked not having access to devolved powers that other areas would have. 
+
+"What we're asking government to do is to provide us with the same powers, the same funding that mayoral combined authorities have without the requirement of becoming a combined authority or having a mayor."
+
+The government has also announced that mayors will be given a fast-track route to building new tramways, roads and light rail in their areas. 
+
+Transport Secretary Heidi Alexander said the threshold at which local leaders need to seek approval for projects will rise to Â£500m, up from Â£200m. 
+
+Labour mayors, including Tracy Brabin - pictured here taking a selfie - have welcomed the devolution of tax revenues
+
+As it stands, mayors of English strategic authorities receive most of their funding by central government grants. 
+
+Mayors are expected to start retaining some revenue from business rates from April 2027 and receive a portion of income tax from April 2028.
+
+The rates of income tax will not change as a result of the reform.
+
+Treasury sources say some metro mayors could end up with more money to spend if they grow their local economies and expand their tax bases, but officials are still figuring out how it will work in practice.
+
+One think tank, Re:State, has suggested, external the government should allocate mayors 2.5p in every pound raised by the 20p basic rate of income tax in their areas.
+
+Conservative shadow chancellor Sir Mel Stride said Burnham's announcement was "very short on the detail" with "no new money being announced", which could mean areas with weaker local economies could end up losing out.
+
+The Liberal Democrats warned the plans risked "creating a postcode lottery" that would leave millions of people living in rural areas "short-changed and underfunded".
+
+Reform UK home affairs spokesman Zia Yusuf said the prime minister should "fully devolve the power to stop the housing of illegal migrants in local communities by the Home Office".
+
+The power to raise and control tax revenues is highly centralised in the UK, making the country an outlier by international standards.
+
+The share of national taxes collected at a local level in the UK is 5.8%, the lowest in the G7, according to the OECD, external global policy forum.
+
+That share is far below that of other countries with large economies such as France (20.4%), Japan (36%) and the US (45.7%).
+
+During his time as Greater Manchester mayor, Burnham pushed for greater control over tax revenue, rather than having to rely on government grants.
+
+The UK government had already been exploring whether a share of revenue from national taxes could be distributed to metro mayors before Burnham became prime minister.
+
+Burnham has put devolution at the heart of his plan for government, arguing that metro mayors are best placed to boost economic growth across the country.
+
+Conservative Tees Valley Mayor Lord Houchen has branded the plans a 'tax grab'
+
+Ministers will be expected to justify why powers should remain in Whitehall rather than being devolved, under a "local first" principle being developed by No 10 North in Manchester, with full details set to be published in a policy paper on the same date as the autumn budget.
+
+The government is also working out the details of an equalisation system to ensure areas where less tax is collected continue to receive financial support.
+
+The reforms come after a policy blitz during Burnham's first two weeks in Downing Street, with announcements on the cost of living followed by a speech on his plan to overhaul social care.
+
+Tracy Brabin, the Labour mayor of West Yorkshire, said that giving regions like hers a proportion of income tax would mean "people will be able to see and feel the real benefit of their hard work and where that money is going".
+
+However, Lord Houchen, the Conservative mayor for Tees Valley, said he would prefer the government to cut taxes and if handed a portion of income tax would create a new rebate scheme to give money back to local people. 
+
+"The prime minister has said he wants to alleviate the cost of living [crisis] and give people room to breathe - what better way to do that than allow them to keep more of their own money?" he told BBC Radio 4's World at One programme.
+
+"I think the prime minister and what this government is doing on fiscal devolution is a move in the right direction, but for it to be real devolution we've got to have local decision-making and choose what's best for the people we represent."
+
+He said it was "not beyond the wit of man" for a regional authority to be able to set up a rebate system, adding it would not be "overly complicated" and would not be particularly controversial.
+
+Burnham said the policy was "not about allowing mayors to become a sort of mini-chancellor" or "local home secretary". 
+
+"This is a policy that is about growth and investment," he told LBC, adding that he was "misunderstanding the purpose of this". 
+
+"They don't have to go for all of the things that are being suggested here, but, you know, we think these things will start to provide an answer to the low growth Britain has experienced over the last decade and more places start to see levels of growth that Greater Manchester has achieved."
+
+Additional reporting by Harry Farley, political correspondent, and James Gregory, political reporter.
+
+Do you have any views, comments or questions about this story?
+
+New 'No 10 North' plan will rebalance power in Britain, Burnham promises
+
+Will Andy Burnham's devolution plan raise economic growth?
+
+Where will Andy Burnham take Wales and Welsh devolution?
+
