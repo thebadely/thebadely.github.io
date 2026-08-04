@@ -1,0 +1,101 @@
+---
+layout: post
+title: "New: Infantino opponents threaten 'non co-operation' with Fifa"
+date: 2026-08-03T07:49:33
+author: "badely"
+categories: [Sports]
+tags: []
+excerpt: "Opponents of Fifa president Gianni Infantino are threatening 'non co-operation' with the governing body unless he steps down, according to senior Uefa"
+image: assets/images/62a476f941541f6c13df43db096e480c.jpg
+---
+
+Here’s what you need to know: Gianni Infantino has been in charge of Fifa for 10 years
+
+Opponents of Fifa president Gianni Infantino are threatening "non co-operation" with the governing body unless he steps down, according to senior Uefa sources.
+
+Some of those involved in the rebellion vow "there is no going back" for as long as Infantino remains in position, as the fallout over his scrapped plans to sell off stakes in Fifa competitions to private investors intensifies.
+
+While the details of the proposed disruption remain unclear, one senior figure said they would "certainly expect" a refusal to participate in Fifa meetings.
+
+It comes after European football's governing body Uefa threatened legal action over the proposals, and Wales publicly withdrew backing for Infantino's bid for a fourth term as Fifa president, with England's Football Association set to follow suit.
+
+In March, Infantino is set to stand for re-election for a final term as president and would need 106 votes from Fifa's 211 members to win.
+
+Sources have told BBC Sport the Scottish FA's position on the future of Infantino remains aligned with Uefa's lack of confidence in the 56-year-old. 
+
+Infantino's leadership had already been publicly questioned by football's governing bodies in Europe, North and Central America and the Caribbean, with Uefa and Concacaf releasing statements criticising the plans.
+
+As the pressure grows on Infantino with Serbia, Sweden and Finland also withdrawing their support, Morocco, Qatar, Lebanon, Kuwait and Sri Lanka among the countries to have pledged their support for his Fifa leadership to continue.
+
+Uefa has 55 votes, Africa 54, Asia 46, Concacaf 35, Oceania 11 and Conmebol 10.
+
+The Asian Football Federation (AFC) has said it stands in "solidarity" with Uefa and Concacaf, while Africa, Conmebol and Oceania have not criticised Infantino's plan.
+
+However, the Fifa Council could try to force Infantino to resign through an emergency meeting.
+
+That would be triggered if 19 of the 37 Fifa Council members call for one and the meeting must take place within two weeks.
+
+Uefa has nine members, AFC has seven, Concacaf five, Africa has six, Conmebol five and Oceania three. It is completed by Infantino and secretary general Mattias Grafstrom.
+
+Fifa and Infantino wanted to create a commercial subsidiary to run its main events, including its World Cups, and external investors would have been able to buy stakes in it.
+
+World football's governing body said it would "invite third parties to make minority, non-controlling investments" in a new subsidiary called Fifa Forward Enterprise (FFE).
+
+As first reported by The Telegraph, Uefa said in a letter to Infantino "it is actively considering legal action, arbitration, and/or regulatory complaints (together, the 'proceedings') arising out of and in connection with the FFE plan proposed by Fifa".
+
+Uefa added it wants "immediate steps" to "preserve all documents and electronically stored information" in Fifa's possession "independent" of their internal policies that may result in "routine document destruction or deletion".
+
+BBC Sport has approached Fifa for comment.
+
+If Infantino goes, who might replace him as Fifa president?
+
+A bruising 24 hours - what next for Fifa and under-pressure Infantino?
+
+Is Infantino finished? Could Uefa boycott World Cup? What happens now?
+
+Infantino wrote to all 211 Fifa member associations saying they would receive $40m (Â£30m) if they backed his controversial proposal, setting a deadline of 19 September if they wanted to access an initial $20m (Â£15m).
+
+Thrive Eternal was expected to lead the proposed investor group for FFE.
+
+Thrive is an American venture capital firm founded by Joshua Kushner - the brother of US President Donald Trump's son-in-law Jared.
+
+Uefa's request for all documents regarding the investment plan, included "email, instant messages (WhatsApp, Signal, Teams, Slack or any other platform), SMS, written correspondence and meeting notes", and those which involved "any Fifa officer, employee, committee member, consultant or agent, or any Fifa member association, confederation, broadcaster, sponsor, or financial institution".
+
+In reference to the 19 September deadline, Uefa added it wanted documents to be retained "relating to the payment structure for Fifa member associations, including the design, modelling, legal basis, approval and communications to member associations".
+
+Uefa asked Infantino to acknowledge receipt of its letter in writing within five business days, to confirm he had "received and understood this notice" and that he has "taken immediate steps to preserve relevant materials as required".
+
+Uefa vice-president Laura McAllister described the prospect of legal action by European football's governing body as "a very clear call for action really for what's been an abysmal governance process leading up to the FFE initiative".
+
+Speaking to BBC Radio 5 Live, she added: "We need to learn from this disastrous process to make sure that we have accountability chains in hand to ensure that it doesn't happen again."
+
+She hopes others will follow in withdrawing their support for Infantino in what "is a big moment in the history of football".
+
+"We cannot keep putting out fires because of unilateral plans," said McAllister.
+
+"I really hope now that we can have a change of leadership next year."
+
+This video can not be played
+
+Former FA Chairman David Bernstein on Gianni Infantino's future as Fifa president
+
+While a growing list of national associations withdrawing their letters of support appears to add to the pressure on Infantino, it is effectively underlining the opposition that became clear at the weekend, when they backed Uefa's loss of confidence in the beleaguered Fifa president.
+
+They are also currently limited to European countries, although that could change.
+
+The threat of non co-operation with Fifa as long as Infantino remains in post, and of legal action, could be more significant.
+
+These tactics are designed to act as leverage, and make Infantino more isolated.
+
+If it fails to persuade him to step down, the rebels at Uefa and Concacaf will hope  they can persuade countries elsewhere to join the revolt, especially in Asia, which now appears a key battleground.
+
+Uefa knows it has to avoid being perceived as telling the rest of the world what to do, and it is clear that Infantino retains considerable support in South America and Africa.
+
+World football has rarely - if ever - appeared more divided, and Infantino's opponents will now be trying to identify a unifying challenger to stand against him next year - if he refuses to quit before then.
+
+Faisal Islam: Four reasons why Fifa's World Cup plan never stacked up
+
+Follow your club with BBC Sport
+
+Get football news sent straight to your phone
+

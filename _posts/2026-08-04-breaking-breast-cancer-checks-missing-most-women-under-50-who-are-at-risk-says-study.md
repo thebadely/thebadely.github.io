@@ -1,0 +1,63 @@
+---
+layout: post
+title: "Breaking: Breast cancer checks missing most women under 50 who are at risk, says study"
+date: 2026-08-04T01:08:13
+author: "badely"
+categories: [Health]
+tags: []
+excerpt: "Up to 95% of younger women who are at higher risk of developing breast cancer are being missed by current NHS checks, researchers warn."
+image: assets/images/89dad8b1d8d812c7cb9bc50d444c333b.jpg
+---
+
+According to new developments, NHS criteria for screening women under 50 for breast cancer are too narrow and missing up to 95% of those at higher risk of developing the disease, researchers have warned.
+
+The current guidelines - set by the National Institute of Health and Care Excellence (Nice) - focus solely on inherited genes and not other factors such as lifestyle, they found.
+
+Older women are offered routine mammogram scans to check their breasts, but under 50s do not get any breast screening unless they have a strong family history of the disease. 
+
+Using a new risk assessment tool, a study published in the British Journal of Cancer identified eight times as many women in this age group who developed breast cancer.
+
+Breast cancer is a leading cause of death in women under 50 in the UK.
+
+About one in seven women develops breast cancer in their lifetime, yet only 5-10% of cases are linked to inherited genes. 
+
+Most cases - 96% - are in women over 40, while 25% are in women over 75.
+
+Men can get breast cancer too, with about 420 new cases every year in the UK. 
+
+In England, guidance from Nice recommends GPs ask about family history if a woman is worried that she might have a higher risk of breast cancer, and sometimes if they are over 35 and using an oral contraceptive pill or considering taking hormone replacement therapy (HRT). 
+
+Hormones have been linked to a slightly increased risk of breast cancer, although larger risk factors include alcohol intake and obesity. 
+
+The study, by a team from Cambridge University and the Institute of Cancer Research, looks at how to predict breast cancer risk in younger women. 
+
+They used a risk calculator called Boadicea that combines factors such as family history, lifestyle, reproductive history and genetic information to give a risk score.
+
+If all women under 50 were to have this done, they estimate about a quarter (26.5%) would be categorised as at above-average risk and referred for further assessment.
+
+This would include a third of women under 50 (34.8%) who develop breast cancer within 10 years.
+
+By comparison, the current Nice criteria would result in 1.4% of women under 50 being referred for further assessment, which would include just 4.4% of those women who develop breast cancer.
+
+A main reason for the disparity, the researchers say, is because three-quarters of women (73%) under 50 who develop breast cancer within a decade have no family history of breast cancer - the key criterion in the Nice guidelines.
+
+Lead researcher Dr Juliet Usher-Smith said the NHS should review the criteria in the light of the findings, but acknowledged referring more people would add to workloads and could cause some women unnecessary checks and anxiety. 
+
+Dr Sowmiya Moorthie, from the charity Cancer Research UK which funded the work, said: "Any changes must be accessible and equitable, taking into consideration the anxiety that extra referrals might cause for women."
+
+Several breast cancer risk calculators like Boadicea already exist and none are perfect. 
+
+Nice said it welcomed the findings and recognised the potential of such multifactorial risk assessment tools but said the current evidence did not warrant a change to its breast cancer guidelines.
+
+The NHS breast cancer screening programme - which advises the NHS for all four nations - is regularly evaluated by the UK National Screening Committee. 
+
+All women are encouraged to know what looks and feels normal or usual for them and to see a doctor if they notice any changes. 
+
+Are you affected by the issues raised in this story?
+
+'Girls Aloud singer Sarah Harding saved my life'
+
+Vanessa Trump, ex-wife of Donald Trump Jr, diagnosed with breast cancer
+
+Mum thought she had pulled a muscle  but it was breast cancer
+

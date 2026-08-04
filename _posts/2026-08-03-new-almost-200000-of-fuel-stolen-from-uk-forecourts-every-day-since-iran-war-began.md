@@ -1,0 +1,87 @@
+---
+layout: post
+title: "New: Almost £200,000 of fuel stolen from UK forecourts every day since Iran war began"
+date: 2026-08-03T11:49:41
+author: "badely"
+categories: [Business]
+tags: []
+excerpt: "Incidents of fuel being taken without payment have risen by a fifth in five months, according to industry analysis."
+image: assets/images/d70360fc2048184b5d021331421e17e9.jpg
+---
+
+According to new developments, UK drivers have stolen almost Â£200,000 of fuel from petrol stations on average every day since the Iran war broke out and sent prices soaring, according to industry analysis.
+
+Incidents of fuel being taken from forecourts without payment have risen by a fifth in the five months since 28 February, figures from Forecourt Eye suggest.
+
+The conflict in the Middle East severely disrupted oil supplies across the region, triggering a rise in wholesale prices and subsequent increase in costs at the pump in the UK.
+
+Forecourt Eye said the value of the stolen fuel is estimated to have risen by 48% compared with the five months before the war - to reach an estimated daily average of Â£194,000.
+
+The fuel theft prevention company added petrol stations are reporting an increase in "abuse, intimidation and violence from frustrated customers".
+
+The figures are based on a representative sample of 550 forecourts, comparing the five months prior to the outbreak with the five months after it started, and extrapolated to the UK's 8,359 forecourts.
+
+The number of incidents recorded at the forecourts in the sample equates to 2,872 daily incidents on average at forecourts across the UK in the months after war began, up from around 2,400.
+
+They include people driving off without an attempt to pay, and people claiming they have no way to pay after filling their vehicle.
+
+The volume of stolen fuel rose by 24% - up from an estimated 87,000 litres to 108,900 litres a day across all forecourts.
+
+In response, Forecourt Eye said it would partner with facial recognition company Facewatch to offer more than 2,000 retailers free access to crime reporting technology from the autumn. 
+
+Fuel prices peaked in April, before falling back when US and Iran agreed to a framework deal to end the conflict in June, but they have risen again since the collapse of peace talks.
+
+Last week, petrol prices reached a new high since the conflict in the Middle East started â and its highest level since 2022.
+
+Forecourt Eye also reported a rise in thefts after the Russia-Ukraine war broke out in early 2022. 
+
+Shailesh Parekh, who owns six forecourts, says thefts are happening "almost every day"
+
+Shailesh Parekh, who owns six forecourts under the Midlands Motor Fuels banner, said he had "more CCTV cameras than Birmingham airport" per square foot, but "that doesn't help because people don't care".
+
+Parekh told the BBC that businesses were resigned to the scale of the theft and called on the police to do more to combat fuel theft and shoplifting.
+
+"There is no deterrent, there is no comeback. That's where the problem is," he said.
+
+Parekh said thefts were happening "almost every day", with thieves having turned to filling up extra cans as well as their fuel tanks.
+
+He said fuel theft cost him about Â£40,000 in his last financial year, but expects that to have increased this year due to the price spikes.
+
+Earlier this year, the head of the National Business Crime Centre, Superintendent Lisa Maslen, said fuel theft placed an "unacceptable strain on fuel retailers" and also put "additional demand on policing resources".
+
+She said police forces were taking a "proactive approach to tackling this issue, working to identify offenders, disrupt repeat behaviour and ensure those responsible are held to account".
+
+No evidence of widespread fuel price-gouging, watchdog says
+
+At the weekend, the new Chancellor, John Healey, vowed the government would act on any price gouging by retailers.
+
+He told the Sunday Telegraph there was no significant evidence of this but he would be "watching closely" for any suggestion the public were being "taken for a ride at the pump or the till".
+
+Earlier this year, former Prime Minister Sir Keir Starmer and some of his ministers said the government would step in if customers were being ripped off by fuel retailers.
+
+The remarks led to a row. Fuel retailers have denied accusations of price gouging, with the Petrol Retailers Association (PRA) criticising the government's "inflammatory language".
+
+The Competition and Markets Authority said in May there was no widespread evidence of price gouging in the weeks after the conflict.
+
+But it said it was investigating why fuel margins increased between February and March for two supermarkets and three non-supermarket retailers.
+
+The PRA was approached for comment regarding Healey's remarks.
+
+The British Retail Consortium said in response that competition between supermarkets has kept prices as low as possible â not government intervention.
+
+It added many of the extra costs pushing up prices have come from higher National Insurance contributions, increased packaging taxes and failing to reform "outdated" business rates.
+
+"Despite these pressures, retailers will continue to do everything they can to deliver great value for customers," added Andrew Opie, BRC director of food and sustainability.
+
+Additional reporting by Katie Thompson and Phil Mackie
+
+Do you have any views, comments or questions about this story?
+
+UK petrol prices hit highest level since Iran war began
+
+Petrol retailers in row with government over 'rip off' accusations
+
+Forecourt fuel thefts rise as petrol prices soar
+
+Get our flagship newsletter with all the headlines you need to start the day. Sign up here.
+
