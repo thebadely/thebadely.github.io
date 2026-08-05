@@ -1,0 +1,83 @@
+---
+layout: post
+title: "Big News: Why Trump Media's sale of fast access to market-moving social posts is controversial"
+date: 2026-08-04T13:53:41
+author: "badely"
+categories: [Business]
+tags: []
+excerpt: "Trump Media & Technology Group (TMTG) has set up a paid service to give Wall Street firms access to Truth Social's most influential accounts."
+image: assets/images/9f7b63a6858a4338824eed31bd541d17.jpg
+---
+
+Experts revealed that This video can not be played
+
+Why is Trump Media selling early access to Trump's Truth Social posts?
+
+When Donald Trump speaks, financial traders are among the keenest listeners. 
+
+From trade wars to military wars, anything the US president says can shift markets, and so teams of traders - as well as a host of automated computer systems - monitor his statements to perform trades within seconds.
+
+Trump Media & Technology Group (TMTG) now wants to charge for such market-moving information put out on its Truth Social platform. It has launched a paid service to give Wall Street firms and institutional investors the "fastest access" to the social media site's most influential accounts.
+
+TMTG has not directly said the service includes the account of the president himself, but with some 13 million followers - the most on the site - it's fair to say that his posts would be among, if not the, most influential.
+
+However, the move has prompted a series of legal questions and ethical musings, including whether it is right that a company - of which the president's family remains the majority shareholder - stands to profit from his own public statements.
+
+The service launched by TMTG is called Truth API. It is a new data feed that provides real-time access to posts in "milliseconds" from the "highest-ranking Truth Social accounts".
+
+The service was anticipated to become available to institutional customers on 1 August. The Financial Times reported, external that customers could be charged as much as $100,000 a month for high-speed access, but TMTG has not confirmed the figure.
+
+TMTG says it expects it to create a steady source of new revenue for the firm, which is currently loss-making.
+
+While anyone can pay for the service, it is mainly designed for so-called high-frequency and algorithmic trading firms - those TMTG states are "most impacted by the cost of a delay in information".
+
+For these firms, financial trading is automated. Electronic systems using algorithms buy and sell much faster and at a greater scale than humans, according to Charles Schwab. It is a case of "blink, and you'll miss it", the investment bank says.
+
+"Such systems are often designed to make just a tiny profit on each transaction, but through sheer speed and volume, they can generate large returns for their firms," it adds.
+
+Trump Media to sell instant access to 'market-moving' social posts
+
+Since Truth API was announced, some have raised the potential for insider trading to occur. The practice, which is illegal, involves people making market trades or bets based on information that is not available to the general public.
+
+Richard Painter, former chief ethics lawyer to President George W Bush, told the BBC even if Trump does not trade himself on US government information, there was the so-called "tipper-tippee liability" under insider trading laws.
+
+"If I have information that belongs to the United States government that I'm not allowed to trade on, and instead of trading, I simply give the information to someone else who pays me for the information and they trade and I know they're likely to trade, then I am also guilty of insider trading and so are they," Painter says.
+
+"This is the law that applies to the president and to everyone else," he adds.
+
+Painter says the law would only apply to certain subject matters and potential posts, such as what the president intends to do with tariffs, wars or other US policy.
+
+"If I were commissioner of the SEC, I would threaten to resign unless they put a stop to this plan or promise that no posts... that have to do with US government business [will be included]," he says.
+
+Political opponents of the president have criticised the service. Democratic Senators Elizabeth Warren and Adam Schiff have written to the US securities regulator to ask if it will investigate whether Truth API breaks the law.
+
+The Securities and Exchange Commission (SEC) has confirmed receipt of the letter, but has declined to comment on whether it will investigate.
+
+A spokesperson for TMTG said in response to the letter sent to the SEC that Senate Democrats "continue to mischaracterise Truth API either out of ideological opposition to free markets or a failure to grasp the distinction between public and non-public information - or, quite possibly, both".
+
+TMTG has also said "the Senators must have invented a new theory of 'insider trading' based on publicly available information".
+
+Joe Saluzzi, co-founder of Themis Trading, though, points out that many other data providers, news organisations and stock exchanges currently operate similar services, suggesting that provides a "precedent" for TMTG.
+
+However, he adds: "There's a different story when it comes to ethics."
+
+Trump, who owns about 41% of Trump Media through a trust his children oversee, does stand to profit from the service. 
+
+"This appears to be an outrageous abuse of the President's office for his personal benefit that undermines everyday investors and the integrity of our markets, while enriching Wall Street and other wealthy insiders," Warren and Schiff said in their letter to SEC.
+
+There has been a wall of silence in terms of who has signed up to the service so far.
+
+TMTG says it had customers register in advance of the launch date, but has not revealed how many.
+
+Saluzzi from Themis Trading told the BBC that Truth API was "worthless" to trading firms, including his own, which did not have the complex systems already set up to perform transactions at "nanosecond level fast".
+
+He suggests high-frequency trading firms (HFTs) would be among the most likely to sign up, not only because of the money-making potential, but also because they'll be thinking "if I don't do it, somebody else will".
+
+"This is not for retail [investors], this is not even for sophisticated institutional investors," he says. "This data feed is for high-speed traders who have the systems in place and have spent millions and millions of dollars building the systems."
+
+The BBC contacted some of the major US investment banks and high-frequency trading firms, from Goldman Sachs and JP Morgan to Citadel Securities and Jane Street to ask if they had, or planned to, sign up. 
+
+All either declined to comment or did not respond. The White House also declined to comment.
+
+"Nobody wants to talk about this stuff," says Saluzzi. 
+

@@ -1,0 +1,119 @@
+---
+layout: post
+title: "Breaking: Drinking culture embedded in cricket - Stokes"
+date: 2026-08-04T12:16:46
+author: "badely"
+categories: [Sports]
+tags: []
+excerpt: "Ben Stokes says drinking is embedded in cricket, but does not believe the England team he led has a problem with alcohol."
+image: assets/images/98700976b61d8c0220b70adac2b48788.jpg
+---
+
+According to new developments, Ben Stokes played 122 Tests, 114 one-day internationals and 43 T20s for England
+
+Ben Stokes says "cricket has a drinking culture and that has not changed", but does not believe the England team has a problem with alcohol.
+
+Former England captain Stokes, 35, announced his shock retirement from international cricket in June - during the third and final Test of the series against New Zealand.
+
+The all-rounder's departure came weeks after he missed England's second Test against the Kiwis following an incident in a London nightclub involving him and bowler Gus Atkinson.
+
+That was the latest in a number of off-field episodes involving the England team.
+
+A midnight curfew was introduced following the Ashes tour, with the policy updated to advise England players to avoid drinking alcohol on the day before and the day after matches - following the incident involving Stokes and Atkinson.
+
+Asked whether the England team had a drinking problem, Stokes told the For the Love of Cricket podcast:, external "No, that is such an extreme thing to put on a team."
+
+He added: "I think cricket has a drinking culture and that hasn't changed.
+
+"We are in 2026 now, where the game has gone more professional over the years, and one thing that has just stayed within cricket is its relationship with alcohol - from club cricket it works its way up. It has just stayed there and has been embedded within the sport.
+
+"The relationship between alcohol and cricket is just something that hasn't moved on as the game has become more professional.
+
+"For people who think the English cricket team has a drinking culture, I would say no. I would just say cricket has a culture that is associated with alcohol."
+
+Booze, beach, beaten - how England lost the Ashes
+
+England advised to avoid alcohol around matches
+
+Stokes was found not guilty of affray in a high-profile trial in 2018, after being involved in a fight outside a nightclub in Bristol.
+
+He told the court that he had been drinking but was not drunk.
+
+Stokes said he gave up alcohol for a period when he was recovering from injury in 2025.
+
+He previously said that, while it was unlikely that he would give up alcohol entirely, he had learned to manage his behaviour with it.
+
+"I think it can be a problem. I don't know what you do to change it," he added.
+
+"I've had, I don't want to say problems, but I've had relationships with alcohol at times over my career that have been potentially dangerous, if that makes sense. But that is completely different to me now.
+
+"There's this relationship with alcohol within cricket that has been the same from the 1980s. As the game has got better and better, that thing has stayed around. That is my opinion on cricket and alcohol."
+
+Speaking to former England team-mates Stuart Broad and Jos Buttler, Stokes said he would love to become coach of the national team in the future.
+
+"I'm doing my level three coaching now while I'm still playing, because I want, when the day comes that I'm not playing any more, I'd love to be able to have all that stuff signed off and done," said Stokes.
+
+"I know what I want to do in terms of staying within the game, which is to be a coach. And would I love to be coach of England one day? Absolutely.
+
+"I just really like the idea of being, again, like, in some form of leadership away from playing."
+
+Fleming new England Test coach with Root captain
+
+Root in 'very different place' over Test captaincy
+
+Stokes return would not surprise England chief Key
+
+England were beaten 2-1 by New Zealand and the series defeat followed the 4-1 Ashes loss in Australia, meaning they have not won a Test series since late 2024.
+
+Stokes has rejected suggestions he could reverse his England retirement for the 2027 Ashes and, when asked whether he had definitely retired, Stokes said: "Definitely".
+
+He also expressed surprise at Harry Brook not replacing him as England Test captain.
+
+Batter Brook, 27, was promoted to Test vice-captain for last winter's Ashes tour - before it emerged that he had been struck by a nightclub bouncer in Wellington the night before a white-ball game in New Zealand in November.
+
+However, Joe Root was given the Test captaincy for the second Test against New Zealand, which Stokes missed, and has now been given the role permanently.
+
+Stokes had backed Brook, who leads the white-ball sides, to succeed him in the role.
+
+"I think just if you think someone's going to be a good captain or a good leader, then just give them it," said Stokes.
+
+"I understood the reasoning but I was still like, well, what message is that sending to him?
+
+"He's vice-captain. And then the captain is not playing, but he's not captain. What?"
+
+Root's first spell as Test captain was between 2017 and 2022 and he captained England to a record 27 Test wins in 65 matches.
+
+He will work with new England Test coach Stephen Fleming, the former New Zealand captain, in the role.
+
+Root stepped down from his first stint as skipper in April 2022, following a 10-wicket defeat by West Indies.
+
+At that time, England had won just one of their past 17 Tests, including a 4-0 Ashes humbling in Australia, while also navigating Covid restrictions - with Root saying the job "took its toll" on his health.
+
+"I wish him [Root] nothing but success. I hope he goes on and achieves amazing things in his role as captain and I think he's going to really enjoy it with Flem [Fleming]. He's a great man," said Stokes.
+
+"I've worked with Flem before but I told Joe, I said my only worry is just you. And that's all I really care about now, just because I have seen what he went through and how much he put himself through for someone.
+
+"He's just always put the team first - he always comes second. And that's just my only concern with it, is just obviously knowing what he went through last time he was in charge of the team. I don't want to see that ever happen again because I care for Joe a lot, but I wish him all the success in the world.
+
+"I'm sure he's going to do great. So I'm looking forward to seeing what the team does going forward."
+
+Fleming replaced Brendon McCullum as coach of England's Test team.
+
+McCullum was fired following a string of poor results and several off-field incidents involving his players, but remains in charge of England's white-ball sides. 
+
+There were rumours of a rift between him and Stokes during the latter stages of their time together for England, but both have denied that was the case.
+
+McCullum said he told his former captain that he considered him a "good friend", while Stokes said the pair are "mates".
+
+"We never once fell out," said Stokes.
+
+"Did we have discussions with each other that we had different views on and different opinions on? 100% and we both admit that. I think Baz has even said that himself.
+
+"Did we have a fallout? Absolutely not."
+
+Stokes created moments and the moments are no more
+
+'In emergency, break glass' - England seek stability in Root
+
+Get cricket news sent straight to your phone
+
