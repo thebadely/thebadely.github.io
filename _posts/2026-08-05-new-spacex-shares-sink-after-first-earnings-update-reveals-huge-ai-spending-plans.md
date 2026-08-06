@@ -1,0 +1,71 @@
+---
+layout: post
+title: "New: SpaceX shares sink after first earnings update reveals huge AI spending plans"
+date: 2026-08-05T14:04:43
+author: "badely"
+categories: [Technology]
+tags: []
+excerpt: "Elon Musk told investors that people were 'underestimating' his company."
+image: assets/images/4872c2ccac1f8ff39d8ae1be1ab1a195.jpg
+---
+
+Let's dive into the details: Elon Musk's SpaceX in June became a publicly traded company.
+
+Shares in Elon Musk's SpaceX tumbled after the company's first-ever earnings report revealed a huge jump in spending on artificial intelligence, spooking investors.
+
+While the firm's quarterly revenue had nearly doubled to $7.8bn (Â£5.8bn) from a year earlier, its spending ballooned to $18.3bn, more than six times what it was a year ago, the bulk of which was for AI.
+
+The firm builds space rockets and Starlink internet satellites as well as owning the social media platform X. It began trading on the US stock market in June.
+
+Its stock fell 9% on Wednesday morning. Musk said during an investor call after the results that people seemed to be "underestimating" SpaceX.
+
+Overall SpaceX made a net loss of $143m in the three months to June, and a loss of $2bn during the first six months of the year.
+
+However, Musk cited Starlink, the one part of the company that is currently making a profit, bringing in $1.6bn in the second quarter. Musk said he expects that business to grow exponentially in the coming years.
+
+"It's not out of the question that, at some point, Starlink will operate most of the world's internet," Musk said.
+
+He also spoke of an expected and rapid growth of SpaceX's emerging line of business selling compute power needed for artificial intelligence (AI) projects to other companies, which currently include Google and Anthropic.
+
+Although SpaceX currently has 1.4 gigawatts of such compute power ready to use, Musk said that sometime next year that capacity should hit at least 10 gigawatts through its ongoing development of data centres.
+
+Musk said during the call: "Data centres are a trivial problem compared to making reusable rockets." 
+
+Making rockets is SpaceX's core business, but the company's space segment showed a $542m net loss against $962m in revenue for the second quarter.
+
+SpaceX's AI business also lost $1.2bn during the quarter, on revenue of $2.5bn.
+
+Bret Johnson, head of finance for SpaceX, said during the call that the company's capital spending would continue at a "very similar" level for the rest of the year. 
+
+Nevertheless, Musk said that SpaceX would likely hit $1tn in revenue by 2030, a year earlier than he thought just six weeks ago.
+
+Despite this optimism, shares of SpaceX fell in after hours trading on Tuesday, wiping out gains made during the day.
+
+Matt Britzman, senior equity analyst at Hargreaves Lansdown, said that because Musk was going "all in" on data centres, the company "could soon resemble an AI infrastructure company with an extraordinary space business attached".
+
+"Analysts are still trying to work out what the business should look like, while Elon Musk is already describing what it might become over the next decade," he said.
+
+"Starship and the next generations of Starlink remain critical to the post-2030 vision, but the financial engine over the next few years will increasingly be AI."
+
+Responding to Musk's comment that investors were "underestimating" the firm, Brady Wang from Counterpoint Research said the subscription numbers for Starlink are "strong", but it is the only SpaceX business unit making an operating profit.
+
+The firm's AI business is still losing money as spending rises, so it is "a stretch" to say the whole company is being underestimated, said Fabien Yip, an analyst from investment platform IG.
+
+Wendy Souvannarath, the chief executive of CarrÃ© Partners, which has invested in SpaceX, told BBC News that "every tech giant is spending like this right now" on AI.
+
+She told the Today programme that SpaceX was treating its investment in AI as a running cost and expects it to pay for itself within a year.
+
+Souvannarath said that even though "Elon Musk will always be Elon Musk", she remained convinced by SpaceX.
+
+"There is fact, there [are] figures, there is a vision that we can see," she said.
+
+"Half the planet has bad internet because cables never reached them. So basically Starlink puts the network in the sky instead."
+
+Controversies around Musk's politics have moved the needle for some investors before and remains a "live risk" for SpaceX too, Yip added.
+
+SpaceX has struggled to hold on to investor enthusiasm despite making history with the largest-ever public listing and then briefly eclipsing the market valuation of established titans like Microsoft and Amazon.
+
+Shares of the space technology company have steadily drifted down in price since reaching an on-the-day high of $176 in June. 
+
+It has been trading lower than its original $135 per share debut price for the last several weeks.   
+
