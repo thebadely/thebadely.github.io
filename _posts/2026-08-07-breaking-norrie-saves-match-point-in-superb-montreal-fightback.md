@@ -1,0 +1,59 @@
+---
+layout: post
+title: "Breaking: Norrie saves match point in superb Montreal fightback"
+date: 2026-08-07T06:56:04
+author: "badely"
+categories: [Sports]
+tags: []
+excerpt: "Britain's Cameron Norrie saves a match point as he produces a superb fightback to beat world number seven Alex de Minaur at the Canadian Open."
+image: assets/images/a1b555f753d487dd45ffc852a4742d4d.jpg
+---
+
+According to new developments, Cameron Norrie has won six of his past seven matches
+
+Britain's Cameron Norrie saved a match point as he produced a superb fightback to beat world number seven Alex de Minaur at the Canadian Open.
+
+Norrie was a set and 5-2 down against the Australian third seed before coming through 5-7 7-6 (7-5) 6-1 to reach the fourth round.
+
+De Minaur, leading by a double-break, had a match point on his own serve in the second set but double-faulted.
+
+He twice served for the match but, at 5-4 up, double-faulted again to put the set back on level terms.
+
+World number 37 Norrie edged the tie-break and then ran away with the deciding set to complete victory in two hours and 52 minutes.
+
+"It was a great match to win and to test my level, and I can take so much confidence from this one," the 30-year-old said.
+
+"The level was so high the first two sets. 
+
+"From the beginning, [de Minaur] came out firing and I had to match it."
+
+Norrie - who reached the Los Cabos semi-finals last week - will face France's Arthur Fils for a place in the quarter-finals.
+
+De Minaur's exit means that fifth seed Ben Shelton is the only top-10 men's player remaining in Montreal.
+
+World number one Jannik Sinner and third-ranked Novak Djokovic withdrew before the tournament began, while top seed Alexander Zverev lost his first match.
+
+Sixth-ranked Daniil Medvedev, seventh seed Taylor Fritz and world number nine Flavio Cobolli also all lost in the second round.
+
+Tearful Draper struggles during comeback defeat
+
+114 days and counting - how damaging is Alcaraz's wrist injury?
+
+In the WTA 1000 event, which takes place in Toronto, world number one Aryna Sabalenka continued her strong hard-court record to reach the fourth round.
+
+Sabalenka has lost just once in 26 hard-court matches this season - in January's Australian Open final against Elena Rybakina.
+
+The Belarusian beat China's Zhang Shuai 6-3 6-4 and will face 16th seed Ekaterina Alexandrova of Russia next.
+
+Seventh seed Iga Swiatek beat Viktorija Golubic 6-2 6-1 in just 66 minutes to set up a meeting with Ukraine's Marta Kostyuk.
+
+Kostyuk, who beat Swiatek in the French Open fourth round in June, dismantled Madison Keys 6-3 6-1.
+
+Third seed Jessica Pegula claimed her 40th match win of the season as she beat Kamilla Rakhimova 6-4 6-0 either side of a rain delay.
+
+Eight of the top-10 players are still in the women's event. Wimbledon champion and  sixth seed Linda Noskova lost in the second round, while seventh-ranked Karolina Muchova missed the event with injury. 
+
+Live scores, results and order of play
+
+Get tennis news sent straight to your phone
+
