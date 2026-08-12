@@ -1,0 +1,59 @@
+---
+layout: post
+title: "Update: Russia releases former US Marine updateed in poor wellness"
+date: 2026-08-11T23:33:45
+author: "badely"
+categories: [News]
+tags: []
+excerpt: "Robert Gilman, who was arrested in 2022, was left in 'life-threatening condition' after being subjected to 'harsh and abusive treatment', his family s"
+image: assets/images/88e213aa01fbd7bf3e8376b94865f186.jpg
+---
+
+Here’s what you need to know: President Donald Trump said a former US Marine held in a Russian prison, whose health was reportedly in extremely poor condition, has been released.
+
+"After my discussions with President Vladimir Putin, Russia has agreed to release him, very much on a Humanitarian Basis," Trump wrote on Truth Social, adding that no prisoner swap took place.
+
+Robert Gilman, who is from Massachusetts, was arrested in 2022 for allegedly kicking a police officer while aboard a train. He had recently been moved from prison to a civilian hospital in Russia after going into a catatonic-like state.
+
+Gilman was on a flight back to the US accompanied by his mother, doctors, and members of the administration.
+
+The BBC understands Gilman is expected to arrive early on Wednesday morning at a US military hospital in Texas where he will be assessed and treated.
+
+Trump said he spoke to Gilman on the phone, "and he had one request â A GREAT cheeseburger when he lands. I will take care of that!"
+
+ "During my Administration, we have prioritised bringing home Americans detained abroad, and have done so at a level never seen before," Trump added.
+
+This video can not be played
+
+Watch: Robert Gilman "as good as can be expected" after release from Russia
+
+Gilman's health was in "life-threatening condition" after he was subjected to "harsh and abusive treatment", his family said in a statement.
+
+"The Russians treated my brother so badly. They hurt him for no reason, other than that he was both and American and a Marine," his sister, Lexi Hudson, said.
+
+"I am so grateful to President Trump for saving my brother's life," she added.
+
+Massachusetts Senator Ed Markey also helped secure her brother's release, she said.
+
+In a statement, Markey said: "Approximately 50 days ago, Robert was diagnosed with a dissociative stupor - a condition where he is non-responsive and unable to interact or eat. " 
+
+Robert Gilman on his flight home from Russia to the US
+
+Kieran Ramsey, chief investigative officer for Global Reach, the advocacy group representing the former Marine, told Reuters that Gilman was released because the Russian government realised "they're not losing any geopolitical power position by releasing him. This is a humanitarian release".
+
+Gilman served in the US Marines for a year until August 2020.
+
+He was arrested for allegedly kicking a police officer while drunk aboard a train to Moscow in January 2022 and was initially given a sentence of three and a half years.
+
+He was later found guilty of assaulting prison guards, after he allegedly attacked a prison inspector during a cell check. His sentence was increased to 10 years.
+
+In Russian confinement, Gilman was subjected to repeated harassment, including forced exercise training sessions that lasted up to 16 hours and the administration of psychotropic drugs, Eric Lebson of  Global Reach told CBS, the BBC's US media partner.
+
+The abuse was so severe that at one point Gilman had required a feeding tube in his nose, according to Lebson.
+
+He said five other Americans remain in Russia, each contending with medical issues. Their names are Aleksandr Antonov, David Barnes, Olga Jezler, Andre Khachatoorian and Chuck Zimmerman.
+
+"While we appreciate this positive step, we are still seeking the immediate return of all other unjustly detained Americans," Secretary of State Marco Rubio wrote on X.
+
+"The President will not stop until all unjustly detained Americans are home," he continued.
+

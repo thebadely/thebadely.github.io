@@ -1,0 +1,71 @@
+---
+layout: post
+title: "Latest: PM admits cost of living help is not enough and hints at further support"
+date: 2026-08-12T04:13:45
+author: "badely"
+categories: [Business]
+tags: []
+excerpt: "The PM has announced a rake of measures to help people since taking office three weeks ago."
+image: assets/images/1ce42c7a8c1088da5dae0f4cd43df465.jpg
+---
+
+Experts revealed that The prime minister said he understood that his cost-of-living announcements were not enough to meaningfully help people
+
+Prime Minister Andy Burnham has said he accepts his announcements aimed at tackling the cost of living are not enough on their own and hinted at further support. 
+
+Burnham told BBC's Wake up to Money he will deliver an "accumulation of smaller things" that "combine to take the pressure down" on household budgets.
+
+He spoke of an overhaul of train fares and "more public control" of energy, water and housing but did not give details on how he would bring this about.
+
+Burnham has made a number of announcements to help people with the cost of living since taking office, including the removal of VAT from domestic electricity bills and bringing forward an already planned end to 'subscription traps'.
+
+Asked whether the changes he had announced were not significant to people struggling, he said: "I can accept criticism that this isn't enough, because I wouldn't say it's enough.
+
+"But I take an approach to politics where I do what I can, when I can. Just take that little bit of pressure off and address an issue that you know needs addressing. 
+
+"It's not the end of the story," he added.
+
+The prime minister, who is embarking on a tour of the UK while Parliament is in recess, said he believed "more public control of essential services" such as water, energy and housing, "would mean we could get to a more substantial answer to the cost of living crisis".
+
+On water, he said it would not be easy to reverse the privatisation of water companies in England and Wales that took place in the 1980s. 
+
+"But very much, I'm looking at what can be done. Same with energy."
+
+He also said that, following the return of rail operators to public ownership, he wanted to "remodel the rail fares so that we can get more public benefit for people".
+
+It comes as the government said on Wednesday that people living within 1,600ft (500m) of new upgraded electricity pylons and substations across Britain will receive a Â£250 annual discount on their bills for a decade. 
+
+Andy Burnham: Wake Up to Money
+
+The prime minister tells Wake Up to Money that the increase to national insurance has "added pressure" to businesses.
+
+Burnham told the BBC he has asked Chancellor John Healey to look at what the government can do further on the cost of living in the upcoming Budget, on 28 October, and that Healey has said it will be his "main focus". 
+
+Healey has made it clear he will oversee "strong fiscal discipline" â which will limit how much the government has to spend.
+
+One major think tank recently warned that he will have to raise taxes or cut spending to meet Burnham's pledges on defence and the cost of living.
+
+Labour's manifesto pledge was to not increase taxes for working people â including income tax, VAT and National Insurance Contributions (NICs) - which Burnham has said he will uphold.
+
+He will likely face pressure to address rising costs for businesses, after previous budgets under Rachel Reeves saw employer's national insurance and minimum wages go up.
+
+Last month Burnham said pubs, social clubs and live music venues in England would be given a 20% cut to business rates from April, calling it a "first step" to help the industry.
+
+He told the BBC he accepted the national insurance hike had added pressure on businesses, and that the government would look at business rates "more broadly".
+
+Burnham said: "I would like to bring down the cost of doing businesses. I want to make high streets more vibrant across the country. I know that cannot be done by simply wishing it."
+
+But he said he did not want to "at this point, start making commitments".
+
+"Those are for the Budget."
+
+Have you been affected by the issues discussed in this story?
+
+Andy Burnham to embark on cost of living tour through the UK
+
+First 'pounds for pylons' energy bill discount sites revealed
+
+Ban on 'subscription traps' brought forward by three months
+
+Stick to spending limits, PM and chancellor tell ministers in joint memo
+
