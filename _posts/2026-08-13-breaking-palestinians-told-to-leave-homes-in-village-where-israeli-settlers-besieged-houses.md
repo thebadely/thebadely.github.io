@@ -1,0 +1,111 @@
+---
+layout: post
+title: "Breaking: Palestinians told to leave homes in village where Israeli settlers besieged houses"
+date: 2026-08-13T20:12:17
+author: "badely"
+categories: [News]
+tags: []
+excerpt: "The mayor of Qusra says Israeli troops have been telling families to leave their houses, using some as barracks."
+image: assets/images/893d158d514c98f887667f732979eba0.jpg
+---
+
+Here’s what you need to know: The Israeli military said the aim of the operation was to protect the residents
+
+About a dozen Palestinian households in a village in the occupied West Bank were told to leave their properties during an Israeli military operation to remove Israeli settlers.
+
+The settlers had besieged residents in three homes in the area since Sunday, cutting off their power and water supplies. 
+
+Qusra Mayor, Abdel Azim Wadi, told the BBC that his village had been declared a closed military zone - and Israeli forces were using some of the vacated Palestinian houses as barracks. The Israeli military said the aim was "to protect the residents".
+
+An Israeli spokesman told the BBC the settlers' action was "deplorable" and "unacceptable" and the government would investigate and arrest those responsible.
+
+"The Israeli army is acting against it, and we are investigating it and we will arrest those responsible and we will prosecute them," David Mencer said.
+
+Settlers have been emboldened by the rapid expansion of settlements under the current Israeli government â leading to a dramatic rise in settler violence as they try to drive Palestinians off their land. 
+
+All settlements are illegal under international law. 
+
+Of the besieged families' three homes in Qusra, which are made up of the Abu Ridi and Hassan families, the residents of two were told to leave on Thursday, they told the BBC. They said those told to leave had since moved into the third house.
+
+Elsewhere in the village, the residents of 11 other houses had also been told to leave by the army.
+
+The Israeli army entered Qusra after three Palestinian homes were besieged by Israeli settlers on Sunday
+
+Earlier, videos shared from Qusra overnight into Thursday showed a dozen Israeli security vehicles â including a bulldozer. 
+
+In later footage â filmed in the daylight â there was a long line of Israeli security forces on the road to the Palestinian village.
+
+The Israel Defense Forces (IDF) said they had "dismantled two illegal outposts".
+
+It added that it had detained one Israeli and confiscated equipment on the outskirts of the Qusra and Jalud areas, near Nablus.
+
+One of those asked to leave their home was Qaher Odeh, who said more than 20 soldiers had entered his house on Thursday morning. 
+
+"I was asleep in the morning, my brother and I. They came in and broke down the door, shouting open up, open the door. Even now I still can't process what I saw in front of me. There was more than 20 of them, maybe 30," he said.
+
+"We left and kept walking down towards the lower part of the neighbourhood. Shortly afterwards, they sealed off the entire area.
+
+"There were people being forced out of their homes. A lot of people," Odeh added.
+
+After around 10 hours some families were allowed to return to their homes but found them upturned. One man told us the soldiers had thrown all the food out the fridge and stolen $1,500 in cash (Â£1,112).
+
+The IDF did not address the allegations when asked by the BBC. 
+
+"The soldiers were instructed that the Qusra residents will remain in their homes," the IDF said.
+
+It added that soldiers would not operate inside the Palestinian home that had been subject to the settler's siege. 
+
+The IDF stressed that Israeli "liaison officers are in ongoing contact with Qusra's local leadership and are working to avoid disruption to the daily lives of the residents in the area".
+
+Qusay Abu Ridi, one of the trapped Palestinian family members, told the BBC that the house had been attacked again overnight and that a few settlers had remained in the area, hiding from the army. 
+
+His brother â who owns the property â is a Palestinian-American businessman who had complained to the US embassy. 
+
+The US Ambassador Mike Huckabee â a longstanding supporter of settlements â called the settler intimidation of the Qusra families "a horrific act of terror.
+
+"Actions by those who carried out this horrific act of terror meant to intimidate and harass this family are disgusting. No excuse for such thuggish behavior," he posted on X.
+
+This video can not be played
+
+Watch: How Israeli settlers are besieging Palestinian family homes in West Bank
+
+The situation in Qusra first began on Sunday when settlers blocked the road to the Palestinian families' gates and cut off their power and water supplies. The first Israeli soldiers who came to the site prayed with the settlers â an act for which the Israel military later said they would be disciplined. 
+
+The Abu Ridi and Hassan families made appeals for help on social media after their water and power supplies were cut off on Sunday.
+
+On Wednesday an attempt by Israeli security forces to dislodge the settlers led to confrontations with a bigger group.
+
+Palestinian security camera video shared with the BBC showed confrontations between Israeli soldiers and border police and a large crowd of settlers. The security forces used tear gas and stun grenades.
+
+In other footage, the Israeli forces appear to have confiscated the canopy under which the settlers were sheltering, while leaving their other equipment.
+
+It is not clear exactly what the settlers in Qusra want. In the past, settlers have forced Palestinians out of their homes and seized their properties.
+
+The stated aim of the settlers is to empty the area of its Palestinian residents.
+
+Settlements are illegal under international law, but the Israeli government has promoted their recent rapid expansion.
+
+The case is the latest to draw attention to the relative impunity of settlers and how Israeli forces are struggling to deal with rising settler violence.
+
+Qusra's mayor had earlier told the BBC that local residents had seen "a clear and sustained pattern of targeting Qusra". Last month a newly completed mosque was set on fire with graffiti in Hebrew sprayed nearby.
+
+That settler attack was one of many that followed on from an incident in the Palestinian village of Tal. After Israeli settlers attacked Tal, it triggered an escalation in which six people were killed - four Palestinians and two Israeli soldiers â one of whom acted as a security coordinator for a nearby Israeli settlement.
+
+In July, settlers also surrounded a Palestinian home in the village of Jalud, near Qusra, for more than two weeks. Afterwards, the owners fled and settlers took over the property where they remain until now.
+
+According to the UN's figures, 76 Palestinians â including 18 children - have been killed in the West Bank this year, by Israeli forces or settlers. At the same time, three Israelis â including one civilian â were killed in confrontations with Palestinians and in an alleged ramming attack by a Palestinian in the West Bank.
+
+Since January 2023, 127 Palestinian communities in the West Bank have experienced full or partial displacement, including 47 that have been entirely displaced, affecting more than 6,390 Palestinians, the UN says.
+
+It has registered that in 2026, about 3,800 Palestinians, nearly half of them children, have been displaced due to settler violence, demolitions and evictions.
+
+Speaking at the UN meeting, Israel's Ambassador to the UN, Danny Danon dismissed the idea that settlements were an obstacle to peace. He said that they would remain and continue to grow as his country had biblical, historic and legal rights to the land.
+
+He said that the Security Council "must understand a simple truth: we are not going anywhere".
+
+Israeli settlers besieging Palestinian families in West Bank village
+
+Israeli West Bank settler tells BBC attacks on Palestinians are justified as revenge
+
+'Israeli settlers laid siege to our home': Inside a Palestinian village under weekly attack
+
