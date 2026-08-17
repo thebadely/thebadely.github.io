@@ -1,0 +1,75 @@
+---
+layout: post
+title: "New: UK to turn cooler with rain after exceptional heat and dry spell"
+date: 2026-08-17T02:08:56
+author: "badely"
+categories: [News]
+tags: []
+excerpt: "After and exceptional summer of heatwaves and drought, the weather will turn wetter and cooler this week, as Simon King explains"
+image: assets/images/121edc05dd034f8a903591e86f3789b7.jpg
+---
+
+Here’s what you need to know: Rain forecast to hit this week will be welcome for many
+
+UK weather patterns are set to change, following a record-breaking summer of extreme heat and prolonged dry weather.
+
+Wisley in Surrey has now notched up 60 days with no recorded rainfall. Significant rain has been lacking elsewhere with most areas of England and Wales in drought.
+
+There is some welcome rain forecast this week, though it's not likely to be significant or bring any change to the dry conditions.
+
+It will also turn noticeably cooler in the coming days with temperatures falling below average across the UK.
+
+Rainfall accumulation over the next five days shows a chance of some rainfall for most of the UK, though no significant amount in southern England
+
+High pressure has been dominant this summer leading to hot and dry weather, particularly across England and Wales.
+
+There's been no significant rain in southern England for around two months which has led water levels in our rivers and reservoirs to drop significantly. All of Wales and most of England are in drought.
+
+However, through this week high pressure will be replaced by the influence of low pressure and more unsettled conditions.
+
+Some light rain is likely on Monday, mostly across northern areas of the UK.
+
+Into Tuesday and Wednesday this will turn heavier and start to move into southern England.
+
+While rain is therefore finally going to fall across the south, it may become more showery. This means the exact location and distribution of rainfall is still uncertain.
+
+And while of course any rain will be welcome, it won't bring much improvement to conditions.
+
+It will take weeks of above average rainfall into the autumn to make any significant changes to the drought.
+
+However, it is likely to make a big difference to the emergency services who have been battling against the extreme weather and wildfires over the last few weeks.
+
+The fire severity index - how severe a fire could be, should one start - will come down to low or moderate, according to forecasts from Natural England and the Met Office.
+
+Fires prompt national alert as 19 homes destroyed
+
+Temperatures will fall below average - indicated by the blue hue on map above - through this week
+
+On Saturday the temperature peaked at 30.6C in southern England, making it the 40th day somewhere in the UK over 30C this year.
+
+It's looking unlikely temperatures will peak this high again for the rest of the summer, which meteorologically ends on 31 August.
+
+Temperatures on Monday and Tuesday will still be above average across England and Wales with highs of 20 to 26C.
+
+But they will drop during the rest of the week as a mostly northerly airflow starts to have more influence.
+
+By the end of the week, temperatures across the UK will be around 2 to 4 C below average. Something we haven't seen much - if really at all - this summer.
+
+Across Scotland and Northern Ireland temperatures will be around 14-17C and for England and Wales, 17-21C.
+
+Nights will become much cooler, and in some part, even colder, too.
+
+By Friday morning temperatures will be in single figures and as low as 3 or 4 C in parts of southern England.
+
+This drop in temperature might come as a bit of a shock for some after being accustomed to the hotter-than-average weather we've seen for weeks.
+
+There are no real signs of any hot spells or heatwaves returning.
+
+As for the beginning of September, which ushers in the start of autumn, there are some indications of a bit of warmth returning, though there is still a lot of uncertainty in the forecast computer models.
+
+You can keep up to date with the longer-range forecast in the monthly outlook.
+
+Summer 2026 on course to be UK's hottest on record, says Met Office
+
+How much rain will end the drought?
+
