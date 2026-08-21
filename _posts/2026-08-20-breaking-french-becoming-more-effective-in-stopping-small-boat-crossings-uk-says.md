@@ -1,0 +1,113 @@
+---
+layout: post
+title: "Breaking: French becoming more effective in stopping small boat crossings, UK says"
+date: 2026-08-20T22:23:24
+author: "badely"
+categories: [News]
+tags: []
+excerpt: "The Home Office credits France with intercepting hundreds of potential crossings this summer using new tactics."
+image: assets/images/ad71df5bbf143c7b9842d5f050650aab.jpg
+---
+
+According to new developments, This video can not be played
+
+French police slash migrant small boat
+
+French police tactics are becoming more effective in stopping small boats in the English Channel from reaching Britain, the Home Office has said. 
+
+It credits French authorities with intercepting 185 potential crossings involving 4,300 migrants this summer over four separate weeks, as well as stopping 12 boats at sea using new techniques.
+
+Footage released by French police shows officers racing across a beach in jeeps to intercept a launch. Once the boat is abandoned, an officer slashes it lengthways with a knife.
+
+The Conservatives described the announcement as a "joke" and said Channel crossing preventions were "down by half over the past year".
+
+Migrants can be seen throwing objects at the officers, one of whom appears to respond with pepper spray.
+
+While Channel crossings are down about 40% compared to last year, thousands of illegal migrants are getting through with 250 arriving on Monday.
+
+In late July a record 165 migrants reached the UK in a single boat with Border Security Command pictured towing a mega dinghy - estimated to be the same size as a standard bus at 13m (42ft) long - when it arrived in Dover on 23 July.
+
+The Home Office, citing French police figures, said that since it struck a deal with France three months ago which included additional funding for authorities, 61% of small boats have been intercepted - a five per cent increase compared to last year.
+
+Home Secretary Shabana Mahmood said the "UK-France deal is already having a real impact".
+
+The UK-France Border Security deal agreed in April under the Starmer government, includes Â£501m over three years to strengthen operations in northern France and Â£161m for new approaches.
+
+Previously the French authorities allowed most dinghies to head towards the UK once they had launched, because of the risk of intercepting them in deep water, while loaded with people.
+
+Of the 12 dinghies stopped so far at sea, three interceptions took place in the last two weeks.
+
+The techniques being used have not been disclosed by the UK or France.
+
+Charlie Eastaugh, director of maritime and small boats at the Border Security Command, told the BBC that "last Thursday alone, the French prevented all three of the boats that tried to cross".
+
+Speaking to the BBC at the Western Jetfoil facility in Dover used to process migrants, he said: "Two of those they prevented at sea, and one they prevented on land."
+
+Between 1 January and 8 August 2026, a total of 14,819 people crossed the English Channel by small boat from France. This was down by 43% on the same period the previous year.
+
+These crossings have become the most common way for people to be detected entering the UK illegally since 2020.
+
+Nearly all those who arrive by small boat claim asylum. Under international law, this means they are allowed to stay in the country while their asylum application is considered.
+
+Small boat arrivals made up 42% of asylum applications between April 2025 to March 2026.
+
+Boats that arrived in the UK from 9 August 2025 to 8 August 2026 carried an average of 67 people. This has more than doubled since 2021.
+
+Experts say overcrowding in boats makes crossings riskier. At least 84 people died while attempting to cross the Channel in 2024, according to the United Nations (UN).
+
+When looking at the scale of small boats crossings, the number of these arrivals is about 5% of the size of total immigration into the UK from January 2025 to December 2025.
+
+The government has pledged to âsmash the gangsâ behind these crossings in order to reduce the numbers.
+
+People from Eritrea accounted for 18% of all arrivals from April 2025 to March 2026.
+
+In the latest figures covering January 2025 to December 2025, at least 2,000 people who arrived by small boat were found to be potential victims of human trafficking or other forms of modern slavery, according to the Home Office.
+
+Another 4,535 people were detected entering the UK without permission via other methods including hiding in vehicles, travelling on ferries or through airports from April 2025 to March 2026. This was down by 22% on the same period the previous year.
+
+There are also individuals who arrive legally, for example via a work or study visa, and then overstay their limit.
+
+The total number of people who live in the UK illegally after arriving legally is not known.
+
+He said some had claimed bad weather was the biggest factor in a reduction of crossings this year.
+
+"But what that demonstrates is absolutely that the French are being effective in preventing a number of these small boats."
+
+"Clearly, every single day that one slips through the net and crosses, it's one too many, and that's why it's absolutely critical to us to not take our foot off the gas and to keep working hard with our French partners and stop this from happening."
+
+In the last week, 425 migrants made it across the Channel on five boats during three days of good weather.
+
+Stopping the trade in equipment for Channel crossings is the first layer of tactics being used by the UK and other countries.
+
+Dinghies, outboard engines, and life preservers have been seized by police in Germany.
+
+Nearer the coast, boats have been discovered buried on beaches and in cars heading for the coast.
+
+With less equipment available, people smugglers have resorted to using bigger boats.
+
+Earlier this month a "mega-dinghy", with 230 people on board, was intercepted in the Channel.
+
+The second layer is to stop migrants launching from beaches.
+
+In July last year a BBC team witnessed the police slashing an inflatable boat with a knife to prevent it being used. This technique is now being used more often.
+
+Interception at sea is the most difficult challenge. The UK government knows if it can prevent migrant boats getting into British waters, where the Border Force is legally obliged to pick them up, the incentive to try to cross will be reduced.
+
+The concern is that smuggling gangs will continue to adapt but Eastaugh told the BBC that changes to their methods demonstrated how hard they are finding it to operate.
+
+"That's why the numbers we're seeing are so successful, and we're absolutely not complacent, and we must keep working this way to keep the numbers down," he said.
+
+Shadow home secretary Chris Philp said: "The only way we can stop the crossings is by having a proper deterrent. If people know they can stay in the UK, get put up in a hotel and claim benefits then they will keep risking these dangerous journeys."
+
+Earlier this month Reform UK said if it was in power it would intercept boats crossing the English Channel and return migrants to French ports, even if France disagreed.
+
+The French interior ministry responded by saying it would "constitute a violation of French sovereignty".
+
+Get our flagship newsletter with all the headlines you need to start the day. Sign up here.
+
+Track UK's latest migration numbers - net migration, visas, asylum and small boats
+
+Burnham pledges to be 'relentless' in curbing small boat crossings
+
+France hits out at Reform UK plan to return migrants using Navy
+

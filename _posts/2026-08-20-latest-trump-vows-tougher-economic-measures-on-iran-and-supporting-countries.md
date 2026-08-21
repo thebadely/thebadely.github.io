@@ -1,0 +1,69 @@
+---
+layout: post
+title: "Latest: Trump vows tougher economic measures on Iran and supporting countries"
+date: 2026-08-20T22:18:56
+author: "badely"
+categories: [Business]
+tags: []
+excerpt: "It comes after a 60-day ceasefire expired on Monday, with no sign of a diplomatic or military off-ramp to the conflict."
+image: assets/images/667ef724d319025a2eb180feee4557cb.jpg
+---
+
+According to new developments, Donald Trump has said he will launch tougher economic measures against Iran, as well as any country that helps or does business with it.
+
+The US president wrote in all capital letters on Truth Social that he was launching "the most crushing economic operation ever taken against any country", without providing further details or the names of any nation other than Iran.
+
+It comes after a 60-day ceasefire formally expired on Monday without any sign of a diplomatic settlement to the war the US and Israel began at the end of February. Tehran said Trump's threat would only bring further animosity.
+
+If realised, it would extend a campaign of economic pressure on Iran aimed at forcing it into submission.
+
+The US launched a wave of sanctions on foreign banks and firms that do business with Iran in April when it became apparent that military action had not led to the overthrow of the regime in Tehran nor its surrender, as Trump had initially hoped.
+
+Conversely, since the start of the war, Iran has been able to stem the flow of marine traffic through the Strait of Hormuz, raising energy prices globally.
+
+Ahead of the US midterm elections in November, Trump is facing pressure over how much the war is costing American consumers.
+
+The US president wrote on Wednesday evening that he was launching "economic D-Day" on Iran because it had failed to make a deal with the US. 
+
+"ANY country that allows its financial institutions, businesses, airports, or government entities to provide any type of lifeline to Iran will itself face TREMENDOUS Economic Consequences," Trump said.
+
+He did not specify what punishment countries might face.
+
+Trump continued: "Oil smuggling, swap lines, cash transfers, exchange houses, ship registries, front companies - it all needs to stop NOW. You know who you are." 
+
+It comes a day after the United Arab Emirates (UAE), a US ally, announced it would be severing all financial and economic ties with Iran, following a new missile threat from the country. 
+
+The UAE's defence ministry said it had detected two ballistic missiles launched from Iran targeting maritime traffic, both of which landed in the sea.
+
+Iranian entities have long used Dubai's financial system to transfer money through exchange houses and shell companies.
+
+Following the UAE's decision, Iran's armed forces warned neighbouring Gulf states against providing support to the US military, saying any assistance would be considered collusion.
+
+While China was not named in the post, businesses there are the biggest buyers of oil from Iran, a key source of Tehran's funding.
+
+Since the start of the war, Washington has sanctioned several so-called teapot refineries - privately owned oil processing plants, mostly based in Shandong province, eastern China.
+
+At the time, China's Ministry of Commerce said the sanctions were "in violation of international law and the basic norms governing international relations" and ordered that the sanctions "shall not be recognised, enforced or complied with".
+
+In response to Trumpâs post, the Chinese embassy in Washington told the BBC: âSanctions and pressure do not help resolve the issue.â
+
+âChina calls on the relevant parties to take responsible actions and resolve the issue through political and diplomatic channels,â it added.
+
+Iran's Foreign Minister Abbas Araghchi said Trump's latest post was "a diversion" from America's own economic problems.
+
+"Doubling down on failed policies will only bring further defeat - and enmity of Iranians," he wrote on X.
+
+Operation Economic Fury, announced by the US Treasury Department and the Pentagon in April, aimed at degrading Tehran's warfighting capability by cutting off its revenue streams, and also included a naval blockade aimed at stopping Iranian exports.
+
+US Treasury Secretary Scott Bessent said last week that the US would soon impose economic isolation on Iran "like the world has never seen before".
+
+Trump recently also reportedly threatened to bomb Oman - a US ally - if it "gets in the way" of his administration's own talks with Iran.
+
+The US and Oman have been negotiating separately with Tehran to reopen the Strait of Hormuz, a vital trade route through which around 20% of the world's crude oil and liquefied natural gas usually flows.
+
+The BBC has contacted the White House and US Treasury Department for comment.
+
+As the US pauses the war with Iran, is Trump really running out of weapons?
+
+Trump's dramatic plane swap hints at personal stakes of Iran war
+

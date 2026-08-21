@@ -1,0 +1,137 @@
+---
+layout: post
+title: "Latest: What happened to Harry and Meghan's American dream?"
+date: 2026-08-21T02:57:34
+author: "badely"
+categories: [News]
+tags: []
+excerpt: "Harry and Meghan enjoyed some showbusiness success, but their Hollywood reign proved short-lived."
+image: assets/images/a51e140965aa614d14317eade340b7a2.jpg
+---
+
+Experts revealed that This video can not be played
+
+Watch: How Harry and Meghan are ending their 'American dream'
+
+When the Duke and Duchess of Sussex quit working for the Royal Family in 2020 and moved to California, they brought something even Hollywood can't manufacture: royalty.
+
+But while Harry and Meghan enjoyed some success in showbusiness, their Hollywood reign proved short-lived and California has greeted news of their departure back to the UK with a shrug.
+
+In pursuing their American dream, they said they were seeking more than financial independence.
+
+In their 2021 blockbuster interview with Oprah Winfrey, Meghan described the freedom to make her own choices as "liberating". 
+
+Harry later said America offered his family a degree of privacy and freedom they "undoubtedly wouldn't be able" to enjoy in the UK - and that it was the life his mother, Diana, would have wanted for him.
+
+The couple settled in Montecito - a celebrity enclave a few hours north of Los Angeles with neighbours like Oprah Winfrey, Gwyneth Paltrow and Rob Lowe.
+
+Multimillion dollar podcast and Netflix deals followed.
+
+"They were so sought after, they were names that would hit the press and command attention right away," says Stacy Jones, chief executive of Hollywood Branded, a marketing and PR agency.
+
+Harry and Meghan with Netflix CEO Ted Sarandos and wife Nicole Avant
+
+"There are endless parties, endless events and endless things to do if you are a celebrity inside Hollywood," she says. "But you soon realise that all those endless things are promoting something to sell."
+
+And the royal couple had plenty to sell. 
+
+LA-based royal watcher and journalist Elizabeth Holmes, who wrote HRH: So Many Thoughts on Royal Style, says: "I think part of why this [the Sussexes leaving the US] was surprising to me was just because it did feel like they were sort of settling into their life in California."
+
+This video can not be played
+
+Californians reacts to Harry and Meghan's return to the UK
+
+Not everyone is sad to see them go. The New York Post, often scathing about the couple, greeted the news of their departure with the headline "Throne Back!", declaring that America's "long national nightmare is over".
+
+The tabloid mockery was largely dismissive of the couple's rare achievement in Hollywood. They managed something most newcomers to Tinseltown never do: persuading some of its biggest companies to invest heavily in them.
+
+Attracting that initial investment proved easier than sustaining it, however.
+
+Their multi-year Spotify deal, reported to be worth up to $25m (Â£18.3m), produced Meghan's 12-episode podcast Archetypes, featuring guests such as Serena Williams and Mariah Carey.
+
+Harry and Meghan are experts in surprise - but why are they returning to UK now?
+
+Meghan could return to acting once back in UK
+
+In 2023, however, Spotify and the couple's Archewell Audio announced that they had "mutually agreed to part ways".
+
+Their five-year Netflix deal, signed in 2020 and reportedly worth between $60m and $100m, delivered several programmes.
+
+But it has since been replaced by a less lucrative arrangement, against the backdrop of a broader downturn across the entertainment industry.
+
+Behind the projects, the Sussexes' production business also experienced high staff turnover, with reports that some former employees privately called themselves the "Sussex Survivors Club".
+
+Harry, too, found commercial success, but largely when he was selling his own royal story.
+
+His memoir, Spare, was a publishing phenomenon, reportedly coming with a $20m advance.
+
+It sold more than six million copies worldwide, making it the fastest-selling non-fiction book on record. 
+
+As part of its promotion, Harry held a public conversation with trauma specialist Dr Gabor MatÃ©, in which he explored how his royal childhood had shaped him.
+
+In an interview with BBC Newsnight on Thursday, MatÃ© said Harry had come across as "very personable, very sensitive" and someone doing his best to make sure "he doesn't pass on his traumas to his children". 
+
+This video can not be played
+
+Watch: Trauma expert unpacks Harry and Meghan's return to the UK
+
+The Duke of Sussex remains enormously marketable when the subject is Harry himself, the Royal Family or the causes with which he has long been associated.
+
+He became chief impact officer at the Silicon Valley coaching company BetterUp and co-created and executive-produced the Apple TV+ mental-health series The Me You Can't See, with Oprah Winfrey.
+
+His Netflix projects have drawn heavily on his established interests.
+
+Heart of Invictus followed wounded and injured military veterans preparing for the Games he founded, while Polo explored another of his passions.
+
+Neither attracted anything approaching the attention generated by the couple's six-part documentary series Harry & Meghan, or his revelations in Spare.
+
+In one of his relatively rare major public appearances, Harry also delivered the keynote address at an informal meeting of the UN General Assembly in New York in 2022, marking Nelson Mandela International Day. He spoke about his mother, his connection to Africa and Mandela's legacy.
+
+But he seemed to struggle to break out of his royal typecast role in the US.
+
+The couple had their own Netflix documentary series called Harry & Meghan
+
+As for former Suits actress Meghan, she branched out into a Netflix cooking and lifestyle series.
+
+This content showed off their idyllic life with adorable "rescue chickens" and fresh-grown strawberries, against the scenic backdrop of the Santa Ynez Mountains.
+
+With Love, Meghan was cancelled after two seasons, but it has been nominated for an Emmy in the Outstanding Lifestyle Series category.
+
+Netflix also ended its involvement in Meghan's lifestyle brand, As Ever, earlier this year.
+
+"Netflix produces movies. Netflix doesn't produce jam," says Jones, the brand guru.
+
+Meghan displayed a highly curated version of herself on her Netflix show With Love, Meghan
+
+Critics assailed the carefully curated lifestyle presented by Meghan as tone-deaf. But in branding terms, Jones acknowledges that even negative publicity can have value if it keeps someone at the centre of the conversation.
+
+Meghan's projects kept her visible and gave audiences something they could watch or buy.
+
+"In moving to Britain, it looks like they are continuing to chase that proximity to the Royal Family to validate themselves or, in some cases, to commercialise," says Kinsey Schofield, whose namesake podcast focuses on the Royal Family.
+
+"Meghan's been cosplaying as a royal selling her teas and her fruit spread through As Ever since it launched."
+
+The Sussexes still have projects in development. They recently released a documentary about Girl Scouts and they have a scripted series in the works set in the exclusive world of polo teams, to be produced by the makers of Gossip Girl.
+
+But their American experience overall reveals the limits of celebrity in Hollywood. 
+
+Fame may get you through the door, but it does not guarantee staying power.
+
+Harry and Meghan attending a Los Angeles Dodgers game in October 2025
+
+"Hollywood is going through an incredibly hard time right now, and it's a fractured landscape," Jones says.
+
+Layoffs, repeated restructuring and high staff turnover have destabilised companies across the industry.
+
+"It is pretty hard to start and launch a company and keep it going," she says. "When that company is being launched by someone who is a mega media star, it needs some really strong people supporting it."
+
+They may no longer occupy the position they held when they first arrived in America, and they may say they're heading back to the UK to be private citizens, but it's unlikely that the couple would fade in the background.
+
+"They will never be private citizens anywhere in their lives," Jones says.
+
+"They are not people who can ever become background players. They are stars of their own show - or stars of someone else's show. Even if they're lower-level stars, they're still stars."
+
+Prince Harry tells BBC he wants 'reconciliation' with Royal Family
+
+Harry visits King with Meghan and children for first time in four years
+
