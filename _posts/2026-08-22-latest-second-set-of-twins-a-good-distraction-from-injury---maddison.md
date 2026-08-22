@@ -1,0 +1,79 @@
+---
+layout: post
+title: "Latest: Second set of twins a good distraction from injury - Maddison"
+date: 2026-08-22T05:28:50
+author: "badely"
+categories: [Sports]
+tags: []
+excerpt: "Tottenham midfielder James Maddison says having five children aged four and under - including a second set of twins - helpfully distracted him from hi"
+image: assets/images/004280cdbb47dd4542d378a94513205e.jpg
+---
+
+Here’s what you need to know: This video can not be played
+
+My family got me through injury - Maddison
+
+The Football Interview will be available on BBC One at 12:45 every Saturday during the Premier League season, as well as on BBC iPlayer, BBC Football YouTube and the BBC Sport website and app.
+
+The first episode of the new season, available on Saturday, 22 August, sees Kelly Somers sit down with Tottenham Hotspur's James Maddison.
+
+Tottenham midfielder James Maddison said he and his partner have been "in the trenches" at home with five children aged four and under during a period when he was sidelined from football with a serious knee injury.
+
+The 29-year-old missed most of the 2025-26 season because of the ruptured anterior cruciate ligament (ACL) he suffered last August.
+
+During his recovery, Maddison's partner gave birth to their second set of twins. He described it as the "toughest year of his life" but credited his family for helping him get through.
+
+"I needed that positive distraction of my partner being pregnant and having to be there for her and forget about myself, even though I was going through a traumatic experience through my knee," he told Kelly Somers.
+
+Despite that, life has not been easy.
+
+"A lot of nappies flying about, a lot of accidents at home, but it'll all be worth it," he said.
+
+"We still love it. I wouldn't change it for the world."
+
+Maddison said that because of his prolonged absence from football, his eldest son Leo actually assumed at one point that he had left Spurs.
+
+"I missed a year of football, and a year in a child's life - from three and a half to four and a half - it's obviously massive," he said.
+
+"He couldn't even remember over a year ago when he was at all the games.
+
+"It would be nice for him to come to the games again and actually remember Dad playing instead of just Dad sat at home watching him with a machine on his knee."
+
+Maddison returned to action against Leeds in May after being sidelined for 375 days
+
+Spurs struggled last season, securing survival on the final day and finishing just two points above the relegation zone. Maddison said it was tough not to be able to help out.
+
+"We probably struggled a little bit for creativity and I'm watching the games thinking, 'what would I be doing there?'," he said.
+
+Despite those tough experiences, the midfielder described how Italian head coach Roberto de Zerbi helped lift the mood at the Tottenham Hotspur Stadium after taking over in March.
+
+"He's very clever. He's very tactical. He's obsessed with football, you can see that," said Maddison.
+
+"But to be honest, when he first came in â in comparison to pre-season and what we're training now - he didn't want to make it too complicated. He just wanted us to get the love back for playing football."
+
+One of the first things the Italian did, revealed Maddison, was to organise a team meal, where alcohol was allowed.
+
+The 29-year-old described De Zerbi telling his team: "We're all going to be drinking alcohol, we're all going to be having a good night."
+
+Maddison explained: "He wanted us to have a night where we all just relax.
+
+"That feeling that we got made everyone feel more knitted together, straight away."
+
+Another thing De Zerbi did early on in his tenure was to put Maddison on the bench.
+
+"I was almost like, 'I'm not ready to play yet, boss'," the midfielder said.
+
+"But he said no. He said I can come on the bench in my slippers if I want. He just wanted me around the group and he thought that would benefit the group. I took that as a massive compliment and just acted as if I was part of the bench, part of the team.
+
+"I'm not saying that's the reason why, but we managed to steer clear of the danger, which was a good feeling."
+
+The midfielder made his return against Leeds on 11 May, but he has not been risked in pre-season so far. Despite that, Maddison remains confident for the season ahead.
+
+"I'm working so hard to try and be fully fit and available for the majority of the season," he said.
+
+"I want just a fully fit, healthy season where I can just enjoy football. Because if I'm fully fit and I'm healthy, then I know what I'm capable of. And I know that I can affect games more than a lot of players in this league. So, let's just hope for that."
+
+Premier League predictions 2026-27: BBC Sport pundits pick their top four
+
+How will your club fare? Phil McNulty's Premier League predictions
+
