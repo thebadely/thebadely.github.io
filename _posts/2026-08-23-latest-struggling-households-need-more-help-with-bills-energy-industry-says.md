@@ -1,0 +1,75 @@
+---
+layout: post
+title: "Latest: Struggling households need more help with bills, energy industry says"
+date: 2026-08-23T10:11:21
+author: "badely"
+categories: [Business]
+tags: []
+excerpt: "Industry body Energy UK says the current support for households most in need does not go far enough."
+image: assets/images/e5db69358db9f016b884fae9e47c9f08.jpg
+---
+
+Experts revealed that Higher energy bills this winter mean the government should step in to provide more help for households most in need, the body representing energy firms in the UK has said.
+
+Stubbornly high prices over the last few years have left some people needing "emergency support" over and above the existing Â£150 Warm Home Discount, Energy UK said.
+
+A "better targeted" support scheme that takes into account someone's income, health and energy consumption was needed, it added.
+
+On Wednesday, the energy price cap for October onwards will be announced by regulator Ofgem and is expected to hit a three-year high.
+
+A government spokesperson said that in addition to the Warm Homes Discount it was cutting VAT on electricity bills and would do "everything we can" to shield consumers from global energy shocks.
+
+Energy UK chief executive Dhara Vyas said: "Suppliers continue to do all they can to help their customers but as well as persistently high bills, record levels of debt show how the current system is failing to provide the right support to those in need."
+
+A new "social discount" scheme would result in "a system that works better for everyone", she added.
+
+Energy UK says suppliers have a range of support measures for customers, external that includes debt write-off schemes and hardship funds, as well as enhanced funding to charity partners.
+
+However, Adam Scorer, chief executive at National Energy Action (NEA) said: "Heading toward winter with prices spiking again we expect suppliers to do more - listen and respond to their customer who are really struggling.
+
+"More than anything else people need a responsible and empathetic approach to debt," he added.
+
+Ofgem reported at the end of last winter that customers who had fallen behind on their energy bills owed suppliers a record Â£4.7bn. Since then wholesale energy prices have risen, following the start of the Iran war in February.
+
+Energy consultancy Cornwall Insight predicts Ofgem's cap on household price rises, which is set every three months, will go up by 4% when it is announced on Wednesday. 
+
+The rise will apply to household bills during the first half of the coming winter and follows a sharper 13% rise in July.
+
+The energy cap covers around 33 million households in England, Wales and Scotland.
+
+It fixes the maximum amount which customers on standard variable tariffs can be charged for each unit of gas and electricity used, but households' actual bills depend on the amount of energy they use and how they pay for it. 
+
+As well as the conflict in the Middle East, Cornwall Insight said prices had been affected by heatwaves across Europe that had increased demand for power generation to support air conditioning and other cooling.
+
+The price rise would outweigh the impact of Prime Minister Andy Burnham's move to remove VAT on household electricity bills from October, it added.
+
+Currently, people receiving means-tested benefits are entitled to the one-off Â£150 Warm Home Discount over the winter, something administered by the energy suppliers themselves. The rebate is paid for by a levy on all energy users that is collected and redistributed via bills.
+
+Energy UK said the Warm Home Discount reached six million customers, but there were another 2.5 million who needed help because a medical condition or draughty home meant they consumed more energy.
+
+It said if the government would allow the combining of information about customers' income, health and energy consumption, a discount scheme could offer targeted and adjustable support, and respond to changing needs and price levels.
+
+The body said its proposed new scheme would cost Â£1.9bn - nearly double the cost of the current scheme - but could offer Â£450 in support to some households.
+
+Energy UK suggested the new support scheme could continue to be part-funded through bills or shifted entirely onto the taxpayer, via government funding.
+
+The last time the price cap reached a similar level was in July 2023, Cornwall Insight said, which was still below the peaks reached the previous year in the wake of Russia's invasion of Ukraine. 
+
+During that energy price spike the Conservative government committed a total of around Â£40bn , externalof government spending to support households with energy bills.
+
+The challenge of combining sources of personal data, including income and health, and the proposal to find more taxpayer money to fund such a scheme are likely to raise questions.
+
+However, Adam Scorer from the NEA said this was the sort of approach his charity was calling for, especially as the Warm Home Discount has risen by only Â£10 over the last decade.
+
+"We desperately need a new approach," he said.
+
+"There will be a lot of detail to get right, but if government genuinely wants to provide breathing space for people in fuel poverty, it needs to take this challenge on and work with energy companies and charities to design something truly fit for purpose."
+
+Bill debt soars but many don't know help is available
+
+Jump in energy bills drives UK inflation to highest rate for four months
+
+You could be missing out on Â£150 off your energy bill - here's how to check
+
+What will the energy cap changes mean for my bills?
+

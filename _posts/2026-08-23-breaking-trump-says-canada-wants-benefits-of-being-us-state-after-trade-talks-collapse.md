@@ -1,0 +1,91 @@
+---
+layout: post
+title: "Breaking: Trump says Canada wants 'benefits' of being US state after trade talks collapse"
+date: 2026-08-23T19:11:30
+author: "badely"
+categories: [Business]
+tags: []
+excerpt: "Canada's PM said he was 'reluctantly' announcing retaliatory tariffs and accused the US of starting a trade war."
+image: assets/images/0bf734bed0517445e5c1fc530de87d1f.jpg
+---
+
+It has been recently reported that Trump has repeatedly mentioned making Canada the "51st state" of America since returning to office
+
+US President Donald Trump has said Canada wants "the benefits of being a state, without being one" after trade talks between the two countries collapsed late on Friday.
+
+The breakdown of negotiations triggered new 50% US tariffs on a range of Canadian goods. Trump also said American farmers had been charged "massive amounts of Tariffs" for years.
+
+Canadian Prime Minister Mark Carney called the fresh tariffs a "miscalculation" designed to "hurt and divide us".
+
+Carney confirmed he would match Trump's tariffs "dollar-for-dollar" from 8 September, including levies on steel, dairy, appliances and electronics, saying the US and Canada were now in a trade war.
+
+Both countries were optimistic of a deal earlier in the week, but talks fell apart after both sides accused the other of making last-minute changes.
+
+"They asked too much and they offered too little," Carney said on Saturday. "You're at war when you get attacked. We got attacked."
+
+Trump's latest comments echo his repeated references to making Canada the "51st state" of America since returning to office, sparking frustration among its leaders and residents.
+
+The collapse of the trade talks upended a deeply integrated trading relationship with no clear path to resolution.
+
+"We cannot accept what they've offered and we will not give what they've asked," Carney said.
+
+Trump told Fox News on Sunday that the Canadians were "foolish" to engage in a trade war with the US and think they will "actually win".
+
+The new 50% US tariffs will apply to a range of Canadian goods, in addition to existing US tariffs on Canadian steel, aluminium, automobiles and lumber.
+
+They are limited in scope, covering about $20bn (Â£15bn; C$28bn) of imports from Canada, or about 5% in total, including wine, dairy, cement, clothing and hockey equipment.
+
+The prime minister said Canada was retaliating "reluctantly" to protect its interests, with details of counter-measures to be released in the coming days.
+
+Carney faces crucial test after walking away from Trump's deal
+
+Leaders of other federal parties in Canada, including the Conservative opposition, voiced support for the prime minister, as have the leaders of some Canadian provinces.
+
+Tariffs - a tax on goods imported from other countries - have been a key component of Trump's trade policy, with the US president arguing that they will boost American manufacturing and create jobs at home.
+
+Critics, however, say tariffs have raised prices for American consumers, and have disrupted and damaged the global economy.
+
+Carney's speech on Saturday was his first address to Canadians after he announced late on Friday night that a deal would not be reached, accusing the US side of making "last-minute changes" that were "unfair" and "uneconomic". 
+
+US negotiators, meanwhile, accused Canada of making "new demands and walk backs" on terms which had been previously agreed.
+
+US trade representative Jamieson Greer told Fox News on Saturday that there were no plans to resume talks.
+
+He added that the US had been prepared to cut some of its tariffs on Canada as part of the ill-fated deal.
+
+Carney, however, said the US presented "unacceptable" terms that were too restrictive, including curbing Canada's ability to strike new trade deals with other countries.
+
+He also rejected the assertion that Canada had made last-minute requests: "We clarified what was on offer and were continually disappointed by the answers."
+
+This video can not be played
+
+Watch: 'US asked too much and offered too little,' says Canada's PM Mark Carney
+
+Doug Ford, the leader of Canada's most populous province Ontario, backed Carney and said Trump "can't be trusted". 
+
+British Columbia Premier David Eby said the US demand for restrictions on Canada's ability to have other trade deals "would reduce us to the economic equivalent of the 51st state".
+
+"It was never acceptable to Canadians," Eby said. 
+
+The Conservative opposition leader Pierre Poilievre also appeared to support Carney, calling the latest US levies "unjustified".
+
+Quebec's premier, Christine FrÃ©chette, warned jobs would likely be lost as a result of the new US tariffs.
+
+"Behind these numbers are real people," she said, vowing to introduce measures to support impacted sectors.
+
+Alberta Premier Danielle Smith, whose oil-rich province has worked to make inroads with the Trump administration, urged both sides to resume talks.
+
+The collapse comes after more than a year of on-again, off-again trade talks, which intensified in recent weeks after a US-imposed deadline to strike a deal or face further tariffs.
+
+The two countries were also engaged in a mandatory review of an existing North American free trade agreement, known as USMCA, with Mexico. 
+
+The pact was signed by Trump during his first term to replace the 1994 North American Free Trade Agreement. It underpins $1.6tn (Â£1.2tn) in annual trilateral trade across Canada, the US and Mexico. 
+
+Earlier this summer, Canada and Mexico had formally requested for USMCA to be renewed for another 16 years. The US, however, declined to renew it in its current form.
+
+Asked how Friday's trade talk collapse would impact the North American free trade pact, Carney said it was "certainly not good news". 
+
+Canada says it will match US tariffs 'dollar for dollar' as trade talks break down
+
+Many Canadians are boycotting the US, so this is where they're travelling instead
+

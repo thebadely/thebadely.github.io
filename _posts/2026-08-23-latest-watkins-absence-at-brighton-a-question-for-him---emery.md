@@ -1,0 +1,141 @@
+---
+layout: post
+title: "Latest: Watkins' absence at Brighton a question for him - Emery"
+date: 2026-08-23T19:07:55
+author: "badely"
+categories: [Sports]
+tags: []
+excerpt: "Ollie Watkins' absence in Aston Villa's thrashing at Brighton is a question for the striker, says boss Unai Emery."
+image: assets/images/e32a46478b627ae39a00e821d15b370d.jpg
+---
+
+Let's dive into the details: This video can not be played
+
+Highlights: Brighton dominate ten men Aston Vila
+
+Aston Villa boss Unai Emery says forward Ollie Watkins' absence in the 4-0 thrashing at Brighton is a "question for him".
+
+The 30-year-old was left out of the matchday squad for Villa's Premier League opener after Emery confirmed earlier in the week there had been offers from Saudi club Al-Hilal for the striker.
+
+Asked if it was his decision to leave Watkins out, Emery told Match of the Day: "This question is for him. You can call him and try to get his answer.
+
+"The players here wanted to play and we had two strikers with a small injury. The question on Watkins is for him."
+
+Captain John McGinn added to Sky Sports: "It's a difficult one. He's been an amazing player and a record goalscorer - my job as captain is to get the best out of all the players that are here today.
+
+"It's not easy coming here. I'm proud of the players that were here today and fought for the club."
+
+Watkins could become the latest of Villa's European heroes to exit this summer.
+
+Villa ended a 30-year wait for a trophy by lifting the Europa League in May against Freiburg.
+
+But the club could have sold six of the starting XI by the end of the transfer window.
+
+"We are building the team. Last year and two years ago we were building the team in August," said Emery after the defeat at Brighton.
+
+Ezri Konsa's departure to Arsenal was the latest high-profile exit at Villa Park this summer as Emery's squad undergoes drastic change. 
+
+Istanbul goalscorers Youri Tielemans and Morgan Rogers left last month, Rogers' Â£117m move to Chelsea a record for an English player.
+
+Lucas Digne was sold to Paris St-Germain and Villa must also find a solution in goal, with Emi Martinez not in Sunday's squad after his failed move to Juventus, and the club having signed a replacement - Zion Suzuki.
+
+If Martinez goes, that would leave Matty Cash, Pau Torres, Victor Lindelof, John McGinn and Emi Buendia remaining from the 11 who started in Istanbul.
+
+This video can not be played
+
+Watkins left out of Villa squad - is Al Hilal transfer imminent?
+
+Unai Emery's side were 4-0 down by half-time at Brighton - and that was how the score remained
+
+Brighton thrash 10-man Villa in opener
+
+Villa Â£18m bid for Harwood-Bellis rejected by Southampton
+
+When is the Champions League draw and who is in each pot?
+
+This video can not be played
+
+'This question is for him' - Emery on Watkins' absence
+
+Like many, Villa are a selling club, mainly due to necessity, and have been for a number of years. 
+
+They must comply with Uefa's squad cost ratio (SCR) which restricts them to spending 70% of their football related revenue on player and staff wages, transfer fees and agent fees. 
+
+They have already been fined twice by Uefa for breaches, being hit with a Â£9.5m sanction last year and a Â£19.4m fine in June, although Â£12.9m was suspended after Villa came to a settlement agreement with Europe's governing body. But it has meant the club's hands are tied in the transfer window.
+
+The Premier League's Profit and Sustainability Rules (PSR) also limited financial losses to a maximum of Â£105m over a rolling three-year period. 
+
+In their latest accounts, ending 30 June 2025, Villa had a post-tax profit of Â£17m but their two previous years showed losses of Â£119.6m (2023) and Â£85.4m (2024). 
+
+The regulations have now been replaced by SCR, meaning the Premier League falls in line with Uefa's model.
+
+"It's necessity because of the rules," one former Villa executive told BBC Sport, when asked about the sales. "The PSR, the SCR, issues are well documented. 
+
+"It does seem slightly unfair they're having their ambition capped at this level. But it has forced this very big churn of players, which is unfortunate.
+
+"Some will be forced due to PSR, some will be player demand. Combined it makes a big problem for Emery and certainly it is a lot to swallow in one go and to try and replace."
+
+This summer has crystalised their situation because of the high-profile nature of the departures.
+
+Villa had raised just over Â£200m with the sales of Jhon Duran (Â£71m), Douglas Luiz (Â£42.5m), Jacob Ramsey (Â£40m) and Moussa Diaby (Â£50m) over the past two years.
+
+With the Konsa deal done, they have banked around Â£212m during this window, including Â£9m for Lewis Dobbin who never played a senior game for Villa before leaving for Southampton. 
+
+The academy has also paid its way comfortably with Jaden Philogene and Cameron Archer being bought back to be sold again, while Burnley spent Â£12m on Aaron Ramsey in 2023.
+
+Internally, when Villa first returned to the Champions League in 2024, it was recognised it would be harder for academy prospects to break into the squad which left Villa more open to selling them. 
+
+Last summer, their gross transfer spend was Â£71m which was dwarfed by Manchester City, Chelsea and Arsenal who were all above Â£200m, while Wolves, who finished bottom last season, spent Â£109m. 
+
+It justifies Emery's argument Villa are not part of the elite, especially when they spent months working on a deal for Conor Gallagher only for Tottenham to step in and buy him in January.
+
+Rogers' Â£117m move to Chelsea this summer was the easiest way for Villa to comply with Uefa's financial rules.
+
+The plan came after their first fine last year - and under it, they must break even in 2026-27.
+
+Their run to the Champions League quarter-finals in 2024-25 banked them close to Â£70m and was the main reason they managed to turn a profit in the latest accounts.
+
+Winning the Europa League means Villa guaranteed themselves around Â£45.6m, which includes the minimum earned for qualifying for next season's Champions League.
+
+Brian Madjo was only registered by Aston Villa a week before his Super Cup debut
+
+Despite the departures, optimism remains. The battling Super Cup defeat in Salzburg by Paris St-Germain earlier this month still showed Villa's competitiveness and Emery's powers of adaptability. 
+
+Emery has had to roll with the punches during his three-and-a-half years in charge but he has consistently improved Villa, having taken over when they were 14th following Steven Gerrard's reign. 
+
+In Austria, skipper John McGinn pointed to the fact they still have Emery while others - Manchester City, Liverpool and Chelsea - have new managers and that Villa's structure remains intact. 
+
+"We have a structure in place, standards and rules which have made us a success. I am really excited about the new Aston Villa," said McGinn.
+
+That includes Brian Madjo after Villa won their battle with Fifa to register the 17-year-old earlier this month.
+
+The striker scored on his debut against PSG, eight months after initially signing from Metz for Â£10m, and could prove one of the surprises of the season. 
+
+The drive towards younger players comes after Roberto Olabe replaced Monchi last September as president of football operations with a long-to-mid-term directive on transfers. 
+
+Midfielder Joao Gomes, 25, was sent off on his Premier League debut for the club at Brighton, while goalkeeper Suzuki, 23, and defender Matteo Ruggeri, 24, started on the bench. 
+
+All three have joined this summer after 20-year-old Johan Manzambi became the club's record buy in July.
+
+Villa have also had an Â£18m bid rejected for 24-year-old Southampton defender Taylor Harwood-Bellis. 
+
+The loan signing, with an obligation to buy, of Alejandro Garnacho from Chelsea allows Villa to spread the cost, with Aaron Wan-Bissaka set to move from West Ham on a similar deal.
+
+"The problem is they may now be at the end of a chain of transfer deals, with the players involved and their transfer targets dependent on other moves happening first," said the former Villa decision-maker.
+
+Above all, though, Emery remains Villa's biggest asset and he has overhauled them before. This time it would be one of his biggest achievements.
+
+"There's a lot of hope and ambition resting with the manager," said the ex-Villa Park executive.
+
+"He's the ace card they've got left and everybody's hoping with his experience and knowledge they can pull through. 
+
+"It's a lot of pressure on him and you've got to wonder if he's trying to think 'maybe I need to go somewhere else with more resources?'
+
+"I don't think it'll be this season but, at some stage as a manager, you get fed up juggling all those demands."
+
+Villa Â£18m bid for Harwood-Bellis rejected by Southampton
+
+Premier League predictions 2026-27: BBC Sport pundits pick their top four
+
+The Premier League's new plan to end corner chaos
+
