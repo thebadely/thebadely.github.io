@@ -1,0 +1,75 @@
+---
+layout: post
+title: "New: Pubs and hotels could see industry rates reformed after review"
+date: 2026-08-24T09:41:24
+author: "badely"
+categories: [Business]
+tags: []
+excerpt: "The review of how rates are calculated in England and Wales could lead to reform of the system."
+image: assets/images/0fd6320bf96d1f2de0d5c80117507af2.jpg
+---
+
+According to new developments, A review is being launched into the way business rates are calculated for pubs and hotels in England and Wales, and could lead to a reform of the system.
+
+The Treasury says business rates expert Jerry Schurder will lead the review into rate valuations and report back in March 2027, with the government calling for the views of landlords, hoteliers and business owners to feed in to the process.
+
+Last month, Andy Burnham announced a 20% cut in business rates for pubs, social clubs and live music venues in England, to come into effect in April.
+
+Pub groups have argued they face disproportionately higher rates bills, but other businesses have called for a wider reform of the rates system.
+
+According to the British Beer and Pub Association (BBPA), 161 pubs closed in the first three months of this year across England, Scotland and Wales, equating to the loss of around 2,400 jobs.
+
+Rising business rates are cited as one issue facing the sector, although there have also been complaints that increases in National Insurance and the minimum wage have made staff costs more expensive.
+
+James Murray, financial secretary to the Treasury, said the new review would look at "a rethink of valuations - so that we can build a fairer system for the future".
+
+Emma McClarkin, chief executive of the BBPA, said: "For years pubs have paid a disproportionately higher business rates bill which has ground down their ability to keep the doors open, so this review is sorely needed and hugely welcome."
+
+The BBPA says pubs are valued differently for rates than retail venues. Instead of being based just on floor area, they are judged by a measure called Fair Maintainable Trade (FMT) - which means when a pub's turnover increases, so does its rates bill.
+
+Jonathan Lawson, the chief executive of Butcombe Group, which has 120 pubs across the south and south west of England, told the BBC's Today programme that the use of FMT meant pubs were effectively being "punished for success", while large online retailers that operate out of warehouses were not subject to revenue-based rates calculations.
+
+Their rates, he said, "are calculated based on what is deemed to be the market rent for that area, and takes very little on board in terms of revenue driven through that site".
+
+"You can have a very large site paying a relatively low level of business rates versus a relatively small pub... paying a very high level of business rates."
+
+Schurder is a former business rates policy lead at advisory firm Newmark UK, and his review will feed into the next rates revaluation in 2029.
+
+Northern Ireland and Scotland set their own valuations, while Wales presently chooses to align its methodology with England. As the same approach is used across England and Wales, the review will be looking for responses from both nations.
+
+Schurder's appointment was welcomed by Craig Beaumont of the Federation of Small Businesses (FSB) who said he would bring "crucial heavyweight business rates expertise into the Treasury".
+
+However, Beaumont said the government needed to address the wider business rates system and exempt more smaller firms by increasing the rates relief threshold for small businesses.
+
+Jonny Haseldine from the British Chambers of Commerce (BCC) also said the review of valuations should be wider.
+
+"The full reform of business rates, promised by the government at the last election, is urgently needed. This continued piecemeal approach to reform is the wrong approach," he said.
+
+While the BCC said hospitality was the sector most worried about rates, Haseldine warned firms in every sector were struggling with the "complex and outdated" system.
+
+Shadow Chancellor Sir Mel Stride said the review was "far too late for a sector this Labour government has already done its best to kill off".
+
+"Tax hikes on business premises and jobs, alongside job-destroying regulation in the Employment Rights Act, have left many hospitality businesses on the brink," he said.
+
+Liberal Democrat Treasury spokesperson Daisy Cooper said reform of business rates was "long overdue", but also called for an emergency VAT cut and a reverse to jobs tax changes "which have hammered hospitality in particular".
+
+Pubs cheer business rates relief while other firms 'left out in the cold'
+
+Burnham says 20% business rates cut for English pubs 'a first step' 
+
+British pubs closing at a rate of almost two per day in 2026
+
+Last year, under the previous chancellor Rachel Reeves, the government had said it would scale back business rate discounts that had been in force since the Covid pandemic and announced that there would be no discount at all from April this year.
+
+That, combined with big upward adjustments to rateable values of pub premises, left landlords with the prospect of much higher bills.
+
+Following criticism from the hospitality industry, the government cut business rates for pubs and music venues by 15% earlier in 2026.
+
+The 20% discount in England announced in July will apply on top of the existing support.
+
+However, the government said the rates discount would not apply to the "very largest" live music venues, and there was some confusion among some businesses as to whether they would be classed as a pub and therefore eligible for the relief.
+
+Details about which businesses are eligible are expected to be announced at Chancellor John Healey's first Budget in the autumn.
+
+How has business rates affected your going concern? Share with us your experiences.
+

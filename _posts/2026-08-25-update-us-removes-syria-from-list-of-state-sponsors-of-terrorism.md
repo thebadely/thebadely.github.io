@@ -1,0 +1,43 @@
+---
+layout: post
+title: "Update: US removes Syria from list of state sponsors of terrorism"
+date: 2026-08-25T00:17:25
+author: "badely"
+categories: [News]
+tags: []
+excerpt: "The Trump administration has embraced Syria's new president, former al-Qaeda linked militant Ahmed al-Sharaa."
+image: assets/images/79889cfe1f65e8ca5fc0096cb8423a33.jpg
+---
+
+Experts revealed that US President Donald Trump welcomed his Syrian counterpart Ahmed al-Sharaa to the White House last year
+
+The US has removed Syria from its list of state sponsors of terrorism after 47 years, lifting what it said was the "final major barriers" for private sector investment in the country and its reintegration into the global economy.
+
+US Secretary Of State Marco Rubio said the move was in recognition of the Syrian government's positive actions to fully distance itself from acts of international terrorism. 
+
+The Trump administration has embraced Syria's new president, Ahmed al-Sharaa, a former militant who once had an American bounty on his head as the leader of an al-Qaeda off-shoot. 
+
+His Islamist group, Hayat Tahrir al-Sham (HTS), was also removed from the US list of global terrorist organisations.
+
+HTS, formerly known as al-Nusra Front, was al-Qaeda's affiliate in Syria until Sharaa severed ties with the jihadist network in 2016. 
+
+In late 2024, HTS led the rebel offensive that overthrew former president Bashar al-Assad and it dominates Sharaa's transitional administration.
+
+The US hopes to bring Syria into its orbit rather than that of Russia or China. But the risks remain significant, with Syria still far from secure and lacking representative government. It is also at the centre of growing tensions between its neighbours Israel and Turkey.
+
+Rubio said Monday's move, which had been initially flagged in July, would give the Syrians "a path to prosperity".
+
+US Treasury Secretary Scott Bessent said: "Today's action will help foster additional investment in Syria to promote political and economic stability."
+
+Syrian Foreign Minister Asaad Hassan al-Shaibani greeted the news as a "historic step", according to state-run news agency SANA.
+
+"We will continue working to remove the effects of isolation and create an environment based on transparency, mutual interests and respect," he said.
+
+Last year, the US also revoked the designation of HTS as a Foreign Terrorist Organisation and removed Sharaa from its list of Specially Designated Global Terrorists.
+
+Syria's removal from the US list of state sponsors of terrorism - where it had been since 1979 - leaves just three remaining: Cuba, North Korea and Iran.
+
+The listing carries financial sanctions, restrictions on US foreign aid and defence exports and sales and can also penalise people and other countries that trade with the sanctioned state.  
+
+Syria court sentences Assad-era grand mufti to life in prison
+

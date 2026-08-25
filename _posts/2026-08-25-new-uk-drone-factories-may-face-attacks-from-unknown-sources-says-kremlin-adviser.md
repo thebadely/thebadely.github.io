@@ -1,0 +1,69 @@
+---
+layout: post
+title: "New: UK drone factories may face attacks from 'unknown sources', says Kremlin adviser"
+date: 2026-08-25T04:06:34
+author: "badely"
+categories: [News]
+tags: []
+excerpt: "The comments on BBC Newsnight come after the UK announced it has agreed to hand over blueprints for British-made missile components to Ukraine."
+image: assets/images/0c2180a6807c23690ace02067e4e4a90.jpg
+---
+
+Let's dive into the details: Burnham travelled to Ukraine on Monday to meet with Zelensky and chair his first 'coalition of the willing' meeting
+
+Andrei Fedorov, an adviser to the Kremlin, says there might be a "semi-military" response against UK drone factories by "unknown sources" over the sharing of blueprints for British-made cruise missile components.
+
+His comments on BBC Newsnight come as UK Prime Minister Andy Burnham says he plans to travel to the US next month with European leaders to lobby US President Trump on Ukraine's defence needs. 
+
+He said that while the details were not "fully confirmed", it is "likely" he will go. The trip would be his first to the US since becoming prime minister in July. 
+
+"Leaving today, I'm quite clear what I need to do in the next few weeks," he said following his official visit to Ukraine on Monday, during which he promised to continue pressuring Russia.
+
+The UK has also agreed to hand over blueprints for British-made components for the Scalp missile, a French version of the UK's Storm Shadow cruise missile. The blueprints will allow Ukraine to produce the long-range weapon domestically.
+
+Fedorov, who is Russia's former deputy foreign minister, said Putin was facing "serious" pressure "to undertake certain measures against UK". Asked on BBC Newsnight where the pressure was coming from, Fedorov responded, "public opinion polls, it's coming from journalists, from mass media". 
+
+Asked what a "semi-military" response might look like, Fedorov said "it could take the form of something might happen with enterprises, with factories which are producing drones for Ukraine." 
+
+"They could be attacked not by Russia, but by from unknown sources," he said.
+
+The comments are in line with those made by Kremlin spokesman Dmitry Peskov on Monday, when he criticised the UK's decision to share the missile blueprints. Peskov said it prevented "even the slightest progress" towards achieving peace.
+
+He told reporters on Monday that the Russian military was already gathering data to locate any missile production sites to destroy them.
+
+"Britain is involved in this war on the side of the Kyiv regime. Britain methodically and regularly adds fuel to the fire," he added.
+
+In response, Burnham said: "Who started the fire? That's the question, isn't it?"
+
+Burnham's visit to Ukraine was his first official international visit. He met Ukrainian President Volodymyr Zelensky in Kyiv and chaired his first meeting of the "coalition of the willing", set up by the UK and France under his predecessor Sir Keir Starmer. 
+
+Burnham has been reaffirming the UK's support for Ukraine in the wake of escalating Russian strikes in recent weeks - including one last week on a shopping centre that killed at least 16 people.
+
+Ukraine has been relying on American supplies of the Patriot interceptor missiles, which are used to combat Russia's ballistic missiles, but stockpiles are running low due to the war in Iran, leaving Ukraine vulnerable to Russian attacks.
+
+Zelensky has said he is hoping to secure 300 patriot missiles ahead of winter, when Russia is likely to increase its attacks on energy infrastructure, as it has done in past years. 
+
+In the interview with Bloomberg, Burnham said that he felt "really confident" that the issue was "fixable". But he pointed out that it wasn't only the US who could supply Ukraine with Patriots. 
+
+"There are other players who could help in the mix who we have influence with," he said. "It's probably going to be a solution that involves a lot of layers and a lot of negotiation."
+
+In July this year, three weeks after offering Ukraine the right to produce Patriots itself, Trump backtracked, saying, "We have not agreed to that. We're talking about it. But it's a hard thing to give away, that kind of technology."  
+
+"These weapons are incredible. We have to be very careful about letting somebody build them," Trump told a cabinet meeting. 
+
+In a joint statement after the meeting in Ukraine, Burnham and co-chairs French President Emmanuel Macron and German Chancellor Friedrich Merz said the group would aim to strength Kyiv's air defences "as a matter or urgent priority".
+
+They also condemned Moscow's "systemic and escalating strikes against Ukraine's cities, critical infrastructure and civilians" and pledged to "constrain Russia's war chest through sanctions and actions against the "shadow fleet".
+
+In a statement ahead of the visit, Burnham said: "On Ukraine's 35th anniversary of independence, the Ukrainian people should be in no doubt: the UK is behind you today and for as long as it takes.
+
+"I am proud of the contribution our country has made to Ukraine and I want the Ukrainian people to hear it directly from me that our support will not waver. After all, Ukraine's security is our security."
+
+He said the friendship Ukraine shared with the UK would "long outlast Russia's illegal war", adding: "Russia should be in no doubt of our resolve. We will not back down until there is a just and lasting peace."
+
+Burnham vows support for Ukraine despite 'outrageous threats' from Russia
+
+UK missiles offer may help Ukraine - but they are not what Zelensky needs most
+
+Trump now 'not sure' about letting Ukraine build Patriot missiles
+
