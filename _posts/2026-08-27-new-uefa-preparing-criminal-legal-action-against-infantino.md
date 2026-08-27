@@ -1,0 +1,85 @@
+---
+layout: post
+title: "New: Uefa preparing criminal legal action against Infantino"
+date: 2026-08-27T14:42:09
+author: "badely"
+categories: [Sports]
+tags: []
+excerpt: "Uefa is pursuing criminal proceedings against Fifa president Gianni Infantino over the scrapped plan to sell off stakes in the World Cup."
+image: assets/images/d9278b48fb22096a08c8f6b2f76d3b8e.jpg
+---
+
+According to new developments, The relationship between Uefa president Aleksander Ceferin (left) and Fifa president Gianni Infantino (right) has worsened in recent months
+
+Uefa is preparing criminal legal proceedings against Fifa president Gianni Infantino over the now scrapped plan to sell off stakes in the World Cup and its other competitions to private investors.
+
+Documents seen by BBC Sport show an application has been made by European football's governing body requesting access to evidence and documents for use in proceedings in Switzerland against the embattled president himself, who Uefa accuses of "criminal mismanagement".
+
+Uefa also says it is considering pursuing criminal action against other Fifa officials.
+
+Shortly after this summer's World Cup, Infantino proposed creating a new company, Fifa Forward Enterprise (FFE), which would have sold off stakes in Fifa's football competitions to private investors.
+
+The plan was scrapped after widespread backlash.
+
+In the application for evidence, Uefa said: "In truth, it was a vehicle for Infantino and that small circle to acquire a permanent stake in and otherwise profit from Fifa's most valuable assets to the detriment of Fifa, its members, and other parties within the football family," Uefa's application says.
+
+"Infantino pushed the plan through internal Fifa approval only days earlier at a hastily convened meeting where a limited number of Fifa's management officials and employees - some of whom had never heard of the plan - were given mere hours to sign off on an unprecedented multi-billion dollar scheme."
+
+Key figures at Uefa and in European football met today in Monaco ahead of the Champions League draw, where Infantino's status was one item on the agenda.
+
+A statement sent to the media by Uefa said: "Those present unanimously mandated the Uefa president and administration to pursue every available institutional, political and legal avenue necessary to secure fundamental reform, restore proper limits on presidential authority and ensure that Fifa is once again governed as an institution â not around one individual."
+
+BBC Sport has approached Infantino and Fifa for comment.
+
+Uefa also claims that the valuation of the stakes to be sold were not independently verified and would have been offered too cheaply, calling the proposed sale "a fraudulently off-market price promoted by Infantino for his own benefit".
+
+The application adds: "Under the terms Infantino announced, those investors stood to acquire a permanent financial interest in Fifa's commercial arm for $4.2bn, implying an absurdly low enterprise value of only approximately $20bn, a figure that was neither the product of an open, competitive auction, nor tested by any independent valuer."
+
+In the application, Uefa is applying to a court in Florida to attempt to access files held by two Fifa businesses - Fifa Americas and FWC2026 - to be used to pursue the criminal charges in Switzerland at a later stage.
+
+The two businesses are based in Florida.
+
+Uefa claims that its 55 member nations would have potentially been harmed by the sell-off plan, and that it may pursue criminal proceedings against other Fifa officials as well as Infantino.
+
+"Uefa and other interested parties are preparing to bring criminal claims in  Switzerland against Infantino and possibly other Fifa officials and advisors for criminal mismanagement," the application states.
+
+"The secretive structuring, valuation, financing, and marketing inflicted direct and concrete injury on Fifa's reputation, governance authority, and commercial relationships to the detriment of Fifa as well as its 211 members, including Uefa's 55 member associations."
+
+Uefa insists that the plan was concocted without the knowledge of them or other key stakeholders in football, and that it had been long in development.
+
+The applications says: "On July 28, 2026, without consulting the Fifa Council, Uefa, or any of the other confederations, or any of the 211 Fifa member associations, Infantino, purportedly acting on behalf of Fifa, publicly announced a plan to place the commercial rights to the men's and women's World Cups and the Club World Cup into a new subsidiary: Fifa Forward Enterprise.
+
+"That announcement by Infantino was the public unveiling of a plan that he and a small circle of co-conspirators had conceived and reportedly been developing in secret for more than a year."
+
+Uefa states in the document that there has been "an enduring history of corruption among Fifa officials" and claims that world football's governing body only relents on its plans when pressure comes from outside the sport.
+
+"Fifa's extraordinary power over world football has operated largely without meaningful internal constraint, with accountability coming principally through external forces, including political pressure, public scrutiny, and intervention through international criminal law enforcement," the application adds.
+
+Fifa's headquarters are in the Swiss city of Zurich, and Uefa says that its plan to eventually pursue criminal charges against Infantino is backed up by Swiss law.
+
+"Swiss counsel has confirmed [...] that the proceeding is within reasonable contemplation for purposes of Swiss law and that Uefa has standing, as a complainant, to file a criminal complaint for criminal mismanagement against Infantino and potentially other Fifa officials as may be warranted."
+
+BBC Sport has been told that a separate filing has been lodged to a court in New York, where Uefa are seeking documentation from Thrive Capital, the business proposed to take up an interest in FFE, and its founder Josh Kushner, the brother of US president Donald Trump's son-in-law.
+
+The American investment bank JP Morgan is also named in the application.
+
+A third application has also been made in Colorado, relating to former Formula 1 chief Greg Maffei, who is referred to in the court filings as "the key commercial adviser" on the proposed FFE transaction, and his Bann Ventures firm.
+
+BBC Sport has also approached Uefa for comment.
+
+Uefa to push to remove Infantino after dropping boycott
+
+Infantino offered Fifa's 211 member associations $40m (Â£30m) if they backed the proposal for private investment in its tournaments via FFE, including the men's and women's World Cups.
+
+The Swiss has faced calls to step down after he scrapped the controversial plan earlier this month.
+
+Uefa has led the backlash to the proposal, stating it had lost confidence in Infantino, and with its members voting to boycott World Cups unless the FFE plan was scrapped.
+
+Infantino, who is seeking a fourth a term as Fifa president in March, was accused of breaking trust "through deception" in an open letter issued by Uefa, Concacaf and the Asian Football Confederation.
+
+The football associations of all the home nations have withdrawn support for Infantino, but he retains the support of South American governing body Conmebol and Caf, the African governing body, while some nations have broken ranks from their confederations to come out in support of the Fifa president.
+
+Uefa chief Ceferin rules out Fifa presidency bid
+
+'Change is necessary' - players unite against Fifa
+

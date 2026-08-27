@@ -1,0 +1,63 @@
+---
+layout: post
+title: "New: Burnham refuses to rule out tax rises in autumn Budget"
+date: 2026-08-25T06:40:33
+author: "badely"
+categories: [Business]
+tags: []
+excerpt: "Experts have warned that he and Chancellor John Healey will have little room to manoeuvre in their first Budget."
+image: assets/images/4f1456075ae16217a30be169cd9abd9d.jpg
+---
+
+According to new developments, Andy Burnham has refused to rule out tax rises in the autumn Budget
+
+Andy Burnham has refused to rule out tax rises in the upcoming autumn Budget, saying he "won't be unrealistic" about the "challenging" state of public finances.
+
+The prime minister said he would take a "careful approach" to the economy, and defended his previously announced cost of living pledges as funded spending commitments.
+
+Burnham became prime minister in July promising to give people breathing space and help with the cost of living, but questions remain over how major policies such as social care reforms will be funded.
+
+Experts have previously warned that he and Chancellor John Healey will have little financial room to manoeuvre in their first Budget on 28 October.
+
+Speaking during his first visit to Ukraine, Burnham said the policies announced so far including capping bus fares at Â£2 and cutting VAT on household electricity bills were "the first steps that I've felt able to make", and were doable because he was able to reprioritise funding from elsewhere.
+
+"I took the decision early on that digital ID wasn't the top priority for now. And so we've reprioritised funding to other priorities," he said in an interview with ITV.
+
+Asked if the public needed to accept some of the new policies would have to be paid for in tax rises, Burnham said they wouldn't necessarily have to accept that.
+
+Pushed on whether he would need to raise taxes to cover spending gaps, he said: "I will always take a careful approach to things. I ran Greater Manchester for 10 years and we ran a very tight ship with rock solid finances.
+
+"Nothing will change as I come into this role as prime minister. I won't take risks with people's jobs or their livelihoods or their family finances.
+
+"I will try to help them in whatever way I can, I have already done some things that will help them."
+
+Burnham previously told the BBC he accepts his earlier announcements aimed at tackling the cost of living are not enough on their own and hinted at further support.
+
+Speaking during his first official overseas visit on Monday, he said while he would do what he could, "I won't be unrealistic and people really need to understand that.
+
+"We are in a challenging position, whatever I do will be carefully thought through, it will be funded and there will be more to come as we go into the autumn."
+
+Last week official figures showed the the government borrowed more than expected in July, despite a record month for income tax receipts.
+
+Inflation also reached a four-month high of 2.9% in July and is expected to rise further due to the ongoing impact of the Iran war, which has hit energy prices and fuel costs.
+
+Experts have warned Burnham and Healey that they need to either raise taxes or cut spending elsewhere as pressure on the public finances has left no room for extra borrowing.
+
+Both the prime minister and chancellor have vowed to stick to the fiscal rules set by former chancellor Rachel Reeves. 
+
+The rules are designed to ensure day-to-day spending is funded through tax revenue by the end of the Parliament, and to reduce debt as a proportion of GDP.
+
+Rain Newton-Smith, chief executive of the Confederation of British Industry, said business owners wanted to create opportunities for young people but "the cost of employing people has gone up so much".
+
+"The business leaders I speak to say that the cost of doing business has gone up so much that it's holding them back from creating opportunities," she told the Today programme.
+
+She said targeted support for businesses would create "more growth and more opportunities that saves money for the government and ultimately leads to higher tax receipts".
+
+Do you have any views, comments or questions about this story?
+
+PM admits cost of living help is not enough and hints at further support
+
+Burnham warned Iran war could hit UK growth next year
+
+Sign up for our Politics Essential newsletter to keep up with the inner workings of Westminster and beyond.
+
