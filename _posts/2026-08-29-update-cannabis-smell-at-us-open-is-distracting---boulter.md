@@ -1,0 +1,57 @@
+---
+layout: post
+title: "Update: Cannabis smell at US Open is distracting - Boulter"
+date: 2026-08-29T11:07:31
+author: "badely"
+categories: [News]
+tags: []
+excerpt: "British number one Katie Boulter complains that the smell of cannabis is putting her off her game at the US Open."
+image: assets/images/8dc7e1adf9647085a0e24ae0bcc12ea9.jpg
+---
+
+Here’s what you need to know: Katie Boulter reached the third round of the US Open in 2023
+
+British number one Katie Boulter has complained that the smell of cannabis is putting her off her game at the US Open. 
+
+On Sunday, the final major of the season begins at Flushing Meadows in New York, where cannabis is legal for adults aged 21 and over.
+
+Though smoking is not permitted on site, the smell of cannabis wafts on to court from nearby Corona Park and has bothered a number of players in previous years, including Novak Djokovic and Alexander Zverev.
+
+Boulter, who is preparing to face American wildcard Carol Young Suh Lee in the first round, says it is possible to smell cannabis "a lot" on the practice courts.
+
+"I'm not a huge fan of it," said Boulter, the world number 60. "I know a lot of players have complained on some of the specific courts. I've played on one before and I did smell it during my match. 
+
+"It's something that I wouldn't like to smell in the middle of my match. I'm trying to focus and then obviously, it takes you out of the moment and you really don't want to. 
+
+"You don't need distractions. So yeah, I wasn't a huge fan of it."
+
+The smell of cannabis has been a persistent issue at the US Open. 
+
+In 2022, Australian Open doubles champion Nick Kyrgios complained that a fan was triggering his asthma by smoking courtside, prompting the umpire to ask supporters to refrain.
+
+Greece's Maria Sakkari pointed the smell out to an umpire midway through a set in 2023, later clarifying that it wasn't an excuse for her defeat.
+
+The United States Tennis Association, which organises the event, says it works with the local police and parks department to reduce smoking on the site boundary.
+
+It said: "While we can't control what takes place off the grounds of the USTA Billie Jean King National Tennis Center, we continue to be vigilant as we maintain this."
+
+Britain's Fran Jones and Harriet Dart, who both qualified on Friday, have also noticed the smell.
+
+"Last year I made a joke about that, in my first round, and I said to the guy, 'is this normal?'" said Jones, whose tournament begins against Poland's Magda Linette on Monday.
+
+"Because I was on the stadium, and it's next to the park. He's like, 'yeah". and I was like: 'Well, no wonder I'm playing pretty well.'
+
+"This year I'll be like 'no, lock in, lock in!'"
+
+After beating British compatriot Heather Watson in qualifying to set up a first-round match against the United States' Peyton Stearns, Dart said: "I mean it's New York. It's New York. 
+
+"I feel like everywhere you walk around, it's everywhere, no?
+
+"It is what it is. Same for everyone."
+
+Newlywed Boulter won't repeat Murray's ring mistake
+
+Live scores, results and order of play
+
+Get tennis news sent straight to your phone
+
