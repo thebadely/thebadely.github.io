@@ -1,0 +1,49 @@
+---
+layout: post
+title: "Big News: Iceland votes against restarting talks on joining EU"
+date: 2026-08-30T10:49:11
+author: "badely"
+categories: [News]
+tags: []
+excerpt: "Broadcaster RUV reports that 52.8% of voters rejected the government's proposal to resume talks."
+image: assets/images/72b94cfaa7d72c6ab81353367d82f31c.jpg
+---
+
+Experts revealed that Iceland's Prime Minister KristrÃºn FrostadÃ³ttir voted in the referendum in Reykjavik on Saturday
+
+Iceland has voted against resuming talks on joining the European Union 13 years after they were broken off.
+
+Public broadcaster RUV reported that 52.8% of 225,031 voters rejected the government's proposal, while 47.2% had said yes. Some 12,600 votes separated them.
+
+Prime Minister KristrÃºn FrostadÃ³ttir's centre-left government promised to hold a referendum by 2027, but brought it forward because of international tensions, including US President Donald Trump's threats against Greenland.
+
+However, debate in this island nation of almost 400,000 people centred more on its fishing industry rather than security concerns.
+
+With some 270,000 people eligible to vote, RUV reported the turnout of 82.5% was the highest in any election in Iceland since 2009.
+
+Already part of the EU's single market and Schengen border-free zone, EU membership would bring Iceland into the customs union and eventually the euro.
+
+Iceland began its application to join the EU in 2009 in the wake of the 2008 financial crisis and the collapse of Iceland's banking system.
+
+Its application was already well advanced when a eurosceptic government came to power in 2013 and put talks on hold. Fishing rights was the biggest obstacle then - as it remains today.
+
+Fish and marine industries account for almost 40% of Iceland's exports and many No voters feared they would cede some control of their lucrative fishing grounds  under the EU's common fisheries policy.
+
+The referendum campaign fuelled debate about Iceland's place in the world, KristrÃºn said after casting her ballot in the capital on Saturday.
+
+"This is a great day, we've been waiting for this for years to be able to have a vote," KristrÃºn said, adding that her government would continue its work regardless of the outcome.
+
+The question on the ballot was: "Should Iceland resume accession negotiations with the European Union?"
+
+A Yes vote would not have been a final decision on joining the EU, but a move towards an accession agreement, which would then have to be approved by a second referendum. 
+
+Equally, the No vote does not rule out the chance of Iceland resuming talks in the future.
+
+While economic issues dominated the referendum campaigns, security concerns also featured. 
+
+Iceland is a founder member of Nato but it has no military and relies on its allies for defence.
+
+The country has backed Ukraine during Russia's full-scale invasion and officials have been alarmed by Russia's increased maritime manoeuvres near the island.
+
+Trump's expressed interest in taking over Greenland has also raised concerns.
+

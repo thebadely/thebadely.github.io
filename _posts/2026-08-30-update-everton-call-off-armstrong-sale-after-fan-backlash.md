@@ -1,0 +1,81 @@
+---
+layout: post
+title: "Update: Everton call off Armstrong sale after fan backlash"
+date: 2026-08-30T08:58:28
+author: "badely"
+categories: [Sports]
+tags: []
+excerpt: "Everton have called off a proposed deal to sell midfielder Harrison Armstrong to Nottingham Forest following a backlash from the club's supporters."
+image: assets/images/569cbb94f052a137986ce2e084a962c5.jpg
+---
+
+Let's dive into the details: Harrison Armstrong has started all three of Everton's games so far this season
+
+Everton have called off a proposed deal to sell midfielder Harrison Armstrong to Nottingham Forest following a backlash from the club's supporters.
+
+Forest made a bid of Â£40m plus a potential sell-on clause for the England Under-19 international, who is regarded as one of the brightest prospects to emerge from Finch Farm in recent years.
+
+The news enraged Everton supporters, who sang Armstrong's name throughout Saturday's draw at Bournemouth and said there would be a "riot" if he was sold.
+
+Everton's board, led by chair Dan Friedkin, eventually decided to reject Forest's bid â with the owner at the forefront of the discussions.
+
+'Supporters aren't always wrong' - Moyes on Everton fans' anger
+
+Are Moyes and Everton's owners on same page?
+
+Armstrong has made 24 appearances for Everton and played 87 minutes against the Cherries before he was replaced by Charly Alcaraz.
+
+Speaking after the game Toffees boss David Moyes said he understood the fans' frustration and appeared to suggest the decision was out of his hands.
+
+"I think you always have to consider supporters; supporters aren't always wrong," Moyes.
+
+"But then there are also times where I've had people at clubs who are really powerful and make difficult decisions.
+
+"Managers have to make decisions on players sometimes and they feel like huge decisions. But there are sometimes bigger decisions to be made and the club will, I'm sure, make what they think is the right one.
+
+"If I'd say something to them (the fans), I'd say their manager's an Evertonian."
+
+This video can not be played
+
+Tarkowski strikes late to rescue draw for Everton at Bournemouth
+
+Moyes has been frustrated by the club's lack of signings and he made it clear he wanted reinforcements after the Carabao Cup second-round win against Preston on Wednesday.
+
+The Toffees have signed Hayden Hackney from Middlesbrough for an initial Â£16m and fellow midfielder Christian Norgaard from Arsenal for Â£7m
+
+Tyrique George and Merlin Rohl signed permanent deals after loan spells last season, while Brennan Johnson joined from Crystal Palace in a swap deal with Dwight McNeil.
+
+Talks are ongoing and moving forward between Everton and Manchester City for Jack Grealish to return before the deadline, with another loan the most likely option at this stage.
+
+However, the club have yet to sign a right-back to replace Seamus Coleman, though they have revived interest in Kenny Tete, who turned down the Toffees to sign a new deal at Fulham last year.
+
+Everton's decision to reject Nottingham Forest's offer for teenager Harrison Armstrong has headed off the possibility of open revolt against owners The Friedkin Group from a furious fanbase.
+
+The revelation that Everton had received a Â£40m bid from Forest for the gifted 19-year-old, and it was under consideration, sparked an instant backlash from fans angry at the idea the club's best homegrown product for years could be sold.
+
+Instead, after a day of drama on and off the field, Everton's board - led by chairman and billionaire owner Dan Friedkin - decided to unanimously reject Forest's approach and keep Armstrong.
+
+Everton's fans made their feelings clear during the 1-1 draw at Bournemouth. The reaction was so loud, and toxic, that it is sure to have been heard by Everton's delegation at The Vitality Stadium and relayed back to the hierarchy in the United States.
+
+It is highly unlikely to be coincidence that a deal that looked to be advancing was then stopped in its tracks.
+
+And it will also pacify manager David Moyes, whose mood looked ominous post-match at Bournemouth, as he will now keep a young talent regarded as a key part of the club's future.
+
+Everton's supporters may reluctantly accept that important players could be prised away by Champions League clubs, but the notion of Nottingham Forest being able to do the same added another layer to their fury.
+
+Forest are one of the club's Everton and their fans would hope to surpass, not bolster them by selling one of their crown jewels to them.
+
+For The Friedkin Group, it is a PR catastrophe avoided.
+
+Follow Everton on BBC Sounds
+
+Pre-match, post-match and topical Toffees content
+
+ 
+
+Subscribe and listen for everything you love about the Blues
+
+Latest Everton news, analysis and fan views
+
+Ask about Everton - what do you want to know?
+
