@@ -1,0 +1,73 @@
+---
+layout: post
+title: "Breaking: US and Iran trade strikes for first time in weeks"
+date: 2026-08-31T08:34:25
+author: "badely"
+categories: [News]
+tags: []
+excerpt: "The attack on Larak Island in the Strait of Hormuz - the first known US strike since late July - has killed two people and injured two others."
+image: assets/images/6f24a754bae6c3b86649811470ed6491.jpg
+---
+
+Let's dive into the details: Vessels in the Strait of Hormuz are visible near the beach of Bandar Abbas, close to Larak Island
+
+Iran and the US have traded strikes after American forces attacked two rocket launchers on Larak Island in the Strait of Hormuz.
+
+The first known US strikes on Iran since late July killed two people and injured two others, according to Iran's Islamic Revolutionary Guard Corps (IRGC), which vowed "response and punishment".
+
+US Central Command (Centcom) said it took "limited, precise action" after observing Iran preparing to "launch rockets and deploy sea mines into the Strait of Hormuz", according to its spokesperson.
+
+Iran said it had struck US military bases in Jordan in response, with Jordan's army saying it had intercepted eight missiles early on Monday morning.
+
+Iran's state TV also said the Iranian army had targeted an air base in the UAE with drones. 
+
+However, the UAE's Ministry of Defence denied the reports that Al-Minhad Air Base  had been targeted as "unfounded". The UAE did confirm it shot down a drone.
+
+The US strike is the first known attack on Iran since President Donald Trump paused a renewed military campaign in late July. 
+
+Larak Island is just offshore from the key port of Bandar Abbas and sits right on the Strait of Hormuz, a vital waterway for global shipping. Some 20% of the world's oil and liquefied natural gas used to travel through before the war began.
+
+Since the conflict began in February, the strait has effectively been closed, causing wild fluctuations in the price of oil on world markets.
+
+Iran is currently demanding that tanker traffic pass by Larak Island for checks and reportedly forcing vessels to pay $2m (Â£1.5m) to cross.
+
+Iran's Tasnim news agency, which is affiliated with the IRGC, said earlier that the attack on Larak was carried out by drones. 
+
+The Strait of Hormuz separates Iran from the Gulf countries
+
+Hours later, Iranian media carried a statement by the IRGC saying it had attacked the US bases of King Hussein and al-Azraq in Jordan with ballistic missiles in response to the Larak Island attack. 
+
+Iran's foreign ministry said on Monday it "strongly condemned the American military aggression on Larak", saying the strikes on bases in Jordan were a "legitimate defence".
+
+Meanwhile Iranian President Masoud Pezeshkian said in a statement quoted by state TV: "We are not seeking war, but we will deliver a decisive response to the aggressors," according to AFP.
+
+Hours after the US strike, Trump posted apparent AI videos on Truth Social showing oil infrastructure exploding. 
+
+One was captioned "Kharg Island being blown to smithereens!!!" in reference to a major oil terminal off the coast of Iran which Trump has threatened to take. His post did not elaborate.
+
+Why is the Strait of Hormuz so important?
+
+The US and Israel launched wide-ranging strikes on Iran on 28 February, with Iran responding by attacking Israel, US bases and allied states in the Gulf, and effectively closing the Strait of Hormuz to marine traffic. 
+
+The strait is a narrow stretch of water between Iran, the UAE and Oman that is about 21 miles (33km) at its tightest point.
+
+United Nations rules allow countries to exercise control of territorial seas up to 12 nautical miles (13.8 miles) from their coastline. At the narrowest point, the Strait of Hormuz and its shipping lanes lie entirely within Iran and Oman's territorial waters.
+
+Iran has fired against vessels it says have sought to cross without its permission.
+
+Trump âsaid last week that all minesâ placed in the Strait of Hormuz by Iran as part of its efforts to blockade the route had been detonated or removed. He said Iran had been warned that any ship âor boat deploying new mines would be âdestroyed.
+
+Iran's Deputy Foreign Minister Kazem Gharibabadi described Trump's claim as a "propaganda" deception. 
+
+Iran is facing renewed economic pressure after Washington announced a fresh sanctions campaign on 24 August aimed at further isolating Tehran and expanding secondary sanctions against its allies. 
+
+Iranian officials and state media have largely dismissed the campaign as a continuation of previous US economic measures, which they argue followed Washington's military failure in the recent conflict.
+
+The US is also continuing a naval blockade of Iran, which has affected Iran's ability to export oil. On Saturday, Centcom said it had disabled three vessels, boarded two and redirected 82 as part of the blockade.
+
+How the US could try to seize Iran's Kharg Island
+
+US plans to cut off military aid to key Middle East ally, BBC told
+
+Iran says it is 'fully prepared' to counter widened US economic sanctions
+
