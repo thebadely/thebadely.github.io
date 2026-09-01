@@ -1,0 +1,87 @@
+---
+layout: post
+title: "Latest: Arteta joins elite 250 club - but where does he rank?"
+date: 2026-08-31T23:15:36
+author: "badely"
+categories: [Sports]
+tags: []
+excerpt: "Arsenal's fans are singing about winning the league again under Mikel Arteta. Monday's 1-0 win at Aston Villa demonstrated the strengths they have dev"
+image: assets/images/ac6da62a6c58e04bd8d61275e90428d6.jpg
+---
+
+Experts revealed that Mikel Arteta became the second person to both play (284) and manage (250) at least 250 Premier League games, along with Mark Hughes (played 297, managed 466).
+
+When thinking of the greatest managers of the Premier League era, Arsene Wenger, Sir Alex Ferguson and Pep Guardiola are names that belong high on the list.
+
+They are three of the rare breed to have managed 250 games with a single Premier League club, and Mikel Arteta is now the 10th member of that elite group.
+
+Monday's 1-0 win over Aston Villa was the 250th top-flight game in charge for Arteta with the Gunners, and his champions delivered a trademark performance.
+
+At full-time at Villa Park, the travelling supporters sang about how they are going to win the league again with Arteta in charge.
+
+With Arsenal coming into this season as trophy holders, and with transition affecting rivals Liverpool, Manchester City, Chelsea and Manchester United, it is hard to see how the fans' partisan prediction is going to be proved wrong.
+
+Arsenal conceded the fewest goals in the league last season as they won the title for the first time in 22 years.
+
+And during Arteta's nearly seven years in charge, the Gunners have become renowned for their defensive excellence.
+
+Against Aston Villa they showed it again, without allowing a shot on target against them as Bukayo Saka's second-half goal secured victory.
+
+The latest win not only puts Arteta in the 250 club. He also has the fourth-best win percentage among those bosses, with only Guardiola, Ferguson and Jurgen Klopp ahead of him.
+
+This video can not be played
+
+Saka earns Arsenal hard-fought win at Aston Villa
+
+Arteta is the longest-serving current Premier League manager and with his longevity has come an Arsenal identity.
+
+Arsenal have become renowned for being difficult to break down and new players repeatedly say that they are impressed and sometimes overwhelmed by the level of detail coming from Arteta.
+
+This is the fifth season in a row where Arsenal have won their first two Premier League matches and they again have a solid platform to build another title challenge.
+
+The Gunners have only faced three shots on target in their first two Premier League games. Villa drew a blank in that regard.
+
+During their title triumph last season, the Gunners did not allow their opponents a shot on target in six league matches, the joint-most of any side in a campaign on record since the 2003-04 season.
+
+Goalkeeper David Raya has won the the Golden Glove award for the most clean sheets in each of the past three seasons, while William Saliba and Gabriel Magalhaes have been voted in the PFA team of the year for the past three seasons too.
+
+Since the start of March, the Gunners have kept eight Premier League clean sheets â three more than any other side and the only side in Europe's big-five leagues to have kept more are Juventus with nine.
+
+"It's how they defend as a team and how they attack as a team," Arsenal's record goalscorer Thierry Henry told Sky Sports after the game.
+
+"One thing is sure with Arsenal - everybody needs to run. You don't have any passengers in that team. This is how you win a title. You can see they are so good at it."
+
+Saka scores only goal as Arsenal beat Villa
+
+How did match-winner Saka do? Aston Villa v Arsenal ratings
+
+This video can not be played
+
+Aston Villa vs Arsenal: Mikel Arteta post-match interview
+
+Arsenal have one of the best squads in Europe. 
+
+The Gunners spent Â£250m last summer bringing in eight players as they won the title and have already spent about Â£200m this year, turning Piero Hincapie's loan deal into a permanent one (Â£34.5m), signing Bruno Guimaraes from Newcastle United (Â£75m), Christos Tzolis from Club Brugge (Â£34m) and bringing in Ezri Konsa from Aston Villa (Â£55m).
+
+"That is what we need," Arteta said, speaking to Sky Sports when asked about his squad depth.
+
+"The players that come in make the difference. All of them contributed to create more dominance and more momentum.
+
+"The level of focus and the way they want to contribute to the team, that is going to be decisive in the season."
+
+Arsenal's strength in depth cannot be understated, but one area they may still look to strengthen in is the forward area.
+
+The Gunners have been on the hunt for an elite forward to lift their attack and still could be active on Tuesday's deadline day.
+
+They had an unsuccessful pursuit of Real Madrid winger Vinicius Jr, while they also have a long-standing interest in Atletico Madrid striker Julian Alvarez.
+
+"We are trying to improve the squad and until tomorrow night we will try to do it," Arteta said.
+
+"I have been disconnected from the world for the last 24 hours because my energy has to be on the match, but I will get back on it now."
+
+When pushed about a deal for Alvarez, Arteta said: "I don't know, that's for the people upstairs."
+
+Whatever happens in Arsenal's search, they are going to be hard to keep off the top of the table with Arteta at the helm.
+
+Ranking the best managers in Premier League history
+
