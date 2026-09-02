@@ -1,0 +1,81 @@
+---
+layout: post
+title: "New: US sailors arrive at Thailand's Pattaya after record 250 days at sea"
+date: 2026-09-02T10:04:28
+author: "badely"
+categories: [News]
+tags: []
+excerpt: "The USS Abraham Lincoln is docking close to Pattaya, known for its neon-lit nightlife, and for sex tourism."
+image: assets/images/f8cb47f04f6e66c9df80dbb771c4b1db.jpg
+---
+
+According to new developments, This video can not be played
+
+Watch: Why US troops have a history in this raucous Thai city
+
+After a record 250 days at sea without a port stop, the nuclear-powered aircraft carrier USS Abraham Lincoln has docked in Thailand, giving its nearly 5,000 crew members a much-needed break.
+
+The ship is docking close to the beach resort of Pattaya, known for its raucous nightlife and for sex tourism. For the US it also carries strong historical echoes.
+
+When the weary sailors walk into the city's bars and restaurants, they will literally be treading in the footsteps of the hundreds of thousands of US troops who came here for R&R â rest and relaxation - during the Vietnam War.
+
+They transformed it from a sleepy fishing village to one of the world's most famous and frenetic party towns.
+
+Today the neon-lit alleys running down to the beach are much quieter than usual. The bars in the city's famous Walking Street still screen videos on their walls of pole-dancing women, trying to lure customers inside.
+
+But there are not many of those customers, and most seem to be family groups from the Middle East more interested in the Turkish ice-cream vendor than the go-go bars.
+
+The Iran War, which has affected tourism and consumer spending, has hit businesses hard here. The prospect of thousands of American sailors, with nine months of salary unspent while at sea, offers a rare opportunity to local businesses.
+
+US personnel arriving at the Hard Rock Hotel in Pattaya on Wednesday
+
+The US carrier left San Diego last November on what was supposed to be a six-month assignment in the Pacific and South China Sea. 
+
+However, the ship was diverted to the Gulf after the US and Israel began military operations against Iran in late February.
+
+Recently some members of Congress raised concern about reports of food shortages, broken toilets and mental stress among the crew. The US Navy acknowledged that working conditions have been tough, but said the crew were sufficiently well-supported. It would not, however, comment to the BBC on the carrier docking at Pattaya, citing operational security.
+
+Despite its close relationship with China, Thailand is a treaty ally of the US, and port visits by US Navy ships are a familiar occurrence.
+
+But this is probably the largest number of US military personnel coming straight from a war zone to Pattaya since the fall of Saigon in 1975.
+
+Pattaya's streets, know for their raucuous nightlife, are quieter than usual
+
+"This visit could be our best hope," said Anon Saiteer, who sells gems in a shop near Walking Street, which has put up a large sign welcoming the US sailors and marines and offering them a special discount. "We have nothing to lose â we just hope they will spend some money here."
+
+But US and Thai officials are trying to ensure this happens without any of the salacious headlines for which Pattaya has become known.
+
+The Thai authorities have said there are a few places where the US servicemen and women will not be allowed to go. One of them is Soi 6, which runs down to the main beach, and is known for its concentration of racy go-go bars.
+
+While the Thai police have reminded their US visitors that prostitution is technically illegal in Thailand, there are actually thought to be 25,000 to 50,000 sex workers in the city. Many of them work in Soi 6, where they stand outside the bars imploring men to come inside.
+
+The many cannabis shops in Pattaya are also off-limits to US crew members, along with sea-sports like paragliding and jet-skis.
+
+"It is their decision," Mayor Poramase Ngampiches told the BBC.  "The US military have done their homework."
+
+The war in Iran is hurting local businesses 
+
+US Naval Attache Kristopher Robinson rebuffed questions from the BBC about activities that soldiers were banned from doing.
+
+Instead, he said the US troops would "conduct themselves in accordance with US law, US naval regulations, and the laws of Thailand".
+
+"We're trying to give the sailors as much opportunity for rest as they can," he said.
+
+The US Navy has organised shuttle buses from the port into Pattaya running from 5am to 2am every day the carrier is here in Thailand. Two hotels have been designated suitable for those US crew members who want to splash out on a night onshore.
+
+The Thai authorities have deployed hundreds of police officers to keep an eye on the city's entertainment zones, and warned local businesses not to overcharge their American guests.
+
+"The visits of US military men 50-60 years ago introduced Pattaya to the world and turned it into a tourist attraction," says Mayor Poramase. 
+
+"We have to be frank, the city has a reputation for bar girls. We understand the stereotypes. We can't stop that. 
+
+"What we can do is to show that Pattaya has changed, that we now have other things, such as sports, seminars, wellness and family-friendly activities. It's a mixture of everything."
+
+Both countries hope that by the time the USS Abraham Lincoln begins the long journey home across the Pacific on 6 September, it will be with a refreshed and rested crew.
+
+With additional reporting from Nongnapat Patcham.
+
+Conditions on US aircraft carrier at sea for more than 250 days raise alarms
+
+'A floating prison' - sailors describe life on warships like USS Abraham Lincoln
+

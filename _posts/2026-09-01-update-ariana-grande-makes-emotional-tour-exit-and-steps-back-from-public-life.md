@@ -1,0 +1,123 @@
+---
+layout: post
+title: "Update: Ariana Grande makes emotional tour exit and steps back from public life"
+date: 2026-09-01T21:41:05
+author: "badely"
+categories: [News]
+tags: []
+excerpt: "The star makes an emotional farewell as she wraps up a tour she's described as her 'last hurrah'."
+image: assets/images/a9a7943a6c8509ad668c43e490accb9f.jpg
+---
+
+Experts revealed that This video can not be played
+
+Watch: Ariana Grande thanks fans for support at final show in London
+
+Ariana Grande made an emotional exit on Tuesday night, as she wrapped up her Eternal Sunshine tour, and prepared to step back from public life.
+
+The singer was occasionally close to tears - most notably during One Last Time, the song that took on extra meaning as an anthem for survivors of the 2017 Manchester terror attack.
+
+"London, I'm going to need you to help me on this one," she said, kneeling down to be near the audience throughout the performance.
+
+Last month, Grande announced a break from all future public-facing appearances following months of intense speculation about her health and appearance.
+
+The step-back includes Grande's withdrawal from a production of Stephen Sondheim's Sunday in the Park with George at London's Barbican next summer.
+
+She was due to appear alongside her Wicked co-star Jonathan Bailey. He also pulled out of the production on Tuesday.
+
+On stage in London, Grande showed no signs of fragility or poor health - other than a foot injury that required her to swap her trademark stilettos for a succession of knee-high platform boots.
+
+Nonetheless, she sprang across the stage in sync with her dancers, often on tip-toe to compensate for the lost height of her high heels.
+
+But her voice faltered again during the song Nowhere, Nobody, as she sang the line: "Hard to believe in a perfect ending."
+
+The blip was short-lived, though. Professional to the core, Grande regained her composure and was never less than magnetic on stage.
+
+The star has told fans she may not tour again for a "long, long" time
+
+Addressing the audience towards the end of the show, the singer thanked fans for their support.
+
+"This has been one of the most beautiful extraordinary experiences of my life and I just wanted  to express my gratitude without sobbing completely," she said.
+
+"I'll cherish this experience always. I have the best fans in the entire world and I always have. Thank you for all of your effort and continuing to make this so special.
+
+"I have loved every minute of this with you all and I just wanted to make sure I express how grateful I am."
+
+Grande announced her hiatus last month, shortly after releasing the music video for her latest single, Petal, which led some fans to express concern about her weight.
+
+One wrote on X that the 33-year-old had "become so thin that people are genuinely concerned".
+
+Two days later, Grande's publicist announced her "step back from visibility", due to "endless, ongoing public scrutiny".
+
+Speaking to People magazine, a source close to the singer noted that she "performs a very physical show... healthily and successfully at a very high level night after night".
+
+Grande herself moved to reassure fans the following night, saying her decision came from a "thoughtful, empowered place", and had been planned "a long time ago".
+
+"I heard my fans were worried negativity was ruining things for me but... that could not be more than the opposite," she said on stage in Chicago.
+
+"Boundaries need to be set, human beings do need a break sometimes."
+
+The Eternal Sunshine tour marked Grande's return to the stage after a seven-year absence
+
+Even before that announcement, Grande had described the Eternal Sunshine tour - which started in the US in June - as "one last hurrah", saying she wanted to take more acting roles after her Oscar-nominated performance in Wicked.
+
+That meant her 10 show residency at London's O2 Arena represented many fans' last chance to see her in concert. 
+
+They flew in from all over the world - from China and Australia and cities all across Europe - with 200,000 people attending the London dates alone. 
+
+On the second night, Grande surprised the audience by bringing out her Wicked co-star Cynthia Erivo for a rendition of their movie duet For Good.
+
+Across the board, reviews were positive.
+
+"There's no question about it - Ariana Grande is one of the best singers of her generation," wrote Rolling Stone magazine, external, noting that "there were no signs" of the singer "struggling or not wanting to be there".
+
+The Telegraph called the show "flawless", external, praising its "Hollywood-indebted" staging, and Grande's "genuine affection for Britain".
+
+My own review highlighted quieter songs like Imperfect For You felt delicate and gorgeous and strangely intimate in a room of 20,000 people.
+
+But Guardian writer Kate Solomon said she was "gripped by genuine concern", external for Grande, even when she was enjoying the show, adding: "I really hope this tour does not go down in history for the wrong reasons".
+
+The NME, by contrast, was left breathless by the star's physical prowess.
+
+"Throughout the show," marvelled Nick Levine, external, "she skips across the stage in skyscraper heels that most drag performers would baulk at."
+
+That wasn't the case on the final night, however, due to what Grande described as a "deep cut" on her foot.
+
+Writing on Instagram, she assured fans the injury wasn't serious, insisting she was "on the mend" and would complete her final shows "even if I am a few inches shorter than usual".
+
+She did so with a huge smile spread across her face, leaning into the big notes of Dangerous Woman, and sprinting across the stage during Break Free - one of many up-tempo highlights.
+
+She ended the show as she always does - attached to a harness, ascending into the rafters of the O2 and disappearing.
+
+Fans were left wondering when, if ever, they'd see her perform again.
+
+Many fans attended the concert in Grandeâs signature âbunny earsâ look
+
+Among them was Rachid, a London fan who said he was "devastated" by Grande's withdrawal from touring.
+
+"That's why I really, really wanted to come to the last show because I was like, 'What if she never comes back?'" he said.
+
+"So that's why I was here - to enjoy everything she has to give us, and hopefully she gets a nice break now."
+
+"I'm not gonna lie, I'd do the same thing," joked Manchester fan Nadine.
+
+"Like, I made my money, got on stage, sang my heart out... I'd bugger off, too! Straight to Hawaii, or somewhere else where nobody knows who I am, you know what I mean?"
+
+Lukas, whoâd travelled from France for the concert said it was good to see Grande taking matters into her own hands.
+
+"She's said goodbye and now she's gonna rest for her safety," he said. "If she needs the break, she takes it and we, the real fans, understand."
+
+"It's sad that people are speculating about someone else's health," said Polish fan Alejandro Grande (no relation, he insisted).
+
+"And it's sad that she has to make a decision for herself just to reclaim her power and her energy."
+
+"Yeah, it's completely up to her," agreed Bella Hopkins from Bronsgrove. "I think people should respect how she feels and what she needs."
+
+Get our flagship newsletter with all the headlines you need to start the day. Sign up here.
+
+Ariana Grande to take a break from public life amid 'endless' scrutiny  
+
+Ariana Grande says decision to step back 'was not reactive or impulsive'
+
+Ariana Grande leaves problems at home as her tour hits the UK
+

@@ -1,0 +1,67 @@
+---
+layout: post
+title: "Breaking: Kids eat free and loyalty points - six ways to eat out but not break the bank"
+date: 2026-09-01T23:26:38
+author: "badely"
+categories: [Business]
+tags: []
+excerpt: "The cost of dining out is getting increasingly hard to swallow - but clever planning can get you cheaper deals."
+image: assets/images/af9f179f5af10f591ef8d00349ad45e9.jpg
+---
+
+Let's dive into the details: The price of eating out can be hard to swallow while the cost of living remains high, with more than a third of Brits cutting back on going to restaurants, according to YouGov's latest Dining Out report., external
+
+Restaurateurs say the rising cost of food, energy, wage and tax bills mean they've had to put up prices, with some top chefs campaigning for government help. 
+
+Many eateries are offering incentives to get diners through the doors. Here are some ways to save money on meals out.
+
+Many restaurants offer points, freebies, discounts and birthday treats to keep customers coming back. 
+
+One of the most well-known is the Pizza Express Club. Regular diners can progress through a bronze, silver and gold system unlocking perks from free dough balls to hot and soft drinks on the house.
+
+Nando's uses a chilli system for its loyalty programme, while other schemes such as Tastecard offer discounts at hundreds of eat-in and takeaway venues in exchange for an annual fee.
+
+Restaurants often want to fill seats outside of peak lunch and dinner hours so opting for earlier or later sittings can be rewarded by a cheaper bill.
+
+Apps such as First Table, which operates across 21 UK cities, as well as Ireland, New Zealand and Australia, give diners 50% off food when they book a participating restaurant's first or last dining slot. In exchange, diners pay a small booking fee. 
+
+EatClub is another, giving walk-ins up to 50% off the whole bill at thousands of venues when they redeem an offer within its app. The biggest discounts are at off-peak times.
+
+Shokofeh Hejazi, director of foresight and innovation at global trends agency The Food People, says earlier dining appeals because it tends to be quieter and calmer, people drink less and it allows them to get home sooner. 
+
+Meeting up for breakfast also tends to be a bit more wallet-friendly as it's usually just one course and diners get the same catch-up time with friends and family, she adds. 
+
+In the school holidays, many places will entice families through their doors by offering free or Â£1 meals for kids eating with paying adults.
+
+These range from big chains such as TGI Fridays, cafes at supermarkets including Morrisons and Asda, and even garden centres like Dobbies.
+
+While some tie-in with school holidays, other deals are all year round.
+
+Many new restaurants will offer discounts in a bid to encourage diners to try them out and spread the word that they've opened for business. 
+
+These are known as "soft launches" and can run for several weeks. They're a cost-effective way of trying a higher-end restaurant without such a hit to the wallet.
+
+Keep track by signing up to newsletters that list upcoming openings in the local area. 
+
+Hejazi says some restaurants are extending the period before they fully open to garner more buzz, while others are making their soft launch pricing permanent for quieter days such as Mondays. 
+
+People shouldn't assume they're priced out of fine dining-type venues because "there's access points for everybody in a lot of these places", she says.
+
+Supermarket loyalty points from those weekly shops add up over time so why not put them toward a meal out? 
+
+For example, each 50p earned in Tesco Clubcard points can be exchanged Â£1.50 in vouchers to spend at participating Prezzo Italian venues. The chain is just one of Tesco's restaurant partners.
+
+Finally, there are plenty of options to take away food for free or at a fraction of the usual price.
+
+Surplus food apps such as Too Good To Go, or Olio, allow customers to bag goodies that would otherwise go to waste.
+
+It's a bit of a gamble - you don't always know precisely what you'll be getting.
+
+But there's money to be saved on items needed to buy anyway, that's more cash left over for when you do decide to dine out.
+
+Do you have any views, comments or questions about this story?
+
+UK economy flatlines in January as people cut back on eating out
+
+Top UK chefs call for cutting VAT for pubs and restaurants to 10%
+
