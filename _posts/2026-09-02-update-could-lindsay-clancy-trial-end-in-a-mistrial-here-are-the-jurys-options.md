@@ -1,0 +1,103 @@
+---
+layout: post
+title: "Update: Could Lindsay Clancy trial end in a mistrial? Here are the jury's options"
+date: 2026-09-02T23:56:29
+author: "badely"
+categories: [News]
+tags: []
+excerpt: "Jurors have five options before them as they decide the fate of the former nurse charged with murdering her three children."
+image: assets/images/1e1de33f37179b717f0bbee15cf6c3b7.jpg
+---
+
+Let's dive into the details: This video can not be played
+
+Watch: What happens now after Lindsay Clancy trial jurors deadlocked again?
+
+After a gruelling five-week murder trial, Lindsay Clancy's fate rests with 12 anonymous jurors. And they cannot make up their minds.
+
+The jury of nine women and three men have told the judge, two days in a row, that they cannot reach a unanimous decision. Despite the judge's continued urging that jurors keep at it, the struggle has raised the prospect of a mistrial in Clancy's case.
+
+"It is desired that the case be decided," Judge William Sullivan told the panel on Wednesday afternoon, after members sent him a second note saying they are undecided after five days. 
+
+He read a mandatory, formal set of instructions and sent them back - some with frustrated expressions on their faces.
+
+The 36-year-old former nurse does not dispute that she killed her two sons and daughter in 2023 in the basement of their family home in Massachusetts. But her lawyer argues she was suffering from postpartum psychosis at the time, and therefore could not distinguish right from wrong.
+
+The prosecution claimed Clancy made a calculated, intentional decision to kill them and knew right from wrong in that moment. She is charged with three counts of first-degree murder.
+
+Under US law, the jury must unanimously reach a conclusion "beyond a reasonable doubt". If they cannot, the judge can call a mistrial, which ends the trial with no verdict.
+
+This jury has several outcomes to choose from. Potential verdicts include not guilty, not guilty by reason of insanity, first-degree murder, second-degree murder, and manslaughter.
+
+Jurors in Clancy's trial have signalled they are deadlocked and having a hard time coming to a unanimous decision, which is mandatory for any verdict.
+
+In the state of Massachusetts, there are typically multiple steps before they can give up. A judge usually tries to pressure the panel to continue deliberating until there's no possible chance of a decision. We've hit two of those steps so far. 
+
+On Wednesday, Sullivan issued additional instructions, known as a Tuey-Rodriguez charge in the state. It's a last-ditch effort, encouraging the panel to consider all perspectives, and ensuring jurors are questioning and examining their own views in the case. It also instructs them to strive to come to an agreement - while maintaining their own convictions and keeping to their individual judgement and conscience. 
+
+If the jury continues to signal they cannot come to a consensus, it's possible the judge could then declare a mistrial, ending the trial with no decision. 
+
+A hung jury does not mean prosecutors have proven their case, nor does it mean the defendant is not guilty. 
+
+The prosecution can then either refile and restart with a new jury, or negotiate a plea agreement. Alternatively, prosecutors can dismiss the charges altogether.
+
+Either way, though, Clancy would not go immediately free. She would remain held under the same murder charges in the mental health facility where she is housed now, as her lawyers and prosecutors mull next steps in the case. 
+
+This hinges on the postpartum psychosis defence - her legal team argued that Clancy hallucinated a voice that told her to kill the children.
+
+Expert witnesses told the court how severe this illness can be, and family members testified about Clancy's state of mind.
+
+Under Massachusetts law, there is no burden on Clancy to prove her mental illness and that she lacked criminal responsibility.
+
+Rather, it is on the prosecution to prove beyond reasonable doubt that she was criminally responsible when she killed her children, criminal defence lawyer Elyse Hershon told the BBC.
+
+They can do this by either proving beyond reasonable doubt that she didn't suffer from a mental illness at the time or that, while she had a mental illness, she still controlled her actions and knew they were wrong.
+
+A not guilty verdict would mean Clancy went free but that is considered highly unlikely. Much more likely is a not guilty by reason of insanity, which would result in Clancy being detained at a hospital.
+
+"The case really comes down to where she is going to serve the rest of her life; the defence thinks it should be a psychiatric facility, the prosecution thinks it should be in a state prison," Hershon said.
+
+This video can not be played
+
+Watch: What is postpartum psychosis and why is it central in the Lindsay Clancy trial?
+
+This is the most serious potential outcome for Clancy - being found guilty of first-degree murder, which is the intentional and premeditated killing of another person.
+
+In the state of Massachusetts, this conviction carries a mandatory sentence of life in prison without the possibility of parole.
+
+Clancy would effectively need to be seen as "a monster in the jury's eyes" if jurors picked this outcome, Heather Cucolo, a New York Law School professor and mental health law expert, told the BBC.
+
+Jurors would have to find there was extreme atrocity or cruelty, or premeditation or both to convict Clancy of this, and it would mean the prosecution had proven there were no mitigating factors.
+
+In this case, mental disease or defect - as the law describes it - could be a mitigating factor.
+
+Prosecutor Jennifer Sprague said during closing arguments there was no dispute Clancy was suffering from mental illness but it was not so severe that she didn't know right from wrong.
+
+Expert witnesses for the prosecution cast doubt on whether Clancy actually heard the voice that she said ordered her to kill her children.
+
+This is a catch-all for any murder that is not first-degree, under Massachusetts law.
+
+It applies to unlawful killings committed with malice or extreme recklessness, but without prior planning.
+
+"For this verdict, the jurors may not be convinced that the actions leading up to the murder rose to the level of pre-planned [or] premeditated but that instead, Clancy consciously saw an opportunity to commit the killings at the specified time," Cucolo said.
+
+In the case of second-degree murder, Clancy would also face a life sentence - but with the possibility of parole.
+
+The jury received yet another option when the judge allowed it to find Clancy guilty of manslaughter - previously a point of contention between the defence and the prosecution.
+
+A manslaughter conviction would mean Clancy unintentionally killed "by wanton and reckless conduct", which carries a maximum sentence of 20 years in prison per count.
+
+The manslaughter option says that through an involuntary intoxication, in this case an overprescription of her medication, Clancy experienced a mental defect that was a mitigator in her understanding what she was doing, Hershon said.
+
+Intent is an important distinction between a verdict like manslaughter and the two murder verdicts, experts said.
+
+"This option allows the jury to accept that the murders were not planned or calculated but that instead Clancy made a split-second decision to act," Cucolo said.
+
+The prosecution is not obligated to demonstrate that she intended to cause the children's deaths for there to be a manslaughter conviction, she added. 
+
+Key moments in trial of Lindsay Clancy, the mother accused of murdering her three children
+
+Jury deliberating in trial of Lindsay Clancy, US woman accused of killing her children
+
+Lindsay Clancy suffering 'command hallucination' when she killed children, court hears
+

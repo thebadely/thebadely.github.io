@@ -1,0 +1,63 @@
+---
+layout: post
+title: "Latest: Criminals publish data of 8.7m people after airports hack"
+date: 2026-09-02T11:00:59
+author: "badely"
+categories: [Technology]
+tags: []
+excerpt: "The company, which owns Manchester, Stansted and East Midlands airports, was hacked last month."
+image: assets/images/6f1f8bb277bbef1e6e34964e0113c65b.jpg
+---
+
+Let's dive into the details: Criminal hackers have posted the personal data of nearly nine million people online after breaching three UK airports.
+
+Hackers extorted Manchester Airports Group (MAG) for an undisclosed amount but failed to get their ransom paid.
+
+Customers of Manchester, London Stansted and East Midlands airports are being warned of secondary attacks as the data is now available to other criminals.
+
+"MAG is confident that we have taken effective measures to protect our customers and we have contacted all those affected, including reaching out to all those with upcoming bookings to advise them of additional support," the company said in a statement.
+
+Contact details, vehicle registrations and postcodes were stolen in the breach that appears to have accessed databases containing wi-fi log in and car parking details.
+
+The cyber-crime group - which the BBC is not naming - is offering the entire data set for free to other criminals or scammers through their website. 
+
+"Today we are releasing the Manchester Group database," they wrote.
+
+"Half a terabyte, and every byte of it is pure PII [personally identifiable information]."
+
+Stolen data experts at HaveIBeenPwned have analysed the published material and confirmed it contains people's email addresses, phone numbers, addresses, licence plate numbers, purchasing history and browsing device data. 
+
+Cyber-security expert Kevin Beaumont warned those affected to be on high alert for other forms of scam and hack - especially high profile or wealthy individuals. 
+
+"The data includes both historical locations and planned future travel, so individuals sensitive to their movements being known may need to take precautions," he said. 
+
+"People should be alert to scammers reusing the data and so knowing details such as phone numbers and car registration numbers," he added.
+
+Law enforcement organisations including the UK's National Crime Agency have long advised victims of extortion attacks not to pay criminal ransoms as it fuels the hacker ecosystem. 
+
+MAG says it is working with the authorities and specialist advisors and says passengers' physical safety has not be at risk in the airports.
+
+Unusually, the cyber criminals' website where the MAG data is available is hosted on the clear internet and not on the dark net like most other so-called hacker "leak sites". 
+
+This makes the data easier to access, increasing the risk to victims of MAG and the other companies the gang has breached in recent months.
+
+As well as posting the stolen data, the hackers boasted about how they breached each victim using the same method each time - exploiting weaknesses in how companies store their digital keys for internal networks.
+
+Data watchdog the Information Commissioner's Office has advice on its website, external for people whose data has been hacked. It includes: 
+
+Report any details of stolen documents including passports, credit cards or driver's licences to the issuer
+
+Check your bank statement and credit report for any unusual activity
+
+Keep alert for any suspicious emails, messages or phone calls
+
+Use strong passwords and multi-factor authentication for online accounts
+
+Hackers steal data from millions of airport customers
+
+UK cyber chiefs say it's time to ditch passwords for passkeys - what are they?
+
+Airport boss defends car parking income
+
+Sign up for our Tech Decoded newsletter to follow the world's top tech stories and trends. Outside the UK? Sign up here.
+
