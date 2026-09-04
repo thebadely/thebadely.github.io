@@ -1,0 +1,49 @@
+---
+layout: post
+title: "Big News: Trump $1 coin makes him first living president on US currency in a century"
+date: 2026-09-03T15:35:47
+author: "badely"
+categories: [Business]
+tags: []
+excerpt: "The US Mint special edition is stamped with a portrait of Trump alongside the words 'LIBERTY' and 'IN GOD WE TRUST'"
+image: assets/images/6b4db3cc72a428ad521da9da570a5ccd.jpg
+---
+
+According to new developments, Donald Trump's portrait has made its way on to a US coin - the latest move by the president to put his personal stamp on American institutions.
+
+On Wednesday, the US Mint launched the $1 (Â£0.74) coin with a portrait of Trump alongside the words "Liberty" and "In God We Trust", to celebrate America's 250th anniversary.
+
+The Mint said the coins, which are being marketed as a collectable, were not being put into circulation for daily use.
+
+The law bans living presidents from appearing on US currency, but a design clause in legislation for the anniversary was used to overcome this.
+
+The coins - priced at $61 for a roll of 25 and $154.50 for a bag of 100 - were "not currently in stock" on the mint's website within hours of going on sale but it said more are being made. 
+
+The coins were also being sold in vending machines at the US Mint store in Washington DC. 
+
+The BBC has contacted the US Mint, the Treasury and the White House for further details.
+
+The coin has been "created to celebrate this historic national milestone" with a "once-in-a-generation anniversary design destined to become a standout addition to modern collections", the US Mint said.
+
+The coins have a golden colour but do not contain any actual gold. According to the US Mint, they are 88.5% copper with the balance being made up of zinc, nickel and a manganese brass outer layer. 
+
+While they are not in circulation, they can be used as legal tender to pay off debt and taxes, although federal law states that businesses can decide whether or not to accept them.
+
+Vending machines selling Trump $1 coins at the US Mint store in Washington DC
+
+In May, Treasury Secretary Scott Bessent said his department was planning to issue a new $250 bill bearing a portrait of President Trump.
+
+At the time, Bessent highlighted that another living US president has previously appeared on the country's currency.
+
+A half-dollar that was issued to commemorate America's 150th anniversary in 1926 featured then-President Calvin Coolidge.
+
+The Trump administration has also cited the Circulating Collectible Coin Redesign Act of 2020, from Trump's first term.
+
+While this statute prohibits portraits of living people on the reverse (tails side) of coins, it does not explicitly cover the obverse (heads side), where Trump's likeness appears on the new $1 coins.
+
+In March, the Treasury announced that US paper money would soon bear Trump's signature - another first for a sitting US president.
+
+Trump Mobile promoted a 'Made in the USA' phone - but the details kept changing
+
+Trump 24-karat gold coin approved by hand-picked federal panel
+

@@ -1,0 +1,67 @@
+---
+layout: post
+title: "Latest: Ashes tickets pricing people out of game - Vaughan"
+date: 2026-09-03T18:57:12
+author: "badely"
+categories: [Sports]
+tags: []
+excerpt: "Former England captain Michael Vaughan says ticket price rises for next year's men's Ashes are 'pricing a lot of people out of the game.'"
+image: assets/images/bde3dfcf18cec5be7e0e2109f0180cc1.jpg
+---
+
+According to new developments, Edgbaston Cricket Ground has a capacity of 25,000
+
+Former England captain Michael Vaughan says the rise in the cost of tickets to next year's men's Ashes are "pricing a lot of people out of the game".
+
+Having labelled a 43% price increase for the 2027 Test at Edgbaston as "really poor" on social media, he subsequently told BBC Radio 5 Live the England and Wales Cricket Board (ECB) could be "in for a shock" from the impact of their ticket policy.
+
+Members at Edgbaston can purchase tickets for Â£92, but the cheapest non-member adult tickets across the first three days are Â£115, with every ticket carrying a Â£2.50 booking fee.
+
+"I think the game's got to be very careful. I think you're going to be pricing a lot of people out of the biggest series of them all," said Vaughan.
+
+"A family out of four with children over 16 it's near on Â£1,000. And then you've got to price in a few drinks when you're there, a bit of food, travel, maybe accommodation - this is the sport the ECB are wanting to be the most inclusive in the country.
+
+"The fans first and foremost are the reason any sporting occasion is a good one, don't price them out because they might get a shock."
+
+The Birmingham ground will host the third Test of the best-of-five series between England and Australia next summer, with ticket prices in the Hollies Stand - which holds almost 6,000 spectators - costing Â£165, up from Â£125 in 2023.
+
+Vaughan added: "It's a 43% uplift, that for me is far too much. I think fans know that ticket prices over time will go up, but next week you'll be paying Â£82 and next year on the same seat it'll be around Â£167.50.
+
+"The Hollies Stand is one of the most famous stands in cricket, in the UK. We love the atmosphere. But you'll be sitting among the beer snakes, there's going to be giraffe and elephant [costumes] walking by.
+
+"A lot of these venues are having a huge amount of expenditure and it's great. The Hundred sale money, I thought was going to be helping for that. A year or so after all that money coming in, it looks like it's been put on the ticket prices as well."
+
+'We are being priced out of watching Test cricket'
+
+Following the 2023 series, which ended in a 2-2 draw after Australia won the first two Tests [at Edgbaston and Lord's], the England and Wales Cricket Board (ECB) said "every day sold out in advance, with total attendance topping 545,000".
+
+An Edgbaston Stadium spokesperson said: "Our prices for the 2027 Ashes Test are broadly in line with other host venues and major British sporting events such as Wimbledon and the Formula One at Silverstone. 
+
+"Our entry level ticket prices roughly match inflation compared to the last time Australia visited Edgbaston in 2023 - but like the rest of the country, we're battling increased costs and trying to manage these wherever we can."
+
+Despite Warwickshire's Edgbaston stadium being at a reduced capacity because of the construction of an on-site hotel, tickets for next week's third Test between England and Pakistan, which range between Â£57.50-Â£87.50 for adults, have not sold out.
+
+The ticket ballot for the 2027 Ashes opened on Wednesday, with prices more expensive at Lord's and the Oval in London, with the best tickets at Â£190 and Â£185.
+
+England, who lost 4-1 in Australia last winter, begin their quest to regain the Ashes at Trent Bridge in Nottingham on 18 June.
+
+The second Ashes Test at Lord's begins on 30 June and the third at Edgbaston on 8 July.
+
+The Utilita Bowl in Southampton will become the 10th UK ground to host a men's Ashes Test when the fourth Test gets under way on 21 July, with the series concluding at the Kia Oval from 29 July.
+
+BBC Sport has contacted the ECB and all the Test venues for comment.
+
+Ticket prices for sporting events have been an ongoing point of contention for fans.
+
+A crowd of 13,623 were at Birmingham's 23,000-capacity Alexander Stadium to watch Britain's 24-year-old sprinter Amy Hunt win the women's 100m at the European Athletics Championships last month.
+
+Athletics supporters blamed ticket prices, with Category A tickets for the home straight costing Â£150.
+
+For the men's 100m final those same seats cost Â£110, again with no concessions for juniors.
+
+In April, Ryder Cup organisers defended ticket prices for next year's centenary golf event between Europe and the United States in Ireland.
+
+Daily general admission tickets for the three tournament days on 17-19 September at Adare Manor in County Limerick will cost 499 euros (Â£434), compared with up to 260 euros in Italy in 2023.
+
+Get cricket news sent straight to your phone
+
