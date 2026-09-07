@@ -1,0 +1,37 @@
+---
+layout: post
+title: "New: China to pump $54bn into state banks and insurers to boost economy"
+date: 2026-09-07T02:26:12
+author: "badely"
+categories: [Business]
+tags: []
+excerpt: "It comes as Beijing is aiming to reshape its economy in the face of a number of challenges."
+image: assets/images/43e0ec9905e97ee30759f36eb8b034a6.jpg
+---
+
+According to new developments, China is pumping tens of billions of dollars into eight state-owned banks and insurance companies to help shore up the country's financial system and boost its slowing economy.
+
+The cash injection, which is being led by China's finance ministry, will total 360 billion yuan ($53.6bn; Â£39.7bn), state news agency Xinhua said on Sunday.
+
+The outlet said the move "will help further enhance their sound operating capabilities, risk resistance capabilities, and ability to serve the real economy".
+
+It marks the latest move in Beijing's attempts to reinvigorate the world's second largest economy as it faces issues including trade tensions with the West, the impact of the Iran war and an aging population.
+
+The package will boost the finances of three big lenders and five insurers including the Industrial and Commercial Bank of China, the Agricultural Bank of China and China Export & Credit Insurance Corporation.
+
+State news outlet Global Times said this "will give banks and financial institutions more resources to channel into credit for the real economy, while strengthening their ability to withstand external shocks at a time of global financial uncertainty".
+
+President Xi Jinping has long seen financial stability as key to China's national security.
+
+This weekend's announcements come as Beijing is aiming to reshape the economy in the face of a number of challenges such as a shrinking workforce, a years-long property market slump and ongoing trade and technology rivalry with the US.
+
+China's economic growth slowed sharply between the start of April and end of June as weak domestic demand and the Iran war's impact on oil prices overshadowed the country's strong exports.
+
+Official gross domestic product (GDP) figures released in July showed China's economy grew in the second quarter by 4.3%, below Beijing's annual target, and after a 5% rise in the first quarter.
+
+In March, Beijing cut the growth target to a range of 4.5%-5%, its lowest economic expansion goal since 1991, a move some analysts say has given Beijing space to acknowledge pre-existing economic weakness.
+
+'Investing in people': Can China's new push to boost spending revive the economy?
+
+China weathered Trump's tariffs - but the Iran war is taking a toll
+
