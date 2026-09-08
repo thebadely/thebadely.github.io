@@ -1,0 +1,107 @@
+---
+layout: post
+title: "Big News: Vaughan intrigued by dynamic as Pietersen gets England white-ball role"
+date: 2026-09-07T13:29:48
+author: "badely"
+categories: [Sports]
+tags: []
+excerpt: "England appoint former Ashes-winning batter Kevin Pietersen to their white-ball coaching team in the build-up to the 2027 ICC Cricket World Cup."
+image: assets/images/b421c1bde124316d0a0d9d9d6b3644c4.jpg
+---
+
+Let's dive into the details: Kevin Pietersen scored almost 14,000 runs across all three formats for England, with only Alastair Cook and Joe Root hitting more
+
+England have appointed former Ashes-winning batter Kevin Pietersen to their white-ball coaching team in the build-up to the 2027 ICC Cricket World Cup.
+
+Pietersen, 46, joins as a specialist mentor and will start in the role for the upcoming T20 and one-day matches against Sri Lanka.
+
+He will also be involved in this winter's tours to Australia and South Africa, before joining up with the teams again for the home series against Pakistan and New Zealand next summer, as well as the 50-over World Cup, which is being held in South Africa, Zimbabwe and Namibia in the autumn.
+
+"I've got immense respect for KP and what he's achieved in the game," said England's white-ball head coach Brendon McCullum.
+
+"He's had an amazing impact on English cricket, so for someone with his experience, knowledge and stature to want to play a role with this team is a fantastic result."
+
+KPâs back, Jofra Archer and more Pakistan chaos
+
+Pietersen is one of England's most successful white-ball batters, being named player of the tournament when they won the T20 World Cup for the first time in 2010.
+
+The right-hander scored almost 4,500 ODI runs at an average of 41.32 - bettered only by Joe Root - while in T20 cricket he has the highest average of all batters to hit more than 1,000 runs for England.
+
+He did, however, fall out with a number of former England players and coaches during his career.
+
+He was accused of being "divisive" in the dressing room and was dropped during a Test series against South Africa in 2012 for sending "provocative" text messages to opposing players, for which he apologised to then captain Andrew Strauss.
+
+He was only allowed to return to the team after a successful 'reintegration' period.
+
+Pietersen was also one of the first to advocate for England players being allowed to play in the Indian Premier League and other white-ball franchise leagues around the world - a stance which often put him at odds with his employers.
+
+Since retiring, Pietersen has enjoyed a successful career as a commentator and content creator while he has mentored in the Indian Premier League for Delhi Capitals.
+
+"I am immensely proud to have been asked to help this team on their journey to win a World Cup in South Africa," said the ex-Nottinghamshire, Hampshire and Surrey batter.
+
+"Putting on the England uniform again for the first time since 2014 is a profound honour and a deeply special moment.
+
+"We have an incredibly talented white-ball squad, and I am excited to get in the trenches and work relentlessly hard with these players to maximise their potential."
+
+England's T20 team is ranked second in the world but their 50-over side is seventh after struggling since their World Cup win in 2019.
+
+"It's good for the group," fast bowler Jofra Archer told BBC Sport. "He's a legend of the game. I've never really spent much time with him, so personally I don't know how that's going to go.
+
+"For the lads, all the batters, we've got a few Surrey boys here who will definitely be buzzing to have him around."
+
+Former England captain Michael Vaughan said Pietersen is "very professional" but is  "intrigued" by the dynamic his appointment creates among the national side's staff.
+
+"The only issue I have is that there are some quite powerful, big egos within that coaching set-up - I'm not saying it's a bad thing, I'm just interested to know the dynamic down the line," Vaughan told BBC Radio 5 Live's Cricket Show.
+
+"In terms of knowledge and what he can pass on to the players, I have absolutely no doubt that he'll do a really good job."
+
+Former England fast bowler James Anderson added he was "surprised" by the appointment but highlighted Pietersen is "an innovator" and was a "fearless" player.
+
+Anderson said: "He was a winner and that sort of character will rub off on people. He'll be a big help and encourage people to think outside the box with their batting."
+
+This video can not be played
+
+Vaughan and Anderson on Pietersen's England coaching gig
+
+Pietersen spoke about his coaching ambitions earlier in 2026,, external after England's 4-1 Ashes hammering in Australia.
+
+Though this role is with the white-ball teams, he said he would "love" to help coach the Test side, telling the Guardian he has "got all the credentials" and has "worn every âsingle T-shirt".
+
+Hinting at his approach, he added: "In the shortest âform â of the game, sure, play without fear, go out there, be brave, be reckless, be careless, be whatever you want. In Test match cricket, you cannot do that."
+
+He also criticised England's coaching set-up, led by McCullum, during a white-ball tour to India in 2025.
+
+"I'm sorry, but I am absolutely gobsmacked that England did not have one team practice session since losing the first ODI and losing the T20 series," said Pietersen, who was working as a commentator for the host broadcaster.
+
+Pietersen's first assignment will be a three-match T20 series against Sri Lanka, which begins on 15 September in Southampton.
+
+Sri Lanka are warming up for the series with two T20 matches against England Lions, who will be coached by Jonathan Trott.
+
+This video can not be played
+
+Archer pleased with the appointment of Pietersen
+
+This is quite a return to international cricket for a man who was effectively fired by England 12 years ago.
+
+After all the animosity and acrimony that followed the end of Kevin Pietersen's playing career at the very highest level, he is back with the Three Lions on his chest.
+
+For England, this is the first step in reshaping the backroom teams in the new era of split coaches. It is also not the first time they have hired a big name to act as a consultant to the white-ball side, following Andrew Flintoff and Kieron Pollard.
+
+In terms of intrigue, the appointment of Pietersen outstrips anything that has come before.
+
+Perhaps the greatest white-ball batter to play for England, his knowledge and experience will bring an X-factor to the coaching staff.
+
+It's also a smart move given his expertise of playing in South Africa, the venue of the next 50-over World Cup. Who could forget Pietersen announcing himself as an international cricketer in the country of his birth in 2005, smashing runs against the Proteas in a one-day series?
+
+What could Pietersen bring to the game of Harry Brook, for example? Brook is the closest England have produced to another Pietersen, yet has admitted he still needs to make better decisions in the middle. It was a criticism Pietersen often faced during his career.
+
+Along with Brook, the England dressing room is filled with players who grew up watching and idolising Pietersen. There should be a queue of batters wanting to work with him.
+
+But there will also be a nagging doubt over whether this could go wrong at any moment. Pietersen is not shy of speaking his mind, or clashing with authority. He joins a dressing room run by Brendon McCullum, another big personality.
+
+Either way, it promises to be box-office stuff.
+
+An unforgettable, unreliable, idiosyncratic genius - England should be grateful for Pietersen
+
+Pietersen - the unanswered questions
+

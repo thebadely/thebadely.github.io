@@ -1,0 +1,89 @@
+---
+layout: post
+title: "Latest: Chancellor calls for 'confidence about Britain' despite 'historic high' borrowing costs"
+date: 2026-09-07T16:05:37
+author: "badely"
+categories: [Business]
+tags: []
+excerpt: "John Healey detailed plans to spread growth more widely across the UK, ahead of his first Budget."
+image: assets/images/6acd876369f578c94eb102902a0a3e1a.jpg
+---
+
+It has been recently reported that John Healey was giving his first major speech as chancellor
+
+Chancellor John Healey has called for a restoration of "confidence about Britain" despite acknowledging the challenge of "historic high" borrowing costs.
+
+In an interview with the BBC, Healey promised that "doubling down" on "more growth generated in more places" will be a central priority ahead of his first Budget on 28 October.
+
+The chancellor warned that "times are tough", referring to the announcement of 4,000 mostly UK-based jobs at Jaguar Land Rover (JLR).
+
+And Healey did not rule out tax increases in next month's Budget, with a recent increase in government borrowing costs piling pressure on the public finances.
+
+Pressed about his pre-Budget plans, he refused to comment on any decisions about tax, promising only to "balance the books" and "control public spending".
+
+Healey said he wants people to feel "confident about Britain and our future".
+
+Faisal Islam: Chancellor's attempts to boost vibes may limit tax rises
+
+Asked about the impact of higher borrowing costs, which have surged this month, the Chancellor said that the government was responding to "extreme pressures in the wider market," and reiterated that he wanted to "bring down welfare costs."
+
+Earlier, in his first major speech as chancellor, Healey said his mission was to "make Great Britain growth Britain" again.
+
+Speaking at the Manufacturing Technology Centre (MTC) in Coventry, he said,
+
+"My defining mission as chancellor is growth, good growth in every postcode. And I've set out today the way this government will set about it: more devolution, more public leadership and control, more investment, more innovation, more jobs."
+
+Healey said he is in "lockstep" with Prime Minister Andy Burnham about the need for fiscal discipline and having a buffer in the government's spending plans "against the sort of uncertainty that the JLR decision locally has shown".
+
+It came as Healey offered an upbeat view of the state of the UK economy ahead of the Budget, building on a recent uptick in consumer and business confidence.
+
+Speaking in Coventry, he set out a "new story" of the economy not just turning a corner but being resilient, optimistic and "ready to seize the opportunities of new technologies and ideas". 
+
+With seven weeks until the Budget, Healey said the government will stick to Labour's manifesto pledge, made under Sir Keir Starmer and former Chancellor Rachel Reeves, to not "increase taxes on working people".
+
+He repeatedly refused to comment on possible tax rises or spending cuts ahead of 28 October, stating only: "Staying true to our values means being honest about the need to control government spending."
+
+Conservative Shadow Chancellor Andrew Griffith, said: "Healey failed to end uncertainty by ruling out more tax rises."
+
+He added that Healey "sounds increasingly like continuity Rachel Reeves".
+
+In his speech from the Manufacturing Technology Centre in the Midlands, Healey described the UK as "turning the corner" and said greater devolution would spread economic growth more evenly across the UK. 
+
+But recent ructions in government debt markets have piled fresh pressure on already-stretched public finances, with the Treasury needing to fill possible multi-billion pound gaps caused by rising borrowing costs and the need to fund higher defence spending. 
+
+On Monday, Healey blamed "too high" borrowing costs on global events as well as 14 years of Tory rule, including austerity under David Cameron, Brexit under Boris Johnson and Liz Truss's mini-Budget. 
+
+Healey said he and Burnham would balance the government's day-to-day spending with tax receipts, with room for manoeuvre in case of shocks. 
+
+His tone contrasted with former PM Sir Keir, who was accused of talking down the UK economy after Labour came to power with repeated warnings about the state of the public finances. 
+
+Helen Miller, director of the Institute for Fiscal Studies, said: "Economic growth in every postcode sounds great and is something we would all love. I think it'll actually be much harder to achieve in practice."
+
+During his first Prime Minister's Questions on Wednesday, Burnham faced scrutiny over rising UK borrowing costs. 
+
+Conservative leader Kemi Badenoch urged him to say how he would deal with the UK's increasing debt, after the cost of borrowing for the UK reached a new 18-year high.
+
+Following the recent volatility in financial markets, Rupert Harrison, senior adviser at bond giant Pimco and former chief of staff to Tory chancellor George Osborne, said the UK was being treated as "guilty until proven innocent" in terms of fiscal responsibility.
+
+He told the BBC's Today programme that the UK used to have a lot of credibility with bond markets for managing to "get its house back in order when things go wrong".
+
+But he said the country had lost credibility in recent years due, in part, to Truss's mini-Budget, governments choosing to defer deficit reduction, and UK inflation remaining above the Bank of England's 2% target since the pandemic. 
+
+During his speech, Healey also unveiled a Â£150m fund for companies in the north of England, part of a wider plan to spread economic growth around the UK.
+
+Healey detailed plans to use public investment to "unlock private investment, to support our innovation economy, and to create the new jobs their areas need".
+
+The fund, from money already allocated to the British Business Bank, will provide investments of between Â£5m and Â£15m to the "most innovative and fast-growing firms". 
+
+It is expected to back university spin-outs and other "ambitious businesses" across the north.
+
+Liberal Democrat deputy leader Daisy Cooper said: "Re-announcing Â£150m across the entire north of England will barely shift the dial on growth."
+
+Robert Jenrick, Reform UK's economic spokesman, said: "Days after a market meltdown, when grip and direction are required, John Healey has revealed himself to be an empty vessel with no idea about how to rescue our economy."
+
+Do you have any views, comments or questions about this story?
+
+UK long-term borrowing costs highest since 1998 ahead of October Budget
+
+Almost half of households do not see benefits of economic growth, report says
+
