@@ -1,0 +1,41 @@
+---
+layout: post
+title: "Update: Petrol prices rise by 5p over a week as Iran war sends oil higher"
+date: 2026-09-09T12:20:40
+author: "badely"
+categories: [Business]
+tags: []
+excerpt: "A litre of unleaded now costs 167.17p which is the biggest weekly increase since April, data shows."
+image: assets/images/adebd79e7a44f35d2a2a961b1bfd977b.jpg
+---
+
+Let's dive into the details: The average price of unleaded petrol has risen by 5p a litre in the space of a week, according to the RAC, which warned there was "no sign of any relief" for drivers.
+
+The motoring organisation said a litre of unleaded now costs 167.17p - the biggest weekly increase since April - while diesel has also risen by 5p to 188.63p.
+
+Fuel prices have soared since the US-Israel war with Iran began at the end of February, with the fighting severely disrupting supplies of crude oil - a key ingredient in petrol and diesel - across the Middle East.
+
+The price of Brent crude, the global benchmark for oil, returned to $100 a barrel for the first time since July, as hostilities escalated again.
+
+On Tuesday, US forces struck five Iranian tankers after Tehran targeted one of its warships, while Yemen's Iran-backed Houthi movement also attacked oil facilities in Saudi Arabia.
+
+The price of Brent is some way off the $120 it hit in April, but remains well above the $70 it was trading at before the conflict started.
+
+RAC senior policy officer Rod Dennis said the latest increase in fuel prices showed just how exposed drivers in the UK can be to events thousands of miles away.
+
+The 5p a litre rise meant the cost of filling a family-sized car had increased by Â£2.75 over the past week, he added.
+
+"Drivers are having to dig ever deeper into their pockets every time they fill up, and there's no sign of any relief yet," said Dennis.
+
+"With the cost of a barrel of oil having averaged $96 for the last week, wholesale prices are surging and that's already feeding through to prices at the forecourt."
+
+He urged motorists to drive as efficiently as possible and to ensure they find the cheapest forecourts they can.
+
+The last time petrol was this high was in September 2022, while diesel is still a bit below the 191.54p it reached in April.
+
+Why are petrol and diesel prices rising again?
+
+Oil hits $100 a barrel for first time since July after US and Houthi strikes
+
+US diesel prices hit an all-time-high
+

@@ -1,0 +1,79 @@
+---
+layout: post
+title: "Breaking: Four takeaways from Trump's speech at first Republican midterms convention"
+date: 2026-09-10T04:07:44
+author: "badely"
+categories: [News]
+tags: []
+excerpt: "The US president covered many of the subjects he has returned to time and again - with a few surprises thrown in."
+image: assets/images/191eab82db8c8e3446625865a88e7194.jpg
+---
+
+According to new developments, This video can not be played
+
+Watch: Trump tells supporters their vote will decide if country "stumbles" or "moves forward"
+
+The Republican Party's first midterms convention had all the trappings of the traditional presidential election-year gathering: supporters in sparkling costumes, a conveyor belt of candidate speeches, and vendors selling campaign merchandise.
+
+But unlike an ordinary convention, no official party business was conducted in Dallas, with the event instead serving as a rally for Republicans who are seeking to boost turnout and avoid losing control of Congress in November.
+
+President Donald Trump, whose grip over the party remains absolute, delivered a lengthy keynote speech on Wednesday during the opening night of the two-day event. He covered many of the subjects he has returned to time and again this year - with a few surprises thrown in.
+
+Here are the key takeaways from his address.
+
+The vast arena was filled with diehard Trump supporters sporting red MAGA gear from his past presidential campaigns. A decade after his first White House run, Trump is still beloved among his base and he has bent the party to his will in the years since.
+
+The old-style Republican establishment, or what's left of it in the Trump era, was nowhere to be seen. Senator Susan Collins of Maine and other Republicans running in competitive races chose to stay away. 
+
+The absence of more moderate Republicans was glaring and offered a reminder of just how much the party has changed.
+
+It also raised questions about the effectiveness of holding an unprecedented midterm convention in the first place. 
+
+The core audience, both in the arena and watching on television, appeared to be Trump loyalists, not the moderates and swing voters the Republican Party needs to turn out in large numbers in November.
+
+Trump's total grip on the party raises some pointed questions about its future. Namely - who will replace him? And more immediately for November's elections, how will it perform when his name isn't on the ballot?
+
+Trump offered a simple solution to the latter question on Wednesday night. After warning that the sitting president tends to lose the midterms, he told the crowd: "I'm asking you to pretend that I'm on the ballot."
+
+The remark was an acknowledgement by Trump that he remains the party's best driver of turnout. It also speaks to the challenge Republicans have both in November and in the next presidential election in 2028.
+
+Trump will not be on the ballot again, and though he can continue campaigning for the party, there is not a clear or obvious successor who can rally the base quite like Trump.
+
+In interviews with the BBC, convention goers often looked ahead to the election in two years' time and debated who Trump's successor should be. Vice-President JD Vance and Secretary of State Marco Rubio were frequently mentioned as top contenders.
+
+Trump, however, made clear in Dallas that he is still in charge and is not in a hurry to give up the spotlight.
+
+Earlier on Wednesday, as he departed for the convention, Trump acknowledged that Americans may have to wait a while longer to see relief from high fuel prices.
+
+"I think it's going to take a little bit longer than the midterms," Trump said.
+
+The president reiterated that message in his speech, arguing that short-term economic pain caused by the war in Iran was worth it to prevent Tehran from developing nuclear weapons.
+
+But that may be a difficult message to land with voters who are feeling higher prices.
+
+This video can not be played
+
+Watch: Do Republicans blame Trump for high oil prices?
+
+Polls have consistently indicated in recent months that the cost of living is a top-ranking issue among Americans.
+
+Trump's approval rating, too, has taken a hit as the war in Iran has dragged on. A Financial Times / Focaldata poll released on Sunday indicated that it had hit a new low, with only 33% of registered voters approving of his presidential performance.
+
+Many Republican candidates may well have hoped for a more direct message on addressing the cost of living and quickly ending the war in Iran.
+
+This video can not be played
+
+Watch: Trump says US adults will get $5,000 if Republicans win midterms
+
+Trump has long thrown out unconventional ideas at rallies. On Wednesday night, that came in the form of an offer to pay every adult US citizen $5,000 (Â£3,700) if Republicans win both chambers of Congress in November.
+
+The only caveat, Trump said, was the money would have to be spent in the US.
+
+He offered no details on how the plan would work, where the money would come from, or how the US government would monitor how it was spent. Democrats quickly labelled it an "empty promise" and others questioned whether such a pledge was even legal.
+
+There are nearly 270 million American adults, which means a $5,000 payout would cost the US government some $1.3 trillion.
+
+Whether the plan was possible or not appeared to be beside the point. The idea drew raucous applause at the convention and Trump seemed to relish the moment.
+
+Follow the twists and turns of Trump's second term with North America correspondent Anthony Zurcher's weekly US Politics Unspun newsletter. Readers in the UK can sign up here. Those outside the UK can sign up here.
+
