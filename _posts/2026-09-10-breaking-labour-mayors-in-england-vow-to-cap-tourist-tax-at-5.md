@@ -1,0 +1,87 @@
+---
+layout: post
+title: "Breaking: Labour mayors in England vow to cap tourist tax at 5%"
+date: 2026-09-10T21:22:06
+author: "badely"
+categories: [Business]
+tags: []
+excerpt: "Reform UK and the Conservatives have criticised plans for the new levy on visitors' overnight stays."
+image: assets/images/3867f2052d6b8281f9f454f4cce5ff3c.jpg
+---
+
+Let's dive into the details: York, pictured, is one of the cities where the regional mayor plans to limit the new levy to 5% of an overnight stay
+
+Labour's regional mayors in England have pledged to cap a new fee on visitors' overnight stays at 5%, after hospitality bosses warned it could put jobs at risk. 
+
+Local leaders are set to gain new powers to charge an uncapped levy, dubbed a "tourist tax", as a percentage of the cost of hotels, bed and breakfasts and other types of accommodation.
+
+But the Labour mayors in 10 city regions said they would voluntarily limit the charge if they do apply it, adding that they had listened to concerns over costs.
+
+Reform UK's two regional mayors and the two Conservative ones are likely to oppose any levy given criticism from their national parties of the policy.
+
+In a letter to Chancellor John Healey and Local Government Secretary Angela Rayner, the Labour metro mayors said 5% represented a "reasonable ceiling" on the tax.
+
+"It provides a balance of ensuring that local levies are not excessive, or vary significantly between regions, while also leaving room for local variation as appropriate," they added.
+
+They added this would still allow for "meaningful investment" in local areas, whilst stressing any future levies in their areas would be "subject to local consultation".
+
+The letter was signed by Labour mayors in London, Greater Manchester, Liverpool City Region, West Midlands, North East, West of England, West Yorkshire, South Yorkshire, East Midlands and York and North Yorkshire.
+
+The government had earlier pledged to protect budget holidays "by making sure low-cost accommodation always pays lowest levy" and said the extra cash could be invested in high streets and local transport.
+
+While Labour mayors have backed the new levy, others have expressed caution or signalled they will not bring it in.
+
+Local leaders, including heads of Foundation Strategic Authorities where there is no mayor, will need to clarify by early 2028 how the revenue raised should be reinvested.
+
+They will also be allowed to offer exemptions, such as for campsites. 
+
+However, mayors will not be allowed to exempt whole localities within their regions from the tax, to avoid creating confusion for visitors and businesses.
+
+The government said it would introduce a bill to Parliament "in due course" to bring in the levy, which would apply to both Britons and people visiting from abroad.
+
+Leading trade body UKHospitality has hit back, saying the levy means "jobs are now at risk".
+
+Its chief executive Allen Simpson claimed it would add about Â£100 to Â£120 on average to the cost of a family holiday in England, amid fears mayors would make use of the fact there is, in theory, no upper limit for the levy. 
+
+"We know, don't we, that local government is struggling for funds - it was hit very hard by austerity," he told BBC Radio 4's Today programme.
+
+"If you only devolve one tax raising power, of course local mayors are going to pull that lever until it snaps."
+
+He added: "It will be the case that you'll have holiday parks which can't open in the shoulder seasons [between peak and low season] and of course people who go on holiday will just have that little bit less money in their pocket."
+
+Conservative shadow housing secretary David Simmonds said: "VAT is already charged at 20% on hotels - much higher than in other countries - and now they'll pay VAT on this tourism tax too: a Labour double whammy."
+
+Reform UK leader Nigel Farage said his party's two mayors in Greater Lincolnshire and Hull and East Yorkshire "won't touch" the levy, which he described as a "holiday tax".
+
+A 5% tourist tax for overnight stays was introduced in Edinburgh in July
+
+The idea was first raised under former Prime Minister Sir Keir Starmer in November and is similar to schemes running in Scotland and European destinations.
+
+Two cities in England already run their own voluntary schemes - a Â£1 per room, per night City Visitor Charge in Manchester, introduced when Burnham was mayor of the region, and a Â£2 nightly charge in Liverpool. These are business-led schemes where hotels choose to pool the money raised to support local tourism.
+
+Until now, regional mayors have not had the power to bring such fees in themselves - but they argue it is needed to boost economic growth.
+
+Conservative Mayor of Tees Valley Ben Houchen ruled out, external introducing any tourist tax last year.
+
+John Chappell, who runs five caravan parks in Skegness, Lincolnshire, told BBC Your Voice that many English tourist resorts have visitors on tight budgets already struggling with the cost of car travel. 
+
+He said an extra cost would "kill the industry off". 
+
+"Tourists are the saviours of our resorts, not the demons and ill thought-out ideas like these show how out of touch with reality politicians are," he added.
+
+The taxes are common in Europe and the rest of the world, with New York, Amsterdam and Rome applying overnight charges to accommodation stays to fund local services. However, they are capped in several European cities.
+
+In Scotland local authorities can charge a visitor levy on overnight accommodation. In Edinburgh, the rate is 5% for those staying overnight in hotels, bed and breakfasts and self-catering facilities - capped at five nights.
+
+It has had a mixed reaction, with some praising extra investment but Scottish Ballet responded by cutting performances while criticising the "unsustainable economics of touring in Edinburgh".
+
+In Wales, a capped levy of Â£1.30 per person per night is set to be introduced in April next year, but it will be up to local authorities to decide whether to roll it out.
+
+Do you have any comments or questions about this story?
+
+Burnham promises more devolution and public control of essential services
+
+Tourist tax introduced in Edinburgh: How much is it and who pays? 
+
+Tourist tax could raise Â£350m a year for London
+
