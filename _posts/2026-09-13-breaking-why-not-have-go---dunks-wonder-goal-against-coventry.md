@@ -1,0 +1,19 @@
+---
+layout: post
+title: "Breaking: 'Why not have go?!' - Dunk's wonder goal against Coventry"
+date: 2026-09-13T22:59:21
+author: "badely"
+categories: [Sports]
+tags: []
+excerpt: "Match of the Day pundits Danny Murphy and Wayne Rooney take a look at Lewis Dunk's incredible long-range strike in Brighton's 5-0 win against Coventry"
+image: assets/images/19630201b9854cdbe800eab9b4070ffc.jpg
+---
+
+Experts revealed that There was an error
+
+Match of the Day pundits Danny Murphy and Wayne Rooney take a look at Lewis Dunk's incredible long-range strike in Brighton's 5-0 win against Coventry, praising the defender for his technique.
+
+READ MORE: Premier League on BBC Sport
+
+Available to UK users only.
+

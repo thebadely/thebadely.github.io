@@ -1,0 +1,59 @@
+---
+layout: post
+title: "New: Rent rises set to speed up in gloomy forecast for tenants"
+date: 2026-09-13T23:05:45
+author: "badely"
+categories: [Business]
+tags: []
+excerpt: "The cost of renting is expected to rise by 4% or 5% a year by December, says property website Zoopla."
+image: assets/images/82dc158a570ef4b81061028387b43172.jpg
+---
+
+Experts revealed that The rising cost of renting a home in the UK has accelerated after a three-year slowdown - with tenants told to expect more pain to come.
+
+Average rental costs for new tenancies were up 2.6% in July compared with a year earlier, according to property website Zoopla. 
+
+That remains lower than the rate of rising prices in general, but the property portal has forecast annual rent rises among privately rented homes will hit 4% or 5% by the end of the year.
+
+It said there were fewer homes available to rent and - with potential first-time buyers put off by higher mortgage rates - competition for rental places in some areas was more intense.
+
+"Our latest report shows how sensitive the rental market is to even modest changes in how many homes are available for rent," said Richard Donnell, executive director at Zoopla.
+
+"Growing the number of homes for rent through increased investment is the most sustainable route to boosting choice for renters and ensuring stability in rent levels over the long run."
+
+The Renters' Rights Act came into force in England at the start of May, and was described as the biggest shake-up of the sector in more than 30 years.
+
+Separately, the rising cost of renting has calmed recently. It fell to a low of 1.6% in February, Zoopla data shows.
+
+But since then, the number of homes on the market for renters has been squeezed, with 3% fewer being available than a year ago.
+
+In addition, each listing now receives an average of more than five enquiries. That is a long way short of the long queues for properties after the pandemic, but is still the most intense competition for nearly two years.
+
+Rental demand was particularly significant in London, the Zoopla report said.
+
+This video can not be played
+
+What's your rent in England's least affordable city?
+
+It said that rent rises were being seen across the UK, but the situation still differed depending where renters were looking.
+
+"In less expensive areas, renters have more capacity to absorb rent rises before hitting an affordability ceiling, whereas in the most expensive areas, rents are already stretching what renters can pay, capping how much further rents can increase," the report said.
+
+It predicted a further acceleration in rent rises to 4% or 5% by the end of the year, although that still roughly matched the average annual rise in workers' earnings. 
+
+New investment in homes to rent by landlords was "still muted as a result of higher costs and more regulation", Zoopla said.
+
+Nathan Emerson, chief executive at Propertymark, which represents lettings agents, said the report underlined the need for more high-quality rental homes.
+
+"A sustainable private rented sector requires the right conditions for responsible landlords to invest for the long term," he said.
+
+"Increasing supply must remain a priority if we are to give tenants greater choice, improve affordability and create a more stable rental market."
+
+Bristol is England's least affordable city to rent in - should more be done?
+
+How much is your rent in England's least affordable city?
+
+Rental searches for pet friendly properties drop after law change
+
+Are you a tenant or a landlord? Is your rent on the rise?
+
