@@ -1,0 +1,59 @@
+---
+layout: post
+title: "Big News: Sweeney ad a barrier for girls in sport - Hunt"
+date: 2026-09-15T09:22:10
+author: "badely"
+categories: [Sports]
+tags: []
+excerpt: "British sprinter Amy Hunt says she is concerned about the controversial advert starring Sydney Sweeney being part of a 'barrier' to girls' participati"
+image: assets/images/b24f410c5be07f15c4a920ef54dba543.jpg
+---
+
+Let's dive into the details: This video can not be played
+
+'Sydney Sweeney, this is what women in sport look like!' - Hunt on controversial ad
+
+British sprinter Amy Hunt says she is concerned about the controversial advert starring Sydney Sweeney being part of a "barrier" to girls' participation in sport.
+
+The advert for a sports betting company features the American actress naked but covering parts of her body with various pieces of sporting equipment.
+
+After running a season's best 22.10 seconds in the 200m final at the Ultimate Championship in Budapest on Sunday, Hunt said: "This is what women in sport look like."
+
+Hunt, 24, is among several female athletes who have spoken out against the advert's messaging.
+
+"When we're trying to provide role models for young people and young women in sport, we really want to show that it's about what your body can do, not so much what it looks like," Hunt told Good Morning Britain.
+
+"When we see the stats of 64% of young girls dropping out of exercise and sport before they reach the age of 16, we don't need to place any kind of barrier whatsoever in their way in terms of providing the opportunity and the empowerment for them to still exercise, whatever that looks like - professional or kind of just going to do a Parkrun with your friends.
+
+"So it's about empowering young girls and young women and young people to show that you really can just get out there, and you don't have to worry what you look like. You don't have to worry about what you're wearing."
+
+Hunt has enjoyed a breakthrough season, winning four gold medals at the European Championships in Birmingham last month.
+
+She said "sport is not pretty", describing how she is often sick during sessions or in tears if something does not go to plan.
+
+Hunt said the responses to Sweeney's advert had eclipsed the controversy.
+
+"The reaction has almost outweighed the moment because the first thing I saw was all of the positive compilations of women in sport," she said.
+
+Organisations did not want to comment publicly to BBC Sport on the issue for fear of giving Sweeney and Novig the oxygen of yet more publicity.
+
+Harriet Walker, fashion editor at The Times, told Woman's Hour she felt the advert was regressive.
+
+"When women's bodies are this accessible, the rest of us are taken less seriously and I think using that level of nudity and it's not just nudity, it's provocative sexual poses, it's sort of turning the clock back to when you had naked women advertising cigarettes or women in bikinis on game shows.
+
+"It's using women's bodies as a means to grab and maintain male attention and it is the bodies that are doing the talking, not the women. I find that incredibly depressing."
+
+Sports marketing expert Tim Crow told BBC Sport the advert had achieved its aim.
+
+"In a case like this, where you've got an unknown brand who are trying to get attention, get eyeballs, get clicks, then obviously the number one objective is to do what they've done," he said.
+
+"It was to get it out there, to get huge attention and to make sure that it's being talked about - which it is - because that's all free."
+
+But he said the proof will be in how many people saw past Sweeney and then sign up to the brand.
+
+He added: "The acid test for the founders, including Sydney and the investors, will be traffic to the site and business generated as a result.
+
+"But in terms of straight PR, in terms of what it was supposed to do, it was an absolute masterclass, 10 out of 10."
+
+This is what women in sport look like - female athletes hit back
+

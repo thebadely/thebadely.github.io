@@ -1,0 +1,73 @@
+---
+layout: post
+title: "New: Saudi Arabia says it shot down Houthi drone south of Mecca"
+date: 2026-09-16T08:36:17
+author: "badely"
+categories: [News]
+tags: []
+excerpt: "The Houthis deny targeting the Islamic holy city after the Saudi-led coalition in Yemen accuses them of a 'disgraceful act'."
+image: assets/images/014056a8018364fff47ab74b263bf6da.jpg
+---
+
+It has been recently reported that The Houthis denied they had targeted Mecca, where Islam's most sacred shrine is located
+
+Saudi Arabia intercepted and destroyed a Houthi drone south of the Islamic holy city of Mecca on Tuesday evening, according to the spokesman of the Saudi-led coalition in Yemen.
+
+Turki al-Maliki said the targeting of Mecca, which is the home of Islam's most sacred shrine and the focal point of the Hajj pilgrimage, was a "disgraceful act".
+
+The 57-nation Organisation of Islamic Cooperation said attacks on Mecca and Medina province, where Islam's second holiest shrine is located, constituted an "unacceptable and intolerable transgression". 
+
+But the Houthis, an Iran-backed armed group that controls much of western Yemen, denied targeting Mecca and accused Saudi Arabia of "fabrications and lies".
+
+"There is no threat whatsoever from Yemen to the holy sites. Our operations target their oil facilities and military bases, and are far removed from the holy places," military spokesman Yahya Sarea said.
+
+Sarea added that the Houthis had launched drones and missiles at Saudi Arabia in retaliation for more than 450 Saudi air strikes on their territory over the past week.
+
+He also said they had shot down a Saudi fighter jet over Marib province. 
+
+There was no immediate response from the Saudi-led coalition, but Maj Gen Maliki did say that its forces would "not hesitate to take the necessary and deterrent measures against the terrorist Houthi militia and its hostile and terrorist behaviour". 
+
+On Tuesday, Saudi authorities issued a series of brief security alerts for incoming projectiles in a number of western areas, including Mecca and Jeddah, the kingdom's second largest city.
+
+Meanwhile, the US embassy in Saudi Arabia issued a "reconsider travel" advisory, warning that Houthi attacks had targeted cities, infrastructure, airports, military bases, diplomatic facilities and energy facilities.
+
+The Houthis have recently seized control of large swathes of Yemen's Red Sea coast from Saudi-backed pro-government forces.
+
+Last week, they captured the strategic port city of Mokha and Perim Island in the Bab al-Mandab Strait, the southern gateway to a key shipping route that links Asia and Europe via the Red Sea and the Suez canal.
+
+The Houthis said they posed no threat to international shipping but reiterated that they would target vessels from Saudi Arabia, which has relied on the Red Sea for oil exports since the US and Israel's war with Iran effectively closed the Strait of Hormuz in the Gulf.
+
+At the same time, Saudi Arabia's key East-West Pipeline, which was being used to transfer crude oil from the Gulf to the Red Sea port of Yanbu, had to be closed after it was badly damaged in a strike that the kingdom blamed on Iran-backed militias in Iraq. 
+
+Some experts have said it could take more than a month to repair the pipeline, but US Energy Secretary Chris Wright predicted on Tuesday that oil should be flowing through it within days.
+
+Saudi Crown Prince Mohammed bin Salman, the country's de facto ruler, has personally pressed US President Donald Trump to take military action against the Houthis, two sources familiar with the matter told CBS News, the BBC's US media partner.
+
+Trump has so far declined to involve the US military directly, offering instead to assist with intelligence and targeting support, the sources said.
+
+A senior Trump administration official told the BBC: "We are in continuous dialogue with Saudi Arabia and the Republic of Yemen government regarding regional stability."
+
+The United Nations Security Council held an emergency meeting on Tuesday, during which both Yemen's government and Saudi Arabia called for more decisive action against the Houthis, who they accused of choking the Bab al-Mandab Strait as a way of applying economic pressure. 
+
+Council members agreed that freedom of navigation in the Red Sea must be maintained to prevent disruption to global supply chains. 
+
+More than 90,000 people have been displaced in Yemen by the fighting between the Houthis and pro-government forces, according to the International Organization for Migration (IOM).
+
+"Families are being forced to flee for the second or third time in this conflict, with almost nothing left," Amy Pope, the IOM's director general, warned last week.
+
+The World Health Organization (WHO) said on Sunday that at least 500 people had been reported killed since the start of August, including 297 over the previous week.
+
+Yemen has been devastated by a civil war that began in 2014, when the Houthis ousted the government from the capital, Sanaa. The conflict escalated in 2015, after the Saudi-led coalition of Arab states intervened in an attempt to restore the government's rule.
+
+The fighting has reportedly left more than 150,000 people dead and triggered one of the world's worst humanitarian crises, with more than 22 million people in need of some form of aid, according to the UN.
+
+A four-year-old informal ceasefire began to unravel in July, when the Houthis announced a "maritime embargo" against Saudi Arabia and began missile and drone attacks on Saudi airports, oil facilities and tankers in the Red Sea.
+
+The Houthis said they were retaliating for a Saudi blockade of ports and airports in their territory, as well as an air strike on Sanaa airport that they blamed on the kingdom.
+
+Satellite image reveals major damage that shut crucial Saudi oil pipeline
+
+Houthis claim major advance in Yemen and tighten grip on Red Sea shipping lane
+
+Lightning Houthi advance in Yemen may bring dangerous new dimension to Iran war
+
