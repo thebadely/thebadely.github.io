@@ -1,0 +1,19 @@
+---
+layout: post
+title: "Update: 'What an innings' - Brook hits century against Sri Lanka"
+date: 2026-09-15T19:17:05
+author: "badely"
+categories: [Sports]
+tags: []
+excerpt: "Watch the best of Harry Brook's sensational century against Sri Lanka from just 42 balls, the joint-second fastest hundred by an Englishman in a T20I."
+image: assets/images/def6e86c0e372bc91e95891192f4025a.jpg
+---
+
+According to new developments, There was an error
+
+Watch the best of Harry Brook's sensational century against Sri Lanka from just 42 balls, the joint-second fastest hundred by an Englishman in a T20I.
+
+FOLLOW LIVE: England v Sri Lanka - First T20
+
+Available to UK users only.
+

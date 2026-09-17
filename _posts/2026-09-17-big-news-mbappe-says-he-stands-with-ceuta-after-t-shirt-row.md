@@ -1,0 +1,69 @@
+---
+layout: post
+title: "Big News: Mbappe says he 'stands with Ceuta' after T-shirt row"
+date: 2026-09-17T08:50:09
+author: "badely"
+categories: [Sports]
+tags: []
+excerpt: "Vini Jnr, Mbappe and Konate cover up Ceuta message of support ahead of Real Madrid's match against Elche."
+image: assets/images/f6b018cda7b42d06f899fe580a6e28b7.jpg
+---
+
+It has been recently reported that Real Madrid have won six out of seven matches in all competitions this season
+
+Real Madrid forward Kylian Mbappe says he stands "in full solidarity with Ceuta" after choosing to obscure a message of support for people who live in the Spanish enclave.
+
+Real players wore T-shirts carrying the message 'Todos somos Caballas' - 'We are all Caballas' - before Tuesday's match against Elche.
+
+Caballas is a nickname for the people of Ceuta - a Spanish autonomous city on the North African coast, bordering Morocco and separated from mainland Spain by the Strait of Gibraltar.
+
+More than 100 people died when tens of thousands of migrants crossed into the territory from neighbouring Morocco in July.
+
+Mbappe - along with team-mates Vinicius Jr and Ibrahima Konate - rolled up their shirts to partially cover up the message.
+
+"I want to explain this clearly so people understand," the France international said.
+
+"It was the clubs' decision to include the T-shirt and to have us wear it. We players had to wear it.
+
+"The first thing I want to say is that I stand in full solidarity with Ceuta and with all the victims. "Because before I'm a player, I'm a human being. 
+
+"But I also wanted to make a gesture and spare a thought for all the immigrants who have lost their lives and who are also living in harsh condition."
+
+Mbappe acknowledged his gesture could be misunderstood.
+
+"It wasn't an easy position to take," he said. "It was difficult because, in the end, people might think I'm against the people of Ceuta. But no, absolutely not.
+
+"I have nothing against them, and I support them 100% in my thoughts. But I also wanted to spare a thought for all the people who are suffering because, at the end of the day, I'm human, and I don't want to prioritise one form of suffering over another.
+
+"There are people who are suffering, and it breaks my heart to see that happening in the world. I'm a young man who wants the best for the world we live in.
+
+"I aim to send a message of positivity and peace, and I hope this situation is resolved quickly."
+
+This video can not be played
+
+"We are all Ceutans" or not... Mbappe, Vinicius Jr and Konate disagree
+
+This is not the first time Real Madrid have shown support for Ceuta. Before their Champions League meeting with Inter Milan at the Santiago Bernabeu on 8 September, supporters in the south stand displayed cards featuring the coat of arms of the autonomous city, while the rest of the stadium joined the tribute with a round of applause.
+
+The initiative was part of a wider show of support for Ceuta, after at least 72,000 migrants crossed from Morocco into Ceuta on 30 and 31 July. 
+
+Most swam around a border fence and at least 100 people died during the crossing, according to figures from Ceuta's mayor.
+
+Although most returned, as many as 5,000 remain in makeshift camps or are sleeping on the city's streets and beaches, leading to unrest there.
+
+Locals have expressed safety concerns and some have destroyed shelters and blocked aid being supplied to the migrants.
+
+Tueaday's pre-match gesture to show support for the territory also highlighted the differing approaches among players and clubs to the Ceuta campaign. 
+
+Barcelona did not take part in the initiative, though players at other La Liga fixtures wore the shirts as intended.
+
+This video can not be played
+
+Real Madrid overcome Elche in a 3-2 win
+
+Follow your club with BBC Sport
+
+Listen to the latest Football Daily podcast
+
+Get football news sent straight to your phone
+
