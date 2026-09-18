@@ -1,0 +1,45 @@
+---
+layout: post
+title: "Big News: Six-time Grand Slam champion Salisbury retires"
+date: 2026-09-17T20:11:58
+author: "badely"
+categories: [Sports]
+tags: []
+excerpt: "Former world number one doubles player and six-time Grand Slam doubles champion Joe Salisbury retires from professional tennis."
+image: assets/images/3ba6412ba58ca699e82746d266eff863.jpg
+---
+
+It has been recently reported that Joe Salisbury won doubles titles at the Australian Open and US Open 
+
+Former world number one doubles player and six-time Grand Slam doubles champion Joe Salisbury has retired from professional tennis.
+
+Londoner Salisbury chose this month's US Open as his final event and reached the semi-finals with his long-time partner Rajeev Ram, who had also decided to retire.
+
+The venue was fitting, as in 2023 Salisbury and Ram became the first pair in history to win three consecutive US Open men's doubles titles.
+
+Salisbury is Britain's most successful men's doubles player of the Open era. He also won the 2020 Australian Open with Ram, and two mixed doubles titles with Desirae Krawczyk.
+
+The 34-year-old says he has been thinking about his future for a while, and is now "very happy with the decision".
+
+"Tennis has been my life for as long as I can remember and I have been incredibly fortunate to have had all the opportunities, experiences and success that I have," he posted on Instagram.
+
+"To be able to travel the world and call playing tennis my job has been a dream come true and I never believed I could have lived the life and had the career that I have.
+
+"I gave it my all and know I can be proud and look back with no regrets."
+
+Salisbury took a three-month break at the start of this year, having told BBC Sport about the anxiety which had been affecting him on tour.
+
+While he did not think it affected his tennis very much, he said it left him with a "feeling of dread" which made life on the road far less enjoyable.
+
+"I had some time off for a few months earlier on in the year - I wasn't really enjoying being on tour for a few reasons," he told BBC Radio 5 Live.
+
+"I came back and I didn't really have a successful year. Then I teamed back up with my partner, Rajeev Ram, who I had all my success in Grand Slam titles [with] so it was great playing with him again and he was retiring at the US Open this year. 
+
+"I thought I could go on [until the] end of this year, maybe next year but I felt like it was nice to finish my career playing with him at the US Open where we had our success, and we had a good run making the semi-finals to finish."
+
+Salisbury finishes his career with 17 tour level titles, including the season-ending ATP Finals of 2022 and 2023.
+
+Kostyuk into Guadalajara last eight without playing a point
+
+Live scores, results and order of play
+
