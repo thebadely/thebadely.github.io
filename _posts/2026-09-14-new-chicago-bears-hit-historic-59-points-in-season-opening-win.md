@@ -1,0 +1,19 @@
+---
+layout: post
+title: "New: Chicago Bears hit historic 59 points in season-opening win"
+date: 2026-09-14T15:48:24
+author: "badely"
+categories: [Sports]
+tags: []
+excerpt: "The Chicago Bears make NFL history by hitting 59 points in their 59-37 victory over Carolina Panthers. The combined 96-point total means it becomes th"
+image: assets/images/e5b7959fb9ff45aedc204e3ff390a825.jpg
+---
+
+According to new developments, There was an error
+
+The Chicago Bears make NFL history by hitting 59 points in their 59-37 victory over Carolina Panthers. The combined 96-point total means it becomes the highest-scoring week one game ever, with Bears quarterback Caleb Williams accounting for four total touchdowns to lead the charge. 
+
+READ MORE: Bears, Bills and Ravens win on record-breaking Sunday 
+
+Available to UK users only.
+
