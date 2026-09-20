@@ -1,0 +1,75 @@
+---
+layout: post
+title: "Breaking: Interest rates held but Bank signals rise if energy prices stay high"
+date: 2026-09-17T14:05:38
+author: "badely"
+categories: [Business]
+tags: []
+excerpt: "Rates are held for the sixth time in a row but the Bank of England says high energy prices make a future rise more likely."
+image: assets/images/59f149a09e01e004b5e4d7fd64dc40c3.jpg
+---
+
+Here’s what you need to know: The Bank of England has held interest rates at their current rate of 3.75% for the sixth time in a row but said they were likely to rise if high energy prices persist.
+
+The US-Israel war with Iran has disrupted global energy supplies leading to a sharp increase in petrol and diesel prices and an uptick in inflation.
+
+But Bank of England governor Andrew Bailey said energy price volatility made it more likely that interest rates would rise.
+
+The Bank also announced it was slowing its sales of UK government debt, prompting an easing in the UK's long-term borrowing costs.
+
+The Bank of England's main interest rate is a crucial benchmark for banks and other lenders in setting interest rates for individuals and businesses who want to borrow or save money. Higher rates can help dampen inflationary pressures, while lower rates can help boost spending and investment.
+
+The UK's central bank aims to keep inflation at a target of 2%, but it has been above that rate for nearly two years, with inflation hitting 3.1% in August.
+
+On Thursday the Bank of England raised its forecast for inflation predicting it would be "slightly above 4%" at the start of next year. It warned that the price cap on household gas and electricity bills for January was "now expected to rise substantially further".
+
+Speaking after the Bank's decision, Bailey said the direct impact of higher energy prices was clear, but officials were still assessing how far those costs would feed through into wider inflation across the economy.
+
+Other major central banks have increased rates to counteract higher prices. 
+
+On Wednesday, the US Federal Reserve announced its first hike in three years while the European Central Bank has raised rates twice since June.
+
+Of the nine members on the Bank's Monetary Policy Committee (MPC), six voted to hold rates at 3.75% while three -  including the Bank's chief economist Huw Pill - wanted to raise them to 4%.
+
+While financial markets have priced in the possibility of several rate rises next year, Bailey said the global backdrop remained "hugely unpredictable at the moment".
+
+He said that for interest rates to come down there would need to be "an end of conflict in the Middle East... and energy prices coming really back to where they were before this conflict began".
+
+There were some positive notes from the Bank of England.
+
+It said the UK economy had been "more resilient" than it had expected and raised its prediction for economic growth from 0.1% to 0.4% for the period between July and September.
+
+It also said that because the effect of higher energy costs had not yet spilled over into other areas of the economy, food price inflation was now predicted to be 4% by the end of the year, less than the Bank's previous forecast of 6-7%.
+
+Given the global picture, and market expectations of a higher Bank rate, a host of major lenders have already increased the cost of new fixed-rate mortgages.
+
+The average two-year fixed residential mortgage rate is at its highest since 11 May, at 5.77%, while the average five-year is at its highest since 8 November 2023, at 5.83%, according to financial information service Moneyfacts.
+
+The move will have a significant effect on borrowers like Andy Pargeter from Flintshire and his wife. They are coming off a five-year fixed rate mortgage of 1.19% in November. Earlier in the year they had hoped that interest rates might be falling at this point. However with rates held steady they now expect to pay around Â£300 more a month.
+
+"We're in a fortunate position where we're able to accommodate that [increase]," he told BBC News. But he expects it will have "a knock-on effect in terms of how much we potentially save every month".
+
+"It's definitely been somethingâ¦ I have constantly been thinking about."
+
+Alongside the interest rate decision, the Bank also said it would halt its so-called "quantitative tightening" (QT) programme.
+
+It will pause its annual sale of government bonds â which are a kind of IOU that can be traded on the financial markets â and will instead sell off smaller chunks over eight years.
+
+The Bank bought Â£895bn of mainly government bonds during periods of economic turbulence such as the global financial crisis and the Covid pandemic to help keep the economy on an even keel. This was known as "quantitative easing". 
+
+Since 2022, it has been offloading the bonds, including through sales. This has contributed to higher interest rates â or yields â on bonds, making it more expensive for the government to borrow money.
+
+The Bank said discussions to put in place a plan to reduce the current Â£488bn stockpile of bonds had started a year ago, implying the decision was not related to the recent rise in long term borrowing costs.
+
+The news that the Bank of England is overhauling its QT programme prompted an immediate reaction. 
+
+The yield on 30-year UK government bonds fell from 5.86% on Thursday morning to 5.75% following the Bank's announcement. Yields on 10-year bonds dropped from 5.31% to 5.22%.
+
+Have you been affected by the issues in this story? Share your experiences 
+
+Get our flagship newsletter with all the headlines you need to start the day. Sign up here.
+
+What's happening to UK interest rates and what does it mean for mortgages?
+
+AI boom helps drive surprise UK growth in July
+
