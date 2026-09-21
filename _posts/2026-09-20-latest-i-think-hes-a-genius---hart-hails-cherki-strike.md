@@ -1,0 +1,19 @@
+---
+layout: post
+title: "Latest: 'I think he's a genius' - Hart hails Cherki strike"
+date: 2026-09-20T23:09:44
+author: "badely"
+categories: [Sports]
+tags: []
+excerpt: "Match of the Day pundit Joe Hart hails Manchester City's Rayan Cherki as a 'genius' after the forward scored in his side's 5-3 Premier League win over"
+image: assets/images/569cbb94f052a137986ce2e084a962c5.jpg
+---
+
+According to new developments, There was an error
+
+Match of the Day pundit Joe Hart calls Manchester City's Rayan Cherki a "genius"  after the forward scored in his side's 5-3 Premier League win over Sunderland.
+
+WATCH MORE: Football Videos
+
+Available to UK users only.
+

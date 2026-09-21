@@ -1,0 +1,81 @@
+---
+layout: post
+title: "Update: Russia's elections had few surprises - but how the Kremlin uses the results will be crucial"
+date: 2026-09-21T00:05:11
+author: "badely"
+categories: [News]
+tags: []
+excerpt: "Vladimir Putin will likely use the result to claim most Russians back the so-called special military operation in Ukraine, writes the BBC's Steve Rose"
+image: assets/images/9236df129171cbe451588e29276fac2d.jpg
+---
+
+Experts revealed that This video can not be played
+
+'No surprises' as results emerge in Russian parliamentary election
+
+Many things about Russia are hard to predict.
+
+The result of this election wasn't one of them.
+
+In a political system tightly controlled by the Kremlin, the party of power â United Russia âhad been widely expected to remain the largest in parliament by a large margin.
+
+There were no upsets. No surprises. No other party came close.
+
+Preliminary results suggest that United Russia, which is supported by President Putin, is on course to retain its constitutional majority in the State Duma - with even bigger numbers than last time round.
+
+And that's after more than four-and-half years of war on Ukraine, which have resulted in massive battlefield losses for the Russian army, economic difficulties and, most recently, widespread petrol shortages due to Ukrainian drone strikes on Russian oil facilities.
+
+Those parties trailing far behind, but which have cleared the 5% threshold and made it into the new Duma, featured in the previous parliament, too: a Duma that was fully behind the Kremlin and the so-called special military operation.
+
+Russian President Vladimir Putin recently ruled out another wave of mobilisation for the Ukraine war
+
+One party that didn't make it into parliament was Yabloko.
+
+Yabloko had been the only anti-war political party permitted to take part in the election - permission that was short-lived. 
+
+Just twelve days after being registered for the vote it was removed from the ballot (the party list) by the Supreme Court, an indication of Kremlin concern that Yabloko's pro-peace message was gaining too much traction with the public.
+
+The party isn't surprised that the new Duma looks like being as pro-Kremlin as the previous one.
+
+"What other result can there be if there were ten parties on the ballot and they all support the policies of Putin?" Yabloko party chairman Nikolai Rybakov tells me.
+
+"I don't think the Duma will change. They'll vote 100% for the policies of Putin just like they did."
+
+Although Yabloko had been struck off the party list, around a hundred of its candidates remained in individual constituency races. According to preliminary results, none have won seats. The party claims it has come under sustained pressure.
+
+"Some of our candidates, who should have been running, are in jail, many were barred from running and some of our election observers weren't registered and were unable to keep an eye on the voting," Nikolai says.
+
+Members of an electoral commission count votes after polls close at a polling station in Belgorod, Russia
+
+Ahead of the final day of this three-day election, Ukraine launched a large-scale drone attack on the Moscow area. Three people were killed in Moscow Region, while in the capital the city's oil refinery was hit.
+
+At a polling station near the oil refinery, I spoke to voters about the attack.
+
+There was no sense of surprise. More a quiet resignation. With Russia's war on Ukraine now in its fifth year, Muscovites have grown used to their city periodically becoming a front line.
+
+"People in the Donbas, as well as in Bryansk, and Belgorod near the Ukrainian border, hear this kind of thing every day," a voter called Viktor told me.
+
+"And they just get on with their lives."
+
+The outcome of this election was predictable. What happens next is less clear.
+
+The Kremlin is likely to use the result to claim that most Russians have rallied behind the president, and to justify future policies and subsequent decisions on the course of the war.
+
+The key question: what will those decisions be?
+
+President Putin recently ruled out another wave of mobilisation.
+
+"There is no scenario today that would require it," he declared.
+
+Not today, then. But what about tomorrow?
+
+Despite official denials, in Russian society there remains deep anxiety about the possibility of a new round of mobilisation.
+
+At the very least, the Kremlin is likely to treat the election result as a 'mandate from the people' to continue the war.
+
+War may be coming. Are we psychologically ready?
+
+A four-minute warning isn't enough: Russia's new relentless missile tactics exhaust Kyiv residents
+
+Russian hybrid attacks against Europe intensifying, says Macron
+

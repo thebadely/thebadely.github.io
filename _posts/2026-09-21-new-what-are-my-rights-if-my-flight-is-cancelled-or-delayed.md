@@ -1,0 +1,105 @@
+---
+layout: post
+title: "New: What are my rights if my flight is cancelled or delayed?"
+date: 2026-09-21T10:28:17
+author: "badely"
+categories: [Business]
+tags: []
+excerpt: "Flights are affected again owing to air traffic control problems, so what are your rights if you're affected?"
+image: assets/images/90a1e9d075c040eae320fa6e7799d6b2.jpg
+---
+
+It has been recently reported that Flights in Scotland, Northern Ireland and northern England have been affected by air traffic control issues â the second major disruption at UK airports in a few weeks.
+
+When a flight is cancelled or delayed, passengers affected have various rights, such as a refund or an alternative flight at no extra cost. However, these can vary depending on which carrier you are flying with and from where.
+
+Extra compensation is payable only when an airline is at fault, which is not the case with air traffic control problems. 
+
+Here's what it means for you.
+
+Under UK law, airlines have a duty to look after you when flights are delayed or cancelled.
+
+The reason for the delay or cancellation does not matter. So anyone affected by the air transport delays will be eligible.
+
+That includes providing meals and accommodation, if necessary, and getting you to your destination. The airline should organise putting you on an alternative flight at no extra cost.
+
+Additional losses, such as unused accommodation, might require a claim to a credit card provider, if that was the payment option used.
+
+After that, a claim may need to go to your travel insurance provider, but there is no standard definition of what is covered.
+
+It may require a close look at the details of the policy to see what is covered and in which circumstances.
+
+Passengers are also being urged to heed travel advice from the UK government, external, as this can also affect travel insurance rights.
+
+UK law generally applies to your flight if you are flying from a UK airport on any airline, arriving at a UK airport on an EU or UK airline, or arriving at an airport in the EU on a UK airline.
+
+If your flight was coming into the UK on a non-UK or EU airline, then you should check the terms and conditions of your booking.
+
+If your flight is covered by UK law, your airline must let you choose between either getting a refund or being booked on to an alternative flight.
+
+That's regardless of how far in advance the cancellation was made.
+
+You can get your money back for any part of the ticket you have not used.
+
+So, if you booked a return flight and the outbound leg is cancelled, you can get the full cost of the return ticket refunded.
+
+If you still want to travel, your airline must find you an alternative flight.
+
+If another airline is flying to your destination significantly sooner, or there are other suitable modes of transport, then you have a right to be booked on to that alternative transport instead.
+
+How do I renew my UK passport and what is the 10-year rule?, external
+
+Three things you can do to stop EU border checks at the airport costing you
+
+If you are stuck abroad or at the airport because of a flight cancellation, airlines covered by UK legislation must also provide you with other assistance.
+
+This includes the following:
+
+a reasonable amount of food and drink (often in the form of vouchers)
+
+a way for you to communicate (often by refunding the cost of calls)
+
+free accommodation, if you have to stay overnight to fly the next day
+
+transport to and from the accommodation
+
+If your airline is unable to arrange assistance, you have the right to organise this yourself and claim back the cost later.
+
+The Civil Aviation Authority advises people to keep receipts and not spend more than necessary.
+
+Civil Aviation Authority: Delays and cancellations, external
+
+You are entitled to the same assistance as for a cancellation if your flight is delayed by more than two hours for a short-haul flight, three hours for a medium-haul, or four hours for a long-haul.
+
+If you are delayed by more than five hours and no longer want to travel, you can get a full refund.
+
+If you booked a package holiday with a company that is an ABTA member and your flight is cancelled, you are entitled to a suitable alternative flight or a full refund.
+
+ABTA: What are your rights?, external
+
+Disruption caused by "extraordinary circumstances" â which includes things like air traffic control issues, bad weather, strikes by airport staff, or conflict â does not entitle you to extra compensation.
+
+However, in other circumstances, when it is considered to be the airline's fault, you have a number of rights, external if your flight is covered under UK law.
+
+What you are entitled to depends on what caused the cancellation and how much notice you are given.
+
+If your flight is cancelled with less than two weeks' notice, you may be able to claim compensation based on the timings of the alternative flight you are offered.
+
+The amount you are entitled to also depends on how far you were travelling:
+
+for flights under 1,500km, such as Glasgow to Amsterdam, you can claim up to Â£220 per person
+
+for flights of 1,500km to 3,500km, such as East Midlands to Marrakesh, you can claim up to Â£350 per person
+
+for flights over 3,500km, such as London to New York, you can claim up to Â£520 per person
+
+Airlines will not refund you for loss of earnings. Travel insurance policies will not usually cover loss of earnings either.
+
+If you think you're going to be late back at work because of flight delays, you have a responsibility to let your employer know, legal experts say.
+
+You should agree with your employer how to deal with the absence â for example, by using annual leave or taking unpaid leave.
+
+Employers have no legal obligation to pay employees who are absent in this situation, experts say, unless it is stated in their contract.
+
+Have your travel plans been disrupted? Share your experience. 
+
