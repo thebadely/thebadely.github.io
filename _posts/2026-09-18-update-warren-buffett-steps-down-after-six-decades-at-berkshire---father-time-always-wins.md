@@ -1,0 +1,45 @@
+---
+layout: post
+title: "Update: Warren Buffett steps down after six decades at Berkshire - 'Father Time always wins'"
+date: 2026-09-18T17:15:02
+author: "badely"
+categories: [Business]
+tags: []
+excerpt: "Since taking control in 1965, Buffett grew a struggling textile mill into a global conglomerate."
+image: assets/images/b4ffd277e098995abb42e1f48484c5c3.jpg
+---
+
+Experts revealed that Howard Buffett's main duty as chairman will be guarding the firm's "culture and values."
+
+Warren Buffett has stepped down as chairman of Berkshire Hathaway, handing over leadership to his son Howard in the final chapter of a long-planned transition at the US business giant. 
+
+At 96, the world-famous investor will move into an advisory role as chairman emeritus and remain on the company board to offer his "judgement and perspective", according to a letter to shareholders, external. 
+
+The decision comes nine months after Buffett passed the chief executive role to Greg Abel, with his son, Howard, who has been a director since 1993, taking over non-executive board duties. 
+
+Known as the "Oracle of Omaha," Buffett built one of the most successful investment track records in modern history. 
+
+He took control of Berkshire Hathaway in 1965 when it was a struggling New England textile mill and turned it into a $1.1 trillion (Â£822b), global conglomerate. 
+
+Today, the business owns a wide range of well-known brands including GEICO car insurance, Dairy Queen, and BNSF railway system. It also owns large stakes in companies like Apple and Coca-Cola â a brand close to Buffett's heart, as he famously drinks five cans a day. 
+
+Buffett has made his mark through "value investing" â a strategy focused on finding companies with solid fundamentals, buying them at fair prices, and holding them for decades. 
+
+His annual letters to shareholders and festival-like annual meetings turned him into a leading mentor across the financial world. 
+
+Despite his retirement from the top board post, the change is considered an orderly passing of the baton rather than a sudden shock. 
+
+"The timing is right to complete the transition," Buffett wrote, noting he had recently celebrated his 96th birthday and the first birthday of one of his great-grandchildren, who is "moving a bit faster" than he is. 
+
+The company assured investors that day-to-day operations will remain steady. 
+
+While Greg Abel manages corporate strategy and capital decisions, Howard Buffett's main duty as chairman will be guarding the firm's "culture and values". A former farmer, philanthropist, and sheriff, the younger Buffett brings more than three decades of board experience to the role.
+
+Buffett concluded his letter by saying it had been the "privilege of a lifetime" to serve as chairman, but acknowledged that in the end, "Father Time always wins". 
+
+Buffett calls Bill Gates relationship with Epstein 'distasteful'
+
+Billionaire Warren Buffett stops donations to Bill Gates charity
+
+Warren Buffett, 94, stepping down as Berkshire Hathaway CEO
+
