@@ -1,0 +1,59 @@
+---
+layout: post
+title: "New: Sir Jim Ratcliffe suspends production at key UK plants blaming high gas prices"
+date: 2026-09-22T15:43:14
+author: "badely"
+categories: [Business]
+tags: []
+excerpt: "Ineos said natural gas in the UK is twelve times more expensive than in the US."
+image: assets/images/8ac319c0d09e100bcd16dfcaf88ddc60.jpg
+---
+
+According to new developments, Sir Jim said Ineos was being 'forced' to pause production at the three plants
+
+Billionaire Sir Jim Ratcliffe's industrial giant Ineos is pausing production at its three plants in Hull, blaming high UK gas prices.
+
+The firm said gas prices in the UK are twelve times higher than in the US, and eight times more expensive than the coal-based processes used by Chinese competitors.
+
+Sir Jim said: "We are being forced to mothball some of the most efficient plants in Europe, but with gas prices now 12 times the level in the US and 8 times that of China, we just cannot compete."
+
+Ineos Acetyls, part of the Ineos Group, is the only European producer of key chemicals used in a wide range of products from food and medicines to explosives. Gas is a key ingredient in production.
+
+Ineos said the move will affect up to 1,000 of its staff, of whom 245 work directly at the site.
+
+But the BBC understands workers across the sites will be kept on while Ineos tries to buy liquefied natural gas (LNG) directly from the US at lower prices - which could take up to a year - or waits for gas prices to go down. 
+
+Billionaire Man United owner says he has lost confidence in the UK
+
+Ineos is asking governments in the UK and the EU - where most of its products are exported to - to put in tariff protections against Chinese products.
+
+Two plants on the site have already been turned off, and the third will follow in coming days.
+
+One plant makes acetic acid, which is used in vinegar, paint and glue. Another makes acetic anhydride, a key ingredient of aspirin, and the third makes ethyl acetate, which is used as a solvent and for decaffeinating tea and coffee.
+
+The disruption of supplies of oil and gas through the Strait of Hormuz following the US-Israel war in Iran has pushed up prices around the world. 
+
+The wholesale price of natural gas â used for heating homes and generating electricity â has almost doubled in the UK and Europe since July.
+
+Sir Jim said the current government's energy policy was "economic vandalism on an industrial scale".
+
+Ineos says that its plants in East Yorkshire are "among the most efficient in the world", producing materials with half the carbon footprint of US rivals, and only one eighth the footprint of Chinese equivalents.
+
+It's the second time in less than a week that Sir Jim, who also owns a large stake in Manchester United, has heavily criticised government policy.
+
+He told BBC News last week that he has lost confidence in the UK, describing the country as "on the slide", which he blamed on high taxes and high immigration.
+
+Sir Jim, whose wealth is estimated to be around Â£15bn, has prompted controversy in the past with his comments on immigration. He was a supporter of Brexit but has been a tax resident in Monaco since 2020.
+
+The Department for Business, Innovation, Science and Trade said it would be a "concerning time for workers in Saltend and their families".
+
+A spokesperson said: "We've taken bold action to support our chemicals industry including Â£350 million for strategically important chemicals producers, which will be available on a co-investment basis.
+
+"We've also put trade measures in place on foreign chemicals imports and are tackling high electricity costs via our Supercharger and British Industrial Competitiveness Scheme to keep our chemicals sector competitive."
+
+Ineos Acetyls company cut a fifth of its workforce last year, citing high energy costs and "dirt-cheap" competition from China. It called for tariffs - or taxes on imports - to protect the industry.
+
+How has the increased cost of gas affected your home or business? 
+
+Billionaire Man United owner loses moral high ground after tax exile, Labour chair says
+
