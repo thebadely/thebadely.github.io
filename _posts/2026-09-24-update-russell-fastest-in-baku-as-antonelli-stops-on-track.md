@@ -1,0 +1,47 @@
+---
+layout: post
+title: "Update: Russell fastest in Baku as Antonelli stops on track"
+date: 2026-09-24T09:44:53
+author: "badely"
+categories: [News]
+tags: []
+excerpt: "Mercedes driver George Russell heads Red Bull's Max Verstappen in first practice at the Azerbaijan Grand Prix."
+image: assets/images/7285c9d4be5c18672652f85f3aca7ab0.jpg
+---
+
+Here’s what you need to know: George Russell's last grand prix victory was in Austria in June
+
+Mercedes driver George Russell headed Red Bull's Max Verstappen in first practice at the Azerbaijan Grand Prix.
+
+Championship leader Kimi Antonelli was fifth fastest, but did not get a lap on the fastest soft-compound tyres after stopping on track with a hydraulic leak.
+
+Russell, who trails Antonelli by 81 points, was 0.4 seconds quicker than Verstappen.
+
+Ferrari's Charles Leclerc and Lewis Hamilton were third and fourth, both just over 0.4secs off Russell's pace and right behind Verstappen.
+
+But neither Italian car ran the soft tyre as the teams completed varied programmes to start off the weekend in Baku.
+
+Antonelli, who ended up 0.878secs off Russell's fastest time, was the fastest driver in the early running using the hard tyres.
+
+The Italian stopped at Turn One on his first lap on the soft tyres, with smoke seeping out of the cooling vents on his engine cover.
+
+He missed half the session so will have some catching up to do in the second session later in the day.
+
+Azerbaijan Grand Prix
+
+24-26 September
+
+Live commentary on BBC Radio 5 Live and Sports Extra; live text updates on BBC Sport website and app
+
+Racing Bulls' Liam Lawson and Arvid Lindblad were seventh and eighth, ahead of Haas driver Esteban Ocon, who is fighting for his F1 career after admitting on Thursday that he is a free agent for 2027.
+
+The Audis of Gabriel Bortoleto and Nico Hulkenberg, which both have a major upgrade, were ninth and 10th.
+
+Hulkenberg stopped on track with a technical problem towards the end of the session, shortly after Lindblad had made an error at Turn Seven and stopped facing the barriers. The British rookie was able to reverse out and get going again.
+
+Russell and Verstappen were other drivers to make an error, both taking to the run-off area when they missed their braking points, the Mercedes driver at Turn Three and Verstappen at Turn One.
+
+The moment Antonelli knew he had been transformed as an F1 driver
+
+Azerbaijan GP Preview: Can Kimi Conquer Baku?
+

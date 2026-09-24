@@ -1,0 +1,43 @@
+---
+layout: post
+title: "Update: Lidl banned from selling copycat Birkenstock sandals, Dutch court rules"
+date: 2026-09-23T21:25:01
+author: "badely"
+categories: [Business]
+tags: []
+excerpt: "Lidl must also compensate Birkenstock and pay its legal fees, according to the court ruling"
+image: assets/images/3e1e9c6bf1e032a62b9a28c1c98fcbd0.jpg
+---
+
+Experts revealed that Lidl must stop selling Birkenstock copies, including sandals based on the "Arizona" worn here by actor Jason Mamoa
+
+Lidl must stop selling copycat versions of Birkenstock's famous sandals in the Netherlands, a Dutch court has ruled.
+
+The discount supermarket chain faces a fine of â¬5,000 (Â£4,200) per day if it fails to comply and must also hand over sales data to Birkenstock, according to the ruling. 
+
+Lidl must also compensate Birkenstock and pay its legal fees, with the amount to be decided in separate court decisions.
+
+Birkenstock said the judgement sent a clear message that "copycats must not be allowed to free-ride on [our] creativity and innovation". The BBC has contacted Lidl for comment. 
+
+The ruling, which can still be appealed against, means Lidl cannot sell its copycat versions of Birkenstock's Arizona, Madrid, Gizeh, Boston, and Florida models across the Netherlands, after the court found the discount grocer infringed on the brand's trademark "footbed design".
+
+It is the latest in a string of court decisions on Birkenstock designs. 
+
+In November 2025, a Dutch court order stopped retailer Scapino from selling similar lookalikes in a judgment which is being appealed against.
+
+And in December 2025, Europe's highest court ruled everyday commercial products can hold copyright if they represent creative design choices, a decision which Birkenstock said was relevant to its "iconic" sandals.
+
+However, Birkenstock also faced a setback in Germany's highest court in early 2025.
+
+The sandals may have been cool enough for Margot Robbie to wear in the Barbie film, but the German judges ruled they were practical products rather than works of art â an outcome Birkenstock called a "missed opportunity" at the time.  
+
+Following Wednesday's ruling, Birkenstock said it will "continue to defend its rights vigorously and will use all available legal means to combat imitations of its iconic products".
+
+"To protect its retail partners and consumers, Birkenstock will continue to take decisive action against copycats seeking to profit from the company's creative ideas and innovations," it added.
+
+Birkenstock is far from the only fashion brand locked in battles with mass retailers over design mimicry.
+
+Footwear giants like Dr. Martens have repeatedly taken online big-box sellers to court over boot designs, while luxury house Christian Louboutin spent years in global litigation defending its signature red soles against high-street copycats. 
+
+Birkenstock sandals are not art, says German court
+
