@@ -1,0 +1,55 @@
+---
+layout: post
+title: "Update: Off sick? You need to phone your boss, back-to-work adviser says"
+date: 2026-09-23T10:49:51
+author: "badely"
+categories: [Business]
+tags: []
+excerpt: "Relying on text and email means sick workers disengaged and were less likely to work again, says Sir Charlie Mayfield."
+image: assets/images/b7174555f05155ce0d53c8e31eb709f9.jpg
+---
+
+It has been recently reported that People off sick from work should keep in phone contact with their boss, government-appointed back-to-work expert Sir Charlie Mayfield has said.
+
+Getting bosses and workers to have a conversation, rather than simply exchanging emails and sicknotes, could help get people back into work, Sir Charlie, who is leading the Keep Britain Working taskforce, said.
+
+His latest report said health-related economic inactivity was costing Britain around Â£210bn a year in benefit payments and lost output.
+
+Talking on the phone was just "one piece of the jigsaw" he said on Wednesday.
+
+The report calls for more workplace support, external for people with health conditions and disabilities and the establishment of a Workplace Health System alongside the NHS. 
+
+But improving communication was also a way to "rehumanise" the workplace and help prevent people dropping out of work altogether, Sir Charlie said.
+
+Why calling in sick makes you feel guilty
+
+The report does not suggest that someone struck down by flu needs to croak through their symptoms over the phone or that bosses need to provide down-the-line sickbed sympathy if an employee is off with food poisoning.
+
+"I'm not worried about a day here and a day there. It is more about longer term issues," Sir Charlie told the BBC's Today Programme.
+
+But he said Britain was doing a "poor job" of handling sickness in the workplace, leading to more people becoming disengaged and dropping out altogether.
+
+"I have met so many people who have said to me, 'You know, I was signed off sick and I was off sick for a month, two months, three months, and I had almost no contact with my employer'," Sir Charlie said.
+
+Around 300,000 people leave work every year with a health condition, much of which is preventable, the report said.
+
+Sir Charlie said employees sometimes feared talking about long-term health issues with their employer.
+
+"But the fear is also felt by employers as well because they're afraid of causing offence or creating a complaint or a grievance," he added.
+
+Fear on both sides can create a distance and lack of understanding, he warned, with longer absences making it much more likely a worker will drop out of the labour force altogether.
+
+"If you can keep more people in work, there's a massive opportunity for us to add billions to the economy and, frankly, to people's livelihoods," Sir Charlie said.
+
+"To get that, though, you need to have people talking to each other, and you've got to more actively manage sickness and ill health in the workplace."
+
+Employers need to do more, he said, and employees need to engage with it.
+
+Other ways for bosses to support staff include ensuring access to treatments such as physiotherapy and talking therapies, he said.
+
+Have you been affected by issues covered in this story?  Has your boss asked you to phone in about sickness? Share your experiences.
+
+Tackle workplace sickness to unlock hidden growth, former John Lewis boss says
+
+Do you feel guilty when calling in sick at work? This might be why...
+

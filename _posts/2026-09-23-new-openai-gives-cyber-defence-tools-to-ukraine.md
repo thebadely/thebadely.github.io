@@ -1,0 +1,67 @@
+---
+layout: post
+title: "New: OpenAI gives cyber defence tools to Ukraine"
+date: 2026-09-23T12:01:37
+author: "badely"
+categories: [Technology]
+tags: []
+excerpt: "Ukraine will get access to OpenAI's advanced GPT 5.6 Sol model under the deal - a rival to Anthropic's Mythos and Fable"
+image: assets/images/6992d70ce95d54814c3ec07b27e47bce.jpg
+---
+
+According to new developments, The tech giant OpenAI will share its AI cyber defence system Daybreak for free with the Ukraine government to help it protect civilian infrastructure, like hospitals and power plants, from cyber-attacks.
+
+According to the Computer Emergency Response Team of Ukraine (CERT-UA), the national cyber incident response team, Ukraine recorded nearly 6,000 attacks in 2025.
+
+Daybreak is able to quickly identify weaknesses in digital systems and help develop fixes.
+
+Under the deal, Ukraine will get access to OpenAI's advanced GPT 5.6 Sol model - a rival to Anthropic's Mythos and Fable.
+
+George Osborne, former UK chancellor and now Head of OpenAI for Countries, said: "Protecting civilian infrastructure means defending it against both physical and digital attacks, so people can continue to live, work and access essential services."
+
+Reacting to the news, Rafe Pilling, senior director of threat intelligence for the cybersecurity firm Sophos, said that Russian offensive cyber operations had been "a key component" of the Kremlin's aggression against Ukraine since 2014. 
+
+"Any initiative that strengthens Ukraine's already highly capable, but heavily burdened, cyber defence efforts is a welcome development and could provide a valuable force multiplier," he said.
+
+Jamie MacColl, a senior research fellow specialising in cyber at the Royal United Services Institute (RUSI), told the BBC western tech firms had been supporting Ukraine for some time - partly for altruistic reasons but also because they gain very valuable data and intelligence from an active conflict. 
+
+"Given this, it's no surprise that OpenAI is now also providing defensive cyber security services" he said.
+
+He thought access to Daybreak would be useful, particularly given the volume of Russian cyber-attacks targeting the country.
+
+But he noted Ukraine already had access to AI tools provided by OpenAI's competitors, like Google.
+
+The cyber-abilities of the latest, most powerful AI models, called "frontier" models in AI jargon, can be a boon for cyber-defenders, but the same abilities can also be used for attack.
+
+Spotting weaknesses in systems, for example, is useful for defenders looking to block hackers, but also for attackers hunting for ways to infiltrate an organisation. 
+
+Anthropic has tightly restricted access to its systems on the grounds that they are too powerful to fall into the wrong hands, but OpenAI has allowed some firms in Europe, as well as UK banks, to use its most advanced cyber models.
+
+The firm made the announcement alongside the UN General Assembly which is currently underway in New York. 
+
+AI is firmly on the agenda there, and US tech bosses including OpenAI's Sam Altman and Anthropic's Dario Amodei are due to speak at the high-level gathering. 
+
+United Nations Secretary General AntÃ³nio Guterres called for the tech to be regulated in his final address, while US President Donald Trump says it should be renamed "super intelligence".
+
+Evidence suggests the technology is increasingly being used in the Russia-Ukraine conflict.
+
+In a report published earlier this month, Anthropic claimed that its Claude platform appeared to have been used by a group of Russian developers to build software for a swarm of so-called "kamikaze" drones designed for attacks in Ukraine. 
+
+It said the group had activated virtual private networks - VPNs - in order to get around a geographical block put in place by the tech firm.
+
+Anthropic also claimed AI had been used in attempts to infiltrate the Ukrainian government, military and diplomatic services.
+
+Recently, around 100 US companies signed an open letter warning governments and institutions around the world that "the window is closing" to ensure cyber defences are robust enough to withstand AI-enabled cyber attacks.
+
+But it's not just bad actors deploying the tech that are of growing concern: in the summer, OpenAI revealed that a group of AI agents it had been testing had escaped from their controls, and secretly worked together to hack to another tech firm, Hugging Face. 
+
+Anthropic, and Google subsequently revealed similar incidents.
+
+Additional reporting by Chris Vallance
+
+Google's Gemini AI hacked three companies in security test
+
+What is AI and how does it work?
+
+Sign up for our Tech Decoded newsletter to follow the world's top tech stories and trends. Outside the UK? Sign up here.
+
