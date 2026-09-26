@@ -1,0 +1,37 @@
+---
+layout: post
+title: "Latest: Ngumoha not in England squad to face Spain"
+date: 2026-09-26T10:27:29
+author: "badely"
+categories: [News]
+tags: []
+excerpt: "Liverpool teenager Rio Ngumoha is not named in England's matchday squad for Saturday's Nations League opener against Spain."
+image: assets/images/98cc3e432b11b4bf3b0c5fcb2b4aa2f3.jpg
+---
+
+According to new developments, Rio Ngumoha received his first England call-up earlier this month
+
+Liverpool teenager Rio Ngumoha has not been named in England's matchday squad for Saturday's Nations League opener against Spain.
+
+The forward, 18, was named in a full squad for the first time by boss Thomas Tuchel earlier this month but he will miss out on the party that will play against the reigning world and European champions at Wembley (19:45 BST).
+
+Ngumoha was one of the five supplementary players that flew with the England senior squad for their pre-World Cup training camp in Florida in the summer. 
+
+This video can not be played
+
+Welcome England's newest prodigy!
+
+He was unexpectedly handed his debut in a 1-0 friendly win against New Zealand, impressing in a second-half cameo and becoming the fifth youngest player to represent the Three Lions. 
+
+Ngumoha has enjoyed a rapid rise since becoming the youngest player in Liverpool's history to start a first-team match when he made his debut as a 16-year-old in the FA Cup against Accrington Stanley during the 2024-25 season.
+
+He then marked his Premier League debut by scoring a stunning late winner in the Reds' 3-2 win at Newcastle last season. 
+
+He has made three league appearances for Andoni Iraola's Liverpool this season but only one of them has come as a starter. 
+
+Do England have a problem against top-10 teams?
+
+Palmer misses too many opportunities to play for England - Tuchel
+
+England should stop trying to replicate Spain - Gordon
+

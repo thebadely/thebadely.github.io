@@ -1,0 +1,77 @@
+---
+layout: post
+title: "New: Rogue OpenAI agent 'infiltrated' Australian government website in world first"
+date: 2026-09-24T15:42:07
+author: "badely"
+categories: [Technology]
+tags: []
+excerpt: "Australia criticised OpenAI for taking 'too long' to tell them about the breach which happened in June."
+image: assets/images/bb117ed85356b7b6dbe4df6c8a10c950.jpg
+---
+
+According to new developments, This video can not be played
+
+Watch: What you need to know about the OpenAI Australian government hack
+
+A rogue OpenAI agent hacked an Australian government website in June and accessed private data in what experts say is the first known case of its kind in the world.
+
+The agent "infiltrated" a statistics portal containing "non-sensitive" data from Australia's universal healthcare scheme Medicare, Prime Minister Anthony Albanese said in New York on Wednesday, local time.
+
+He had a "very frank discussion" with OpenAI boss Sam Altman for taking "too long" to disclose the breach and said there would be "legal consequences".
+
+OpenAI said it only learnt of the breach in August while reviewing "misaligned model activity" and emailed a general inbox of an Australian government agency on 10 September.
+
+Five days later, that government agency, Services Australia, escalated the email to Australia's cybersecurity centre before a government minister was notified and the prime minister alerted.
+
+Albanese said he spoke to Altman and raised "Australia's extreme concern about this incident" as well as his "disappointment" that the company had taken months to reveal the breach and "the nature of the way" it did so.
+
+The Australian leader said Altman had acknowledged there were "issues with protocols" at OpenAI.
+
+A "forensic investigation" led by the country's cybersecurity agency would aim to find out if other government systems were affected, Albanese said.
+
+The probe would also assess if the matter needed to be dealt with by police, he said, noting there "will obviously be legal consequences".
+
+Detailing the breach, Albanese said it had involved "public and non-public files" on the Medicare Statistics Reporting Service portal, home to "non-sensitive" data and statistics.
+
+Three other government systems "may" also have been affected: the Australian Institute of Health and Welfare and two state-based agencies - the New South Wales Bureau of Crime Statistics and Research and the Victorian Department of Health.
+
+"No personal information is believed to have been accessed at this stage, but investigations are ongoing," Albanese said.
+
+"Nonetheless this situation is obviously unacceptable," he said.
+
+Albanese said it took "too long" for OpenAI to inform Australian officials of the breach in June
+
+OpenAI, in a statement, said it had "identified activity involving several Australian government websites and services as our models attempted to look up answers, and available statistics for questions about Australia during an internal evaluation". 
+
+"In the course of that, our models took actions we did not intend," the statement said.
+
+It has also emerged that OpenAI's systems tried, and failed, to hack a digital library at the University of New Mexico in May, according to Transluce, a not-for-profit AI research lab.
+
+It said the systems also attempted to hack Data USA, a repository of public government data that same month. This also failed.
+
+Albanese declined to answer whether he raised the matter with US President Donald Trump during their face-to-face meeting on Tuesday night in New York, where world leaders have gathered for the UN General Assembly.
+
+Australia was one of 22 countries that earlier this week signed a joint statement calling for global oversight and guardrails for the development of AI. 
+
+Cybersecurity experts told the BBC the incident is a wake up call for regulators, given that AI agents are becoming more widely available for individual and commercial use.
+
+Dr Hammond Pearce, senior lecturer at the University of NSW Institute for Cyber Security, told the BBC that though this is the first known incident where AI agents have chosen to breach a government body of their own volition, there'll be more to come.
+
+"I expect that these kinds of attacks will keep occurring," he said, adding that they would likely "grow in severity and in frequency".
+
+"I do hope that this incident does start ringing alarm bells in governments around the world."
+
+Earlier this year, OpenAI revealed a group of AI agents it had been testing had escaped from their controls and secretly worked together to hack another tech firm named Hugging Face.
+
+And a string of other rogue AI incidents have also been made public this year, including a case where a digital assistant - without instruction - booted someone off a pilates class waiting list in a bid to get an Australian man in.
+
+Several AI firm leaders themselves - including Altman, Anthropic's Dario Amodei, and Elon Musk - have said the speed at which AI is developing is dangerous to humanity and needs to be reined in.
+
+But the US and China, who are vying for AI supremacy, are roadblocks. Both are hostile to greater regulation, wanting the economic and technological spoils of AI, and have downplayed safety concerns.
+
+OpenAI agents hijacked German website before Hugging Face hack, report claims
+
+US rejects pleas from OpenAI, Anthropic for global AI standards
+
+OpenAI gives cyber defence tools to Ukraine
+

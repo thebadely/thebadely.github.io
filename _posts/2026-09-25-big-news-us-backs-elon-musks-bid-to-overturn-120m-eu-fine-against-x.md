@@ -1,0 +1,59 @@
+---
+layout: post
+title: "Big News: US backs Elon Musk's bid to overturn €120m EU fine against X"
+date: 2026-09-25T09:48:33
+author: "badely"
+categories: [Technology]
+tags: []
+excerpt: "The EU had said X 'deceives users' by selling blue ticks without 'meaningfully verifying' accounts."
+image: assets/images/df5ffcee11db687ffacca57ba9f30bc5.jpg
+---
+
+Experts revealed that The US government is seeking to join Elon Musk's legal challenge to overturn a â¬120m (Â£105m) EU fine against X over its blue tick badges.
+
+In December 2025, the European Commission said the platform "deceives users" by allowing people to pay for a blue verified check mark, because it is not "meaningfully verifying" who is behind the account.
+
+But US Assistant Attorney General Brett A. Shumate said on Thursday that the commission had "inappropriately attempted" to expand its reach to American companies outside its control.
+
+Musk, who spent millions helping elect Donald Trump and other Republicans, has previously claimed EU tech regulation "inhibits progress" for companies.
+
+The US Department of Justice (DOJ) has filed an application, external with the EU's General Court in support of Musk's and X's attempts to dismiss âthe case.
+
+It claims that under a section of law in the Statute of the Court of Justice of the EU, a state may intervene in disputes before the court if it "can establish an interest in the result of the case to the court".
+
+The DOJ said the US "has a clear interest" in ensuring any decision by the commission was applied consistently with "how territorial jurisdiction is generally understood in international law".
+
+It also wants to make sure it would not "otherwise prejudice" US-headquartered digital services that "contribute significantly" to its economy.
+
+In a press briefing on Friday, external, European Commission spokesperson Thomas Regnier said it was "ready to defend" its position in court.
+
+He added that the commission had an "solid case" at its disposal, due to the alleged breach of its Digital Services Act.
+
+In addition to its use of blue ticks, EU regulators had accused X of failing to provide transparency around its adverts and denying researchers access to public data.
+
+Henna Virkkunen, the regulator's executive vice-president for tech sovereignty, said at the time of the fine's issue it was "holding X responsible for undermining users' rights and evading accountability".
+
+"Deceiving users with blue checkmarks, obscuring information on ads and shutting out researchers have no place online in the EU," she said.
+
+US Secretary of State Marco Rubio and the Federal Communications Commission (FCC) had criticised the EU regulator, accusing it of attacking and censoring US firms.
+
+"The European Commission's fine isn't just an attack on X, it's an attack on all American tech platforms and the American people by foreign governments," Rubio wrote in a post on X.
+
+"The days of censoring Americans online are over."
+
+His remarks were reposted by Musk, who added "absolutely".
+
+The European Commission denied targeting any specific nationality, stating it is simply protecting its digital and democratic standards to maintain its role as a global benchmark.
+
+The action marked the Commission's first official non-compliance decision under the Digital Services Act (DSA), one of two mandatory rulebooks governing online platforms in the EU.
+
+However, the EU is also conducting several other investigations into the platform, including one into its integrated AI assistant Grok over concerns it was used to create sexualised images of real people.
+
+Sign up for our Tech Decoded newsletter to follow the world's top tech stories and trends. Outside the UK? Sign up here.
+
+X to stop Grok AI from undressing images of real people after backlash
+
+EU says Xâs blue tick accounts deceive users
+
+US presses Europe on rules for big tech companies
+

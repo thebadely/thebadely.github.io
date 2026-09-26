@@ -1,0 +1,63 @@
+---
+layout: post
+title: "Big News: E-motorbikes seized by police sold on at auction, BBC finds"
+date: 2026-09-25T23:02:42
+author: "badely"
+categories: [News]
+tags: []
+excerpt: "Thousands of electric motorbikes are confiscated annually because they are suspected of being driven illegally or used in a crime - most are destroyed"
+image: assets/images/76da7b53de5c86213f0cf8f2e4a38f90.jpg
+---
+
+Experts revealed that Two of the electric motorbikes recently listed on an auction website used by police
+
+Electric motorbikes seized by police forces in the UK are being sold on at auction, despite some fears they could end up back in the hands of criminals, the BBC can reveal.
+
+Thousands are confiscated annually because they are suspected of being driven illegally, or used in a crime - most are later destroyed, but a BBC investigation has found some are sold on to members of the public in online auctions.
+
+Across the UK, police sold 161 e-bikes and e-motorcycles last year and 54 in 2024, although the real number could be higher because not every force responded to the BBC's Freedom of Information request.
+
+Some of the forces said they had now ended the practice, but others defended it as a way of putting "money back into policing".
+
+Six forces responded to say some of the vehicles they had seized had been sold, including large forces such as West Midlands Police and Police Scotland.
+
+The figure includes electrically-assisted pedal cycles, which look similar to bicycles and have a motor that kicks in as a rider pedals, as well as electric motorbikes, which are usually more powerful and are propelled only by their motor.
+
+E-bikes and e-motorcycles have become controversial because some think they are linked to crime and anti-social behaviour.
+
+Recent BBC reporting has highlighted cases across the country of balaclava-clad young men riding illegally on footpaths and intimidating residents.  
+
+There have also been a number of pedestrian deaths, including 86-year-old grandmother Gloria Stephenson, who was struck at a zebra crossing in Sunderland last year by an illegal e-motorbike.
+
+The BBC found listings of e-bikes "sold at direction of police"
+
+Police Scotland, which covers the whole of Scotland, says it sends seized e-bikes to an accredited recycler who may then decide to auction them, with money going back to the force. Last year 93 e-bikes seized by Police Scotland were sold, more than any other force. 
+
+Two e-bikes seized by West Yorkshire Police last year were sold at auction. The force said any money raised from the auctions was split between the force and the West Yorkshire Combined Authority, and said some cash went to "local good causes". All of those sold were "legally compliant", they added.
+
+West Midlands Police, which sold 12 e-bikes last year, said the "vast majority" of seized bikes were destroyed, with a "small number" sold "via an independent auction company so that the money can be put back into policing".
+
+The BBC found some forces had also sold e-scooters. It is illegal to use a privately-owned e-scooter on public property, although owning an e-scooter is not illegal.
+
+Durham Constabulary sold three of them last year, and West Mercia Police sold one. West Mercia's force also sold 24 e-bikes.
+
+Both forces told the BBC they have recently reviewed their policy and they will no longer sell e-bikes or e-scooters.
+
+Clive Grunshaw, the Police and Crime Commissioner for Lancashire said: "There's nowhere apart from [a] back garden that these scooters can be legally used, so it's a confused message," he said.
+
+He urged police forces to stop selling e-bikes, which he said have become the "transport of choice for drug gangs" because they are "so difficult to catch".
+
+He suspects that some criminals whose vehicles are seized simply try to buy them back from auction websites.
+
+Grunshaw worries some criminals are buying legally compliant e-bikes from police and then giving them illegal modifications.
+
+Legal electric pedal bikes are restricted so they cannot go faster than 15.5mph under motor power, but criminals can buy "tuning kits" online, often from eastern Europe, allowing some to hit speeds of around 40mph.
+
+Durham Constabulary, which sold 29 e-bikes last year, told the BBC they had recently reviewed its policy, and they "will now be crushed without exception".
+
+Greater Manchester Police sold one e-bike last year.
+
+Police tend to sell the vehicles through commercial auction websites like Raw2k, a company listed by several forces.
+
+The website regularly advertises e-bikes as "sold at the direction of police", including a Chinese-manufactured electric dirt bike that it says was auctioned from Falkirk earlier this month, with an opening price of Â£250 (much less than the Â£3,295 listed as the retail price for a new model).
+
