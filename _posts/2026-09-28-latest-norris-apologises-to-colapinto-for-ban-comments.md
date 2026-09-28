@@ -1,0 +1,45 @@
+---
+layout: post
+title: "Latest: Norris apologises to Colapinto for ban comments"
+date: 2026-09-28T10:11:33
+author: "badely"
+categories: [News]
+tags: []
+excerpt: "World champion Lando Norris apologises to Franco Colapinto for saying the Argentine should be banned for causing an accident at the Azerbaijan Grand P"
+image: assets/images/b8ad99b0c93aed2ed32352875531cf1a.jpg
+---
+
+Here’s what you need to know: Franco Colapinto's lock-up in Turn One took out his Alpine team-mate Pierre Gasly as well as McLaren's Lando Norris
+
+Lando Norris has apologised to Franco Colapinto for saying the Argentine should be banned for causing an accident at the Azerbaijan Grand Prix.
+
+Colapinto locked up at the restart after a safety-car period and slid into Alpine team-mate Pierre Gasly, who then hit McLaren driver Norris, in an incident which resulted in all three retiring from the race.
+
+Colapinto said he was "sorry" for his "big mistake" but Norris, speaking to BBC Radio 5 Live, said: "Give him a ban. It's quite simple."
+
+In a message on Instagram, world champion Norris said he was sorry for his comments on Saturday.
+
+"Tough weekend overall in Baku and of course a disappointing and early end to the race," he said.
+
+"After the race, I sent Franco a message apologising for the comments I made that I simply should not have said.
+
+"I know better and emotions were running high but that is not an excuse, it was wrong of me.
+
+"I've made mistakes of my own over the years and I know this is very much a part of racing and fighting on the limit.
+
+"Me and Franco came to a good understanding, are still good friends and are both excited to get back racing this weekend."
+
+Colapinto was given a 10-second penalty during the race, but as he was already retired this has been converted into a five-place grid drop, which he will serve at the Bahrain Grand Prix in Malaysia this weekend.
+
+This video can not be played
+
+Colapinto does not 'deserve a ban' after 'outrageous' Azerbaijan crash
+
+Russell faultless and Hadjar excellent on return - driver ratings
+
+How to follow Bahrain Grand Prix in Malaysia on the BBC
+
+Andrew Benson Q&A: Send us your questions
+
+Azerbaijan GP Review: Vettel Gives His Verdict
+
