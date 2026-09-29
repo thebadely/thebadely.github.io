@@ -1,0 +1,37 @@
+---
+layout: post
+title: "Update: Ex-England captain Dallaglio to sell World Cup winner's medal"
+date: 2026-09-29T08:28:54
+author: "badely"
+categories: [Sports]
+tags: []
+excerpt: "Former England captain Lawrence Dallaglio is set to sell his 2003 Rugby World Cup winner's medal after being declared bankrupt."
+image: assets/images/7b04413080ae70e9968c4273e36eaabe.jpg
+---
+
+According to new developments, Lawrence Dallaglio (middle) made 326 appearances for Wasps during his club career
+
+Former England captain Lawrence Dallaglio is set to sell his 2003 Rugby World Cup winner's medal after being declared bankrupt.
+
+The 54-year-old has put a number of items from his illustrious career up for auction including medals, trophies and caps. 
+
+The World Cup medal is expected to raise between Â£50,000 and Â£80,000 while in total the collection has an estimated value of Â£180,000.
+
+Dallaglio was one of the stars of the England side that won the World Cup in dramatic fashion against Australia 23 years ago.
+
+Other items up for sale include a British and Irish Lions cap, his 1993 World Cup Sevens winner's medal and a 2003 Six Nations Championship winner's medal. 
+
+During an appearance on The High Performance podcast, external earlier this month, Dallaglio spoke about his bankrupcy. 
+
+He said: "As a result of getting divorced, I was made bankrupt. 
+
+"I had some financial problems - I could've done things a lot better."
+
+He also said he sought therapy after his divorce and bankruptcy left him wallowing in "self-pity".
+
+The auction at Budd's, external in Northamptonshire takes place on 13 October.
+
+Listen: Sport's Strangest Crimes - Bloodgate
+
+Listen to the latest Rugby Union Weekly podcast
+
