@@ -1,0 +1,73 @@
+---
+layout: post
+title: "Update: Burnham says public body will invest in electricity grid"
+date: 2026-09-29T15:14:39
+author: "badely"
+categories: [Business]
+tags: []
+excerpt: "The prime minister said he wants to reduce energy costs in his first conference speech as Labour leader."
+image: assets/images/aadf9445e05a6b1e56479053ec6aca20.jpg
+---
+
+Let's dive into the details: Andy Burnham has announced a new government body to invest in Britain's electricity grid in his first party conference speech as Labour leader.
+
+The prime minister told party activists in Liverpool that the new publicly owned company, branded Great British Grid, will speed up connections to the grid by driving up competition for connection projects.
+
+Burnham is putting the proposals at the heart of a new goal to bring UK energy costs in line with other nations in Europe within 10 years.
+
+He promised on Tuesday to have an "honest conversation" with the public and take on the "difficult issues" that have been ignored for too long.
+
+Burnham put greater public control of utilities at the centre of his pitch for power over the summer.
+
+"A publicly-owned company that will challenge the private sector operators," he told the Labour conference.
+
+"It will increase competition, drive down costs and speed up connections.
+
+"So businesses can expand and grow more quickly."
+
+There are a number of reasons for the high energy prices in the UK, part of which comes from state subsidies given to private companies to modernise the grid.
+
+This is to accommodate new wind and solar farms and transmit their power to homes and businesses - a cost which ends up being added to the bills of customers.
+
+Full details of the new body are yet to be set out, but Labour said it would invest in and compete for transmission connection projects alongside the three private companies that currently own and manage the grid in Britain.
+
+The party said it would also make it easier for firms waiting to be connected to the grid to finance connection infrastructure themselves, with GB Grid supporting and potentially co-investing in projects alongside them.
+
+Labour has said that funding for the new body will be found within the existing budget of GB Energy, the public green investment company set up by Labour last year and which is now headquartered in Aberdeen.
+
+Faster grid hook-ups planned for some green energy projects
+
+Why the PM could finally drop the triple lock pension pledge
+
+The transition of electricity generation from large fossil fuel stations to the more remote locations used for renewables, such as offshore windfarms, will require Britain's ageing transmission grid to undergo extensive rewiring in coming years.
+
+Energy regulator Ofgem has estimated that Â£70bn of investment is required in the grid between 2025 and 2031, quadrupling the current rate of investment.
+
+But in a report earlier this month, the National Audit Office warned that the number of projects waiting to connect to the grid had grown "significantly" whilst delays to projects were also increasing.
+
+Conservative shadow energy secretary Andrew Bowie said the prime minister wanted to "nationalise the network", adding: "The Conservatives would get out of the way, letting businesses build their own gas power and grid connections and bid openly for capacity, and cutting electricity costs for every business through our Cheap Power Plan."
+
+Speaking to BBC Radio 4's Today programme, Matthew Lawrence, founder of the think tank Common Wealth and former adviser to Burnham, said the UK is "unusual in that it has a wholly privatised grid", which had led to "decades of sluggishness development and chronic underinvestment".
+
+He said Tuesday's announcement "seems to have fixed that by bringing in public investment into new parts of the grid".
+
+Dhara Vyas, chief executive of Energy UK, said the investment was welcome, but "the bulk of this will be private investment". 
+
+"In the next five years the transmission owners, the ones doing that highway of pylons, getting the electricity from source to homes to businesses, they are spending Â£90bn in the next five years"
+
+In his speech, which centered on the theme of "hope", Burnham added that the UK will have a national energy plan for the first time and give stronger powers to mayors and local leaders.
+
+"Energy, water, housing. Back under stronger public control," he told delegates.
+
+"We rely on them, we pay for them and once again we will have power over them."
+
+He said he would be "pragmatic" in relation to North Sea oil and gas amid looming decisions on Jackdaw and Rosebank "as we build a bridge to a clean energy future as we confront the climate crisis".
+
+Sign up for our Politics Essential newsletter to read top political analysis, gain insight from across the UK and stay up to speed with the big moments. It'll be delivered straight to your inbox every weekday.
+
+Best thing we can offer young people is a job, not benefits, says chancellor
+
+Mahmood signals rethink on migrants' right to remain
+
+Have you been affected by the issues discussed in this story?
+

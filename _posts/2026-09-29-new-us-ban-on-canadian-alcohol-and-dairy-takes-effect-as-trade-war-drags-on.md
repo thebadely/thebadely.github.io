@@ -1,0 +1,63 @@
+---
+layout: post
+title: "New: US ban on Canadian alcohol and dairy takes effect as trade war drags on"
+date: 2026-09-29T13:38:06
+author: "badely"
+categories: [Business]
+tags: []
+excerpt: "It is the latest escalation in the Canada-US trade war after negotiations collapsed in late August, with no word on when talks may resume."
+image: assets/images/69e86c6dfaf94de052838803c0d0d476.jpg
+---
+
+According to new developments, About 90% of all Canadian alcohol exports were bound for the US in 2025, with most coming from Ontario
+
+A US ban on several Canadian imports, including alcohol, dairy and motorcycles, has come into effect as a trade war between the two neighbours drags on.
+
+The latest measure by the Trump administration is in response to Canada's  implementation of tariffs on a range of US goods earlier this month following a breakdown in trade talks. 
+
+Canada is not expected to retaliate further, with Prime Minister Mark Carney saying earlier this month that the impact the import bans will have on Canada's economy is "modest". 
+
+Trade talks remain on ice, with US trade representative Jamieson Greer telling CNBC recently that President Donald Trump is "comfortable" with his current relationship with Canada.
+
+This video can not be played
+
+Watch: How much can Canada fight back in its trade war with the US?
+
+"They call us now and then and we have good conversations about potential deals. But there's no urgency on our side," Greer said of relations with Canada in an interview with the US network last week.
+
+Tuesday's trade ban applies to nearly C$1bn ($710m; Â£530m) worth of Canadian liquor exported to the US, as well as whey products used in protein powder. 
+
+Motorcycle exports to the US will also be impacted, though Canada only sent about 5,000 motorcycles south of the border in 2025 that were worth about C$120m, according to national data by Statistics Canada, meaning the impact would be limited. 
+
+The import bans were first announced by Trump in a series of executive orders signed on 8 September. In them, Trump said the measures are in response to "continued discrimination" by Canada on US dairy, automotives and alcohol.  
+
+Speaking to reports on Monday, he accused Canada of "treating the United States very unfairly".
+
+"They have been one of the worst countries in the entire world," Trump said.
+
+The US-Canada trade war in 5 charts
+
+What tariffs has Trump introduced and why?
+
+Carney said earlier this month that the bans "are relatively modest measures" when compared to other trade actions the US has imposed on Canada. 
+
+He acknowledged, however, that the bans will hurt certain businesses and sectors that are directly targeted.
+
+Derek Holt, an economist with Canadian bank Scotiabank, wrote in an analysis that "these actions are face-saving by the US administration, not substantive in nature and that's a positive". 
+
+About 93% of all Canadian liquor exports in 2025 were sold to the US. Spirits Canada, a group representing Canadian liquor producers, has said the consequences to the industry "could be significant"., external
+
+US liquor producers also warned of consequences, with the Distilled Spirits Council writing that the import ban "will ripple throughout the US hospitality sector" as businesses gear up for the holiday season.
+
+Last week, dozens of American liquor producers penned an open letter to Trump urging him to resolve the ongoing trade dispute with Canada with respect to alcohol.
+
+Economists and businesses in Canada have also warned that the bans will add uncertainty to the future of country's trade relationship with the US, its largest trade partner. 
+
+In addition to these latest import bans, the US has imposed 50% tariffs on a range of Canadian goods, including dairy, alcohol, steel and aluminium products, as well as 25% tariffs on Canadian-built cars. 
+
+Canada in return has placed retaliatory tariffs ranging from 15% to 50% on more than 700 US products, as well as a 25% levy on certain steel and aluminium products. Most Canadian provinces have also stopped selling US liquor. 
+
+Tariffs - taxes paid on imported goods - are central to Trump's economic agenda, who argues that they raise government revenue and encourage consumers to buy American-made goods.
+
+Economists, however, argue that they have raised prices of everyday goods for consumers and have disrupted the global economy. 
+

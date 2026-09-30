@@ -1,0 +1,55 @@
+---
+layout: post
+title: "Update: UK diesel price hits all-time high, the RAC says"
+date: 2026-09-28T20:42:56
+author: "badely"
+categories: [Business]
+tags: []
+excerpt: "The US-Israel war with Iran has caused fuel prices to soar due to disruption of global oil supplies."
+image: assets/images/8029f5ead299960f8b694d7be19d1881.jpg
+---
+
+According to new developments, Diesel prices have hit an all-time high of 199.33p per litre, according to the RAC motoring organisation, as the war in the Middle East continues to push up the cost of fuel.
+
+Petrol prices are also still rising, with a litre currently costing 174.23p.
+
+Over the past seven months, the Iran war has severely disrupted the production and transportation of wholesale oil across the region, causing the price of fuels made from oil to surge.
+
+The RAC said diesel prices had entered "uncharted territory" and served as a reminder of "just how exposed the UK is to events occurring far away".
+
+The cost of diesel has now risen by 59p a litre, or just under 40%, since the US-Israel conflict with Iran erupted at the end of February. The previous record was 199.09p in June 2022 following Russia's full-scale invasion of Ukraine.
+
+The increase means the cost of filling an average family car with diesel is now Â£110, Â£31 more than at the start of the conflict.
+
+Petrol prices are now 41p per litre more than at the start of the conflict, but still well below a 2022 peak.
+
+The RAC data is based on the average price of diesel at a range of supermarkets, motorway service stations and independent retailers.
+
+The Chancellor said on Monday that the the "place" and "time" for the government to deal with questions around rising petrol and diesel prices and fuel duty is next month's Budget.
+
+John Healey told BBC Radio 5 Live: "I'm acutely concerned and conscious about how hard it is for families. I see that at the pumps myself.
+
+"We can't remove the cost of living pressures, we can't remove the prices that people are having to pay, but where we can we will act and we will give people just a bit of breathing space, and the same goes for the cost to business."
+
+Simon Williams, the RAC's head of policy, said record diesel prices "spell pain not only at the pumps for drivers, but for everyone who buys goods or services that rely on diesel lorries and vans".
+
+"Undoubtedly these increased costs will be passed on to consumers," he said. Williams said prices at the pumps will not come down until there is a "sustained lower oil price - over several weeks, not days". 
+
+The price of Brent crude, a benchmark for global oil used to make petrol, diesel and other fuel products, rose over the weekend and is now hovering at around $108 per barrel. Before the US and Israel invaded Iran, it was trading at around $73.
+
+Supplies of diesel internationally have been heavily constrained by the conflict in the Middle East, which has restricted the flow of both crude oil and refined diesel onto global markets. 
+
+Russia, which is also a major producer, has also implemented an export ban on diesel, following attacks on its refineries by Ukraine, further limiting supply.
+
+Diesel is harder to refine than gasoline and, because it is used by the haulage industry and in agriculture, it is very difficult to reduce demand. 
+
+The UK is heavily reliant on imports. Although the four refineries in the UK make more than enough petrol to meet demand, they do not make enough diesel for the country's needs.
+
+UK diesel price hits all-time high
+
+There were 15.1 million diesel vehicles on UK roads at the end of June, according to the Department for Transport. That is a drop from 15.7 million a year before.
+
+There were 9.8 million diesel cars, down year on year from 10.4 million.
+
+Have you been affected by the issues raised in this story? Let us know
+
