@@ -1,0 +1,85 @@
+---
+layout: post
+title: "New: Guardiola backing Man City after guilty verdicts"
+date: 2026-09-30T10:07:23
+author: "badely"
+categories: [Sports]
+tags: []
+excerpt: "Former Man City boss Pep Guardiola says he will 'always' be behind the club after they were found guilty of financial charges."
+image: assets/images/fd6fb36a11f5758f6f830a209a79944a.jpg
+---
+
+Experts revealed that Pep Guardiola won six Premier League titles as Manchester City manager
+
+Former manager Pep Guardiola has backed Manchester City's owners and leadership and says he will "always" be behind the club after they were found guilty of all charges related to breaches of the Premier League's financial rules.
+
+An independent commission found that City arranged "sham contracts" with a number of commercial partners as part of a scheme to disguise secret funding of more than Â£830m.
+
+The league confirmed City have been found guilty of all charges related to breaches of financial rules between the 2009-10 and 2017-18 seasons, and all but one in relation to failure to co-operate with the investigation.
+
+The club continue to deny any wrongdoing and have until 2 October to submit an appeal.
+
+Guardiola took over as City manager in July 2016 before leaving last summer.
+
+"I want every single Manchester City fan across the world to know I am here; more than ever," he wrote in a social media post.
+
+"I am, always have been, always will, be behind my club, my owner, my chairman, Ferran [Soriano], the players, staff, [manager] Enzo [Maresca] and you, our unique supporters.
+
+"Let me be clear: we will get through this together.
+
+"I love you all."
+
+During Guardiola's decade in charge of City, he led the club to six Premier League titles - including a record four in a row from 2020-21 - as well as the Champions League, three FA Cups and five League Cups.
+
+Prior to his departure, Guardiola spoke about the charges against City in November 2024 and said he "will be here" even if the club were relegated.
+
+City chairman Khaldoon Al Mubarak said in a statement on Saturday that the club is still confident of proving its innocence, while on Tuesday chief executive Ferran Soriano said in a video message, external to staff and players that "irrefutable evidence" had been "ignored" by the commission.
+
+The club, which is owned by the Abu Dhabi United Group, said they were "both disappointed and surprised" by the guilty verdict.
+
+The intricate web Man City spun to con the Premier League
+
+Man City guilty of 'sham' contracts and misleading accounts
+
+Man City Q&A with Kieran Maguire & Dale Johnson
+
+Micah Richards was on the Manchester City bench when Sergio Aguero scored his title-winning goal in 2012
+
+Former Manchester City defender Micah Richards says he felt "absolutely devastated" after reading the Premier League's "damning" guilty verdict on the club's financial charges.
+
+"The reports were troubling," he said on The Rest is Football podcast. "I saw the words which were used by the Premier League in 'sham contracts' and I felt absolutely devastated.
+
+"I was at that club since I was 14 years old, I would die for that club. I achieved my dream at Manchester City, but then to hear these reports, and not only me as an ex-player, but the fans, what they have to go through, absolutely devastating."
+
+While Richards was part of the City's youth academy he lived in 'digs' with a local family who are long-term supporters of the club.
+
+The 38-year-old added: "My digs man, he rang me and he was literally in tears and asking me about information, which I don't know. I haven't got the answers to tell him.
+
+"That's someone who's supported the club for 60-odd years and the uncertainty around it is just heartbreaking.
+
+"To have a headline of this nature for a club that I love so much, it's been difficult. If you listen to the reports, they are damning.
+
+"I feel saddened, I feel angry, I feel a little bit confused because, on the other side, you have City's side of the story."
+
+City won their second Premier League title in 2013-14, overtaking Liverpool during the run-in to finish two points above the Reds.
+
+Former Liverpool defender Jamie Carragher, who retired in 2013, said: "I feel for the players. They'll almost feel like a lot of their career is going to have an asterisk, or a lot of people will be calling it a sham.
+
+"The players were told everything was fine. What the [City] hierarchy are coming out with now, they're just gaslighting.
+
+"I think the titles should be taken off their list. Whether other clubs get them is probably slightly different. City have not just hurt their own players."
+
+The 2013-14 season was the closest that Carragher's long-time team-mate Steven Gerrard came to winning the Premier League title.
+
+"Those players will never get that feeling and it was robbed by Man City," Carragher added on Sky Sports News.
+
+"No-one remembers the medal. Giving trophies or medals back, it doesn't mean anything. It's not about medals, it's about feelings."
+
+Â£1.2bn on transfers with Â£830m inflated in accounts - Man City's 'asterisk era'
+
+The intricate web Man City spun to con the Premier League
+
+Latest Manchester City news, analysis and fan views
+
+Ask about Man City - what do you want to know?
+
