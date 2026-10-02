@@ -1,0 +1,61 @@
+---
+layout: post
+title: "New: How to see the Orionid meteor shower from Friday"
+date: 2026-10-02T07:16:45
+author: "badely"
+categories: [News]
+tags: []
+excerpt: "Friday sees the start of the Orionid meteor shower as Earth passes through debris left behind by Halley’s Comet. It peaks later in October."
+image: assets/images/ca599b4f09070a5e3f39dfd9e51abebe.jpg
+---
+
+Here’s what you need to know: One of the best-known meteor showers is now active until 7 November.
+
+The Orionids are particularly fast and can leave trails in the sky that last a few seconds after the meteor itself has gone.
+
+The display occurs at around the same time each year when the Earth passes through a trail of dust and debris left behind by Halley's Comet.
+
+The showers peak overnight from 21 to 22 October.
+
+The Orionids are particularly fast, entering the atmosphere at around 41 miles per second.
+
+As tiny particles from Halley's comet enter the Earth's atmosphere they heat up and produce streaks of light across the night sky that we see as meteors.
+
+Halley's Comet is one of the most famous comets in our Solar System and has been observed from Earth for centuries. It takes around 76 years to complete one orbit of the Sun and was last seen from Earth in 1986. 
+
+Halley's Comet is not expected to be visible from Earth again until 2061, but its debris will continue to produce meteor showers each year.
+
+In fact, the Earth encounters material left behind by it twice a year, resulting in the Eta Aquariid meteor shower in May and the Orionids in October.
+
+The meteors appear to radiate from the constellation of Orion, which is where the shower gets its name, but they can appear anywhere across the night sky.
+
+Under ideal conditions, around 10 to 20 meteors can be seen each hour at the shower's peak.
+
+The constellation of Orion is one of the most recognisable in the night sky identifiable by the large hour glass shape formed by some of its stars
+
+For the best chance of seeing them, find a dark location away from street lights and with as wide a view of the sky as possible.
+
+Allow around 15 to 20 minutes for your eyes to adjust. You won't need binoculars or a telescope; the shower is best viewed with the naked eye.
+
+Five night sky events to look out for this autumn
+
+Your pictures of the Harvest Moon shimmering across the UK sky
+
+Viewing prospects will be rather mixed on Friday evening.
+
+The best conditions are likely to be across southern and eastern parts of England where there should be long clear spells, albeit with a few areas of cloud drifting across the sky from time-to-time.
+
+In Wales, the Midlands and Northern England it may be more of a struggle to see the meteor shower, with a slow-moving weather front providing cloud and outbreaks of rain. 
+
+The rain is likely to turn patchier later in the night with a few cloud breaks likely to develop.
+
+For Scotland and Northern Ireland it will be a story of clear periods, patchy cloud and a few showers - but if the gaps between the showers are long enough you should get a view for at least some of the time.
+
+The Moon could also affect how many meteors are visible at the peak of the Orionids later in October, as the Moon will be building to its full phase on 26 October. This means its light could make some of the fainter meteors more difficult to see.
+
+Brighter meteors however should still be visible, particularly from darker locations away from artificial light.
+
+UK on track for one of the warmest years on record after warm September
+
+Stormy autumn, cold winter - how might El NiÃ±o affect the UK weather?
+
