@@ -1,0 +1,65 @@
+---
+layout: post
+title: "Breaking: Women given shorts at Oktoberfest to prevent upskirting"
+date: 2026-10-02T23:16:03
+author: "badely"
+categories: [News]
+tags: []
+excerpt: "The step at the Munich festival comes after thousands of voyeuristic videos emerged on social media."
+image: assets/images/9d0e795aa97ec7e70183b5c854eacab3.jpg
+---
+
+Let's dive into the details: The famous Teufelsrad, or Devil's Wheel, from which videos are regularly posted online (file picture)
+
+The operator of a popular amusement ride at the Munich Oktoberfest has been handing out free cycling shorts to women, after thousands of voyeuristic videos emerged on social media.
+
+Some videos showing women on the Teufelsrad, or Devil's Wheel, have been viewed millions of times. One is said to have made thousands of euros for a woman who posted it online.
+
+The Teufelsrad is one of the oldest attractions at the Oktoberfest, the annual beer festival which comes to an end this weekend after 16 days. Its circular platform rotates faster and faster until its riders fall off, and the motion and speed often make skirts fly up.
+
+Filming under skirts is illegal in Germany, and carries a two-year sentence in jail.
+
+However, critics believe the law does not go far enough, and the videos of women on the Teufelsrad in their traditional dirndl dresses often show their underwear. Sometimes, the images have been digitally altered to show them naked, according to local broadcaster BR.
+
+Elisabeth Polaczy says she has handed out more than 100 pairs of cycle shorts this year
+
+One woman made â¬9,000 (Â£7,650) from a single clip, according to BR, whose investigations found that a group of professional YouTubers from Ukraine and several people from Bavaria were behind the videos.
+
+At least 32,000 videos of women on the Teufelsrad have been in circulation, according to Munich-based daily SÃ¼ddeutsche Zeitung. Some have apparently been viewed millions of times.
+
+The operator of the Teufelsrad, Elisabeth Polaczy, told the BBC that, for the past three years, she has been handing out free cycling shorts to women and girls wearing dresses, to protect them from people filming in the crowd.
+
+This Oktoberfest she has handed out more than 100 pairs, she says: "I want to do everything I can to make people feel secure."
+
+Polaczy, who is now 80, said donating cycling shorts wasn't cheap, but it was worth it for her own peace of mind. 
+
+The Teufelsrad tent is hung with signs and police posters in German and English warning against filming under people's skirts, but Polaczy says it is impossible to control everyone filming with smart phones.
+
+Some waitresses at this year's beer festival say they have also started wearing cycling shorts under their dirndls.
+
+A spokesman for the Bavarian police told the BBC that since 2025, it has run a poster campaign at the Oktoberfest, warning against upskirting.
+
+ A police poster in Munich timed for this year's Oktoberfest makes clear that "upskirting is a crime"
+
+This year, police arrested a 45-year-old Swiss man for using his phone to film under a German woman's dirndl. Last year there were 10 arrests for upskirting and seven in 2024.
+
+However, Josephine Ballon, who heads German non-profit organisation Hate Aid,  which aims to support victims of digital violence, told the BBC that the current law against upskirting does not provide enough protection.
+
+Although she says there are plans for a new law, current legislation "applies only when you film under the skirt", and not when a skirt simply flies up and gets photographed. 
+
+The new camera glasses are also a threat, she believes.
+
+Ballon wants anyone who has uploaded intimate pictures of women on the internet to be punished, along with the platforms that put them up.
+
+Meanwhile, the city of Munich has sought to tighten up on influencers and content creators who earn money from their social media postings and who want to film at the Oktoberfest.
+
+Munich has banned broadcasting live streams from the festival and requires anyone who wants to film there to hold a permit, which is issued by the city for a fee.
+
+Hundreds of licences have been issued this year to influencers, who make money from product placement or sponsoring.
+
+Sisters tell of upskirting 'violation' during night out
+
+I hunted the men who secretly film their wives and share footage online
+
+Students strike across Germany in protest against military service
+

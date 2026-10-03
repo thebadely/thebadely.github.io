@@ -1,0 +1,65 @@
+---
+layout: post
+title: "New: Could El Niño mean there are no Atlantic hurricanes this year?"
+date: 2026-10-02T23:37:13
+author: "badely"
+categories: [News]
+tags: []
+excerpt: "For the first time in three decades there has not been a single Atlantic hurricane in September, normally the most active month."
+image: assets/images/d9fc52d4f1ce2f23e2e12e861daf5bb4.jpg
+---
+
+Experts revealed that For the first time in more than 30 years, a hurricane has not formed in the Atlantic throughout September - normally the most active month for hurricane activity.
+
+With just two months left of the defined hurricane season, there is an increasing possibility that no hurricanes will develop at all. 
+
+This would make the 2026 Atlantic hurricane season the only one in the satellite era without a hurricane.
+
+The biggest reason for this is El NiÃ±o, which traditionally stifles activity in the Atlantic but brings a very active season in the eastern North Pacific.
+
+The Atlantic hurricane season was predicted to be quieter than normal as a result of this.
+
+With a very strong El NiÃ±o forecast, the US National Hurricane Center in May predicted a total of eight to 14 named storms. Of those, three to six were predicted to become hurricanes, with one to three becoming major hurricanes.
+
+September is typically the most active month for tropical storm and hurricane activity.
+
+But, this year marks the latest date on record since the start of the satellite era (1960s onward) where no hurricane has formed in the North Atlantic.
+
+While there have been no hurricanes forming in the North Atlantic so far this season, the Eastern North Pacific has been very active with above-average storms
+
+There were, however, four named tropical storms that formed in September: Edouard, Fay, Gonzalo and Hanna.
+
+All but Edouard stayed out in the open waters of the Atlantic.
+
+The National Hurricane Center suggests there is no sign of any tropical storm activity or hurricane over the next week at least.
+
+Forecasters at Colorado State University, who also monitor activity, suggest the strong El NiÃ±o is likely to disrupt wind patterns across the Atlantic and "likely result in below-normal activity" over the next two-weeks.
+
+As the typical peak of the season has passed and is now on a downward trend until 30 November, a season without a single hurricane is looking increasingly possible.
+
+In the historical Atlantic hurricane database,  there has not been a year without a hurricane recorded since 1914. However, this was pre-satellite monitoring so it is impossible to say with certainty that none formed.
+
+While El NiÃ±o is the natural warming of the tropical Pacific, it can disrupt weather patterns around the globe.
+
+As wind patterns shift during an El NiÃ±o, upper winds over the Atlantic increase and this leads to more wind shear, where wind changes rapidly with height.
+
+Strong winds blowing at different speeds and directions at higher altitudes rip apart thunderstorms, preventing them from growing into tropical storms or hurricanes.
+
+Meanwhile, the Pacific typically becomes more active during El NiÃ±o because the sea surface temperatures here are much higher, combined with more favourable wind patterns.
+
+The warmer waters give storms more energy to grow into tropical storms and hurricanes.
+
+This year, temperature records have already been broken in a key region of the central-eastern Pacific, with daily sea surface temperatures now exceeding the previous record set during the very strong El NiÃ±o of 2015.
+
+There have so far been 17 named storms in the basin including nine hurricanes, seven of which were major.
+
+In terms of the amount of energy these storms have produced - known as the Accumulated Cyclone Energy - this season is around two and half times more active than normal at this point.
+
+El NiÃ±o is predicted to continue to strengthen with forecasts suggesting it will reach its peak in November or December.
+
+New hurricane season record as 'historic' El NiÃ±o leaves Atlantic eerily quiet
+
+Developing El NiÃ±o becomes strongest on record weeks before expected peak
+
+How a developing El NiÃ±o will impact the Atlantic hurricane season
+

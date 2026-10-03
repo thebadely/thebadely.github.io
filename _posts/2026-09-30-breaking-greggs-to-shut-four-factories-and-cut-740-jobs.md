@@ -1,0 +1,75 @@
+---
+layout: post
+title: "Breaking: Greggs to shut four factories and cut 740 jobs"
+date: 2026-09-30T15:03:22
+author: "badely"
+categories: [Business]
+tags: []
+excerpt: "The company says it needs to 'keep evolving alongside changing customer expectations'."
+image: assets/images/0a69343ff922a625a4708946527458a2.jpg
+---
+
+It has been recently reported that Greggs said proposals would not affect its shops
+
+High street bakery brand Greggs has announced plans to shut four of its factories and cut 740 jobs.
+
+It plans to close manufacturing sites at North Lakes near Penrith, Cumbria, Pettigrews in Kelso, Scotland, Seaham in County Durham and Enfield, Greater London, though distribution operations would continue to run from the latter. 
+
+The proposals will also impact manufacturing operations at its Treforest site in Wales, but this will also continue as a distribution centre for the business.
+
+The chain, which has headquarters in Newcastle, said its retail shops would not be affected by the proposed changes and like-for-like sales had grown across its managed stores.
+
+It said the plans would save it about Â£20m across the 2028 and 2029 financial years.
+
+The changes would take place over the next two and a half years, with parts of Greggs' manufacturing processes relocating, the firm said.
+
+The range of products manufactured at its Clydesmill Glasgow and Manchester locations would be reduced and production of tinned bread at Gosforth would be stopped.
+
+Some products would also be sourced from specialist suppliers.
+
+The general secretary of the Bakers, Food and Allied Workers Union (BFAWU) Sarah Woolley said the union was "deeply concerned" about the announcement.
+
+She said: "Our immediate priority is our members, their jobs, their families and the communities that could be affected by these proposals."
+
+She added Greggs was clear in its own announcement the business continued to "perform strongly".
+
+Greggs said positive trading and continued cost control means it expected a "modestly improved outcome" for 2026.
+
+Like-for-like sales grew by 3.4% across its managed stores, with overall growth buoyed by the opening of new shops.
+
+Woolley said Greggs' workers had played a "huge part" in getting the company where it is.
+
+She said: "Against that backdrop, our members will understandably be asking why their jobs and livelihoods should now be put at risk in the name of efficiency and future progression."
+
+But chief executive Roisin Currie said the company needed to "keep evolving alongside changing customer expectations".
+
+She said: "Greggs manufacturing and logistics network remains a key strength of the business, and these proposals are intended to strengthen our manufacturing network, improve efficiency and ensure we remain well placed for the future while continuing to deliver the quality, value and service our customers expect."
+
+The firm employs 33,000 people in the UK, the majority working in its stores.
+
+A consultation with staff is expected to start soon and the company said "no final decisions" had been made yet.
+
+Kelso and district councillor Euan Robson said the announcement regarding Pettigrews in the Scottish Borders had come as a "bit of a shock".
+
+He said: "Greggs is a very good business and apparently doing well, but it will be a sad day if the factory does close because it's been here for a very long time.
+
+"It's been a very valued business in the local community; it employs quite a number of people, and thoughts today are really with them because it's an uncertain future."
+
+The shake-up is expected to cost the firm about Â£60m, including disruption costs and redundancy payments.
+
+The retail business said its sales grew by 7.7% in the three months to September 26, compared with the same period a year earlier.
+
+It said this represented progress in the face of "challenging market conditions", as consumer finances continued to come under pressure.
+
+The company said positive trading and continued cost control meant it expected a "modestly improved outcome" for 2026.
+
+Greggs opened 95 new shops and closed 38 in the year to date, taking its overall estate to 2,796 shops.
+
+Follow BBC North East on X, external and Facebook, external and BBC Cumbria on X, external and Facebook, external and both on Nextdoor and Instagram, external. 
+
+Do you have a story suggestion for BBC North East & Cumbria?
+
+Greggs gets green light for 24-hour opening
+
+BBC crew catch thieves in act while filming shoplifting report
+
