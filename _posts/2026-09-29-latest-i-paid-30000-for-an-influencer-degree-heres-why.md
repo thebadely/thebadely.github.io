@@ -1,0 +1,93 @@
+---
+layout: post
+title: "Latest: I paid £30,000 for an 'influencer' degree. Here's why"
+date: 2026-09-29T07:02:07
+author: "badely"
+categories: [News]
+tags: []
+excerpt: "Content creation degrees aim to help people make money from social media, but are they worth the money?"
+image: assets/images/5bac133c011857085ca6cd2e212d4b39.jpg
+---
+
+It has been recently reported that Destiny McGowan is now earning money as a content creator
+
+As university courses go it may raise a few eyebrows, but Destiny McGowan has no doubt that hers was very useful.
+
+In July the 21-year-old graduated from Nottingham Trent University with a degree in content creation.
+
+As well as teaching how to best make videos and posts for Instagram, TikTok and YouTube, the course also focused on how to build audiences, engage with brands and monetise your content.
+
+"I always wanted to be an entrepreneur, so for me the course was about the transferable skills that I believed I would gain," says Destiny, pointing to both the social media and business aspects she was taught.
+
+It's early on in her career, and Destiny won't disclose precisely what she is earning, but says she's already making money.
+
+In addition to posting about fashion on her own accounts, she makes videos for others, and has also been hired as a TikTok live selling host, presenting products for sale on camera.
+
+She says the course gave her access to equipment, technology and industry contacts.
+
+"The incredible people I've met through panels that the university hosted would take someone five to 10 years to get to that place," she explains.
+
+Nottingham Trent says its content creation degree, which it launched in 2022, provides "hands-on experience". 
+
+Several universities in the UK now offer such courses. The University of Brighton says it teaches students how to create "content that cuts through the noise".
+
+Meanwhile in the US, Arizona State University say its similar qualification allows students to "turn your creativity into content that connects with audiences". 
+
+Yet you'd be paying a lot of money for this. The three-year degrees at Nottingham Trent and Brighton both currently cost Â£9,790 per year for UK students, while the standard annual fee at Arizona State is $14,724 (Â£11,000) for a resident of that state.
+
+More than Â£2m spent by government on influencers since July 2024
+
+So are such degrees worth it? 
+
+Knightenator, a UK-based content creator, isn't sure. "I don't think I would have taken the course," she says.
+
+The 31-year-old, who doesn't reveal her real name, has been posting videos about gaming and travel on social media since 2015. She now has 65,000 followers on Twitch, and more than 100,000 on TikTok.
+
+Content creation is her full-time job, with brand deals making up most of her income, she says.
+
+"Honestly, from my experience, I don't think companies would care too much if you had a content creator degree," she says.
+
+She adds that the internet is saturated with free advice on how to get started. "If you have the drive to want to become a content creator, the tips are out there, and you don't need to commit to a three-year degree."
+
+Her advice is to watch other people's content and find your own niche. "I honestly think that you don't need much in this day and age at this moment to be able to do it."
+
+Knightenator doesn't see the point of content creation degrees
+
+But fellow content creator Aiesha Beasley from Phoenix, Arizona disagrees.
+
+The 36-year-old, who posts about food, fashion and lifestyle, says she would have enrolled on one of these courses if they had been available when she first started blogging on Tumblr in the early 2010s.
+
+She believes a degree would have given her a "clearer pathway", particularly when it comes to how to earn a living.
+
+"You really do have to have a business mindset on: how can I transition this from a hobby into something that makes me money?" says Aiesha.
+
+She adds that such courses are "ahead of the curve" in recognising that content creation is increasingly an important part of marketing.
+
+"Now you have to have a digital presence," she explains, "whether you are a business owner or an entrepreneur or building a personal brand."
+
+The degrees by the likes of Nottingham Trent and Arizona State come as the content creator economy booms on both sides of the Atlantic. YouTube content creators alone contribute Â£2.2bn to the UK economy, according to one report last year.
+
+Meanwhile, one in three people aged between 18 and 30 in the US wish to become an influencer, a 2024 survey suggests. , external
+
+Aiesha Beasley says she would have done a content creation degree if they had existed when she started
+
+However, Jacky Gurr, course leader and senior lecturer for content creation at Nottingham Trent University, points out that the majority of people on the course are not actually aspiring to become influencers.
+
+For Gurr, content creation is a professional skill that organisations increasingly need, whether someone runs their own business, works in-house, joins an agency or works freelance across multiple clients.
+
+"Those skills absolutely can be taught. Students learn how to plan and produce video content, develop campaigns, understand audiences, analyse performance data and adapt strategies based on that data."
+
+She adds that the business side of content creation "is an important part of the degree", where they discuss monetisation and the commercial side of the industry.
+
+But for anyone who thinks a university degree will lead to overnight success as an influencer, Jacky Gurr has these words of caution: "So much of being a successful influencer is about luck, and we can't teach luck or personality."
+
+I'd rather pay thousands on a holiday: Meet the pensioners spending the kids' inheritance
+
+I got paid $5,000 to move to a place I'd never heard of
+
+'What you see is what you pay' - why some US restaurants are banning tips
+
+We had packed lunches every day for 10 years and retired at 40  
+
+Have you studied a similar course? Do you have a story to share?
+

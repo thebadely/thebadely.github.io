@@ -1,0 +1,129 @@
+---
+layout: post
+title: "Big News: What to know about Brazil's election pitting Lula against Flávio Bolsonaro"
+date: 2026-10-04T11:03:20
+author: "badely"
+categories: [News]
+tags: []
+excerpt: "Polls suggest the election will be a closely run contest between the left-wing incumbent and his right-wing rival."
+image: assets/images/d7e3190635f61539204874d731886d6f.jpg
+---
+
+Let's dive into the details: The two candidates leading in the polls are LuÃ­z InÃ¡cio Lula da Silva and FlÃ¡vio Bolsonaro
+
+Brazilians have begun voting in a general election in which the two front-runners for the presidency bear very familiar names. 
+
+The incumbent, veteran left-wing leader LuÃ­z InÃ¡cio Lula da Silva, will be challenged by 11 candidates, the most prominent of whom is right-winger FlÃ¡vio Bolsonaro.
+
+In the last election four years ago, Lula narrowly defeated FlÃ¡vio Bolsonaro's father Jair, but the tumultuous aftermath of the election, which saw Jair Bolsonaro convicted of plotting a coup after thousands of his supporters stormed the Brazilian Congress, has had a lasting impact on the nation's political life and this election.
+
+Here's what you need to know. 
+
+At the launch of his campaign, FlÃ¡vio Bolsonaro screened a video in which an AI-generated image of his father endorsed his candidacy
+
+Jair Bolsonaro, the right-wing former army captain who governed Brazil from 2019 to 2023, will not be running for president in this election. 
+
+Not only is the 71-year-old barred from standing for office, he is also serving a 27-year sentence for plotting a coup after he lost the 2022 election to Lula.
+
+Due to recurrent health problems, he is currently under house arrest rather than in a cell, but he has had restrictions imposed on him prohibiting him from posting on social media or making public statements.
+
+Despite these restrictions, his shadow - and sometimes his moving and talking image - looms large over this election. 
+
+At the event where FlÃ¡vio Bolsonaro officially launched his presidential campaign, an AI-generated avatar of Jair Bolsonaro endorsed his son's candidacy.
+
+When pressed by the Supreme Court about the deepfake, Jair Bolsonaro's lawyers may have denied he had given his permission for its use, but there is nevertheless little doubt that FlÃ¡vio Bolsonaro has the backing of his father.
+
+While there are 12 candidates running for the presidency, there are only two who have reached double figures in the opinion polls, and they are LuÃ­z InÃ¡cio Lula da Silva and FlÃ¡vio Bolsonaro. 
+
+BBC Brasil's poll tracker shows them both hovering around the 40% mark, with Lula slightly ahead of Bolsonaro.
+
+The other 11 candidates are polling at 4% or less. 
+
+If none of the candidates gains 50% of valid votes in the first round on 4 October, the top two contenders will proceed to a run-off election on 25 October. 
+
+The opinion polls suggest a run-off is highly likely - but with a relatively high number of voters still undecided just days before the election, an outright win cannot be entirely ruled out. 
+
+BBC Brasil's poll aggregator suggests that at the end of September, 9% of voters were either still undecided, or planning to spoil their ballot, cast a blank ballot or not go to the polls at all. 
+
+Brazilians who are 16 years of age or older are entitled to vote and it is compulsory for those aged between 18 and 70 who are literate, with a fine imposed on those who do not cast a ballot. 
+
+Almost 160 million Brazilians are eligible to vote in this election and, with polls typically surveying just thousands of people, the end result can differ considerably from the indications given by surveys.
+
+In his speech to the United Nations General Assembly, Lula stressed his country's sovereignty
+
+Lula, the 80-year-old candidate for the left-wing Workers' Party, has been president three times already. 
+
+He served two consecutive terms - from January 2003 to December 2010 - and was widely praised for lifting millions out of poverty during this time with the help of a cash-transfer programme called Bolsa FamÃ­lia. 
+
+The former metalworker left office with record approval ratings of over 80%, but his party was later rocked by huge corruption scandals.
+
+Lula himself spent more than 18 months in prison between 2018 and 2019 after being convicted of corruption and money laundering, charges he has always denied.   
+
+Those convictions were annulled in 2021, leaving Lula free to run for the presidency in the 2022 election, in which he beat Jair Bolsonaro by 1.8 percentage points.
+
+When he started his third term in office, he vowed it would be his last, and yet his party endorsed him as their candidate again this year, even though he will turn 81 later this month. 
+
+There is no doubt he remains a towering figure in the left. But while his supporters described him ahead of the 2022 election as the "saviour of the Amazon", praising his commitment to protecting the rainforest, some environmentalists have been critical of some of his recent actions. 
+
+His support for exploratory oil drilling in offshore waters near the mouth of the Amazon in particular has drawn criticism. 
+
+Lula insists that he remains committed to eventually phasing out fossil fuels and argues that oil revenues are key to financing Brazil's transition to clean energy. 
+
+His government has also pointed to the reduction in deforestation in the Amazon - satellite data suggests the area deforested in the first half of 2026 was reduced to its lowest in the past decade - as proof that its policies were working.  
+
+During Lula's latest term in office, relations with his US counterpart Donald Trump have been rocky.
+
+Referring to what Trump has dubbed the "Donroe doctrine" - his administration's national security strategy which asserts that US dominance in the Western hemisphere should not be interfered with - Lula has insisted that "Brazil does not fit into anyone's backyard".
+
+In another thinly veiled reference to both his rival FlÃ¡vio Bolsonaro and those in the Trump administration who would like to see the right-wing candidate win, the Brazilian leader has also warned that he would not tolerate "foreign and local enemies of democracy" interfering with the polls. 
+
+FlÃ¡vio Bolsonaro has been courting his father's supporters
+
+FlÃ¡vio Bolsonaro, 45, is Jair Bolsonaro's eldest son and has been serving as a senator since 2019.
+
+The younger Bolsonaro is running for the right-wing Liberal Party (PL) and, while he is widely seen as less confrontational than his father, he is appealing to the followers of the older Bolsonaro by promising to broadly continue in his footsteps. 
+
+During his time in the Senate, the trained lawyer has advocated a tough-on-crime stance, calling for longer sentences and laxer gun laws, arguing that "decent citizens" should be able to defend themselves from criminals. 
+
+He has successfully lobbied for the US to declare Brazil-based criminal gangs Comando Vermelho (CV) and Primeiro Comando da Capital (PCC) as Foreign Terrorist Organizations, a move that was opposed by Lula. 
+
+The younger Bolsonaro has also courted evangelicals and the agricultural industry as part of his campaign.
+
+He has said that he will cut what he says are unnecessary regulations and "get the state off farmers' backs".
+
+Quizzed in an interview with Globo in August on whether he still believed - as he had said in 2019 - that climate change did not exist, he acknowledged that there had been "extreme climate events", but insisted that these events were "cyclical".
+
+FlÃ¡vio Bolsonaro has actively courted Trump and members of his administration by  portraying himself as a loyal ally during a meeting at the White House in May.
+
+More recently, he promised to join the US-led anti-crime alliance that the Trump administration has dubbed "Shield of the Americas", should he be elected. 
+
+Up until a few months ago, Brazilians told pollsters that crime and security were their main concerns.
+
+But in the weeks leading up to the election, a scandal involving a jailed banker accused of orchestrating one of Brazil's largest financial fraud cases has pushed corruption to the top of the list.
+
+The banker, Daniel Vorcaro, is well connected and has ties to many powerful people in Brazil - both on the political right and left.
+
+FlÃ¡vio Bolsonaro acknowledged asking Vorcaro to bankroll a biopic about his father after voice recordings emerged in which he could be heard asking for 134 million reais ($25.9m; Â£19.5m).
+
+Police have since then opened an investigation into FlÃ¡vio Bolsonaro for suspected corruption and money laundering over the financing of the film.
+
+But pollsters say Lula's campaign was also hurt by the Vorcaro scandal, after alleged links emerged between the disgraced banker and an ally of Lula, the Supreme Court Justice Alexandre de Moraes.
+
+Moraes is the man who presided over Jair Bolsonaro's trial and has made a number of subsequent rulings about the conditions of his detention. 
+
+A police report suggested that Vorcaro had made numerous calls and sent a number of messages to a phone number which officers say is linked to Moraes.
+
+The investigators say Vorcaro asked the person with whom he was communicating for help avoiding arrest.
+
+Moraes has denied any wrongdoing but these latest revelations mean that, in the crucial weeks before the election, attention shifted away from the allegations against FlÃ¡vio Bolsonaro to those against the Supreme Court justice.
+
+Lula has tried to distance himself from Moraes, saying that "no one is above the law", but his rival has already pounced on the allegations against the judge to make political hay. 
+
+"Voting for Lula means voting for Moraes," FlÃ¡vio Bolsonaro told his supporters at a rally, using the right's intense dislike of the judge to shore up his own support.
+
+Brazil's president confirms two US government officials were denied visas over election interference fears
+
+Trump says White House talks with Brazil's President Lula 'went very well'
+
+Trump accuses Brazil of 'witch hunt' against Bolsonaro
+
