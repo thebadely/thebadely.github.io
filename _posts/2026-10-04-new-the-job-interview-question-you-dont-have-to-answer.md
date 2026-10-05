@@ -1,0 +1,67 @@
+---
+layout: post
+title: "New: The job interview question you don't have to answer"
+date: 2026-10-04T23:22:07
+author: "badely"
+categories: [Business]
+tags: []
+excerpt: "Experts explain what you should do if you are asked for your current salary during a job interview."
+image: assets/images/1ae31bc877c1bcda0646773bcc19e71d.jpg
+---
+
+According to new developments, This video can not be played
+
+Watch: How much is your salary?
+
+Prepare all you like, but there is often still one job interview question that leaves you feeling uncomfortable.
+
+While employers in the UK are within their rights to ask you how much you get paid in your current role, applicants are not obliged to tell them.
+
+Recruiters have been encouraged to stop posing questions about salary history and, in the EU, new rules will prevent them doing so.
+
+But in the UK, there is still a chance of it coming up, so how best should you answer?
+
+Sometimes it feels like interviewers, and interviewees, tip-toe around the subject of money.
+
+But Louise Rudd, a senior adviser at the workplace advice and conciliation service Acas, says there are no regulations that prevent employers from asking interviewees about their current salary, or their salary expectations.
+
+She says employers, if they do want to know, should ask each applicant the same questions to ensure they are treated fairly.
+
+A few years ago, a campaign was launched urging employers to stop asking new recruits how much they were paid in their previous jobs. It had its own hashtag - #EndSalaryHistory.
+
+The Fawcett Society, which campaigns for women and gender equality, said that asking the question risked maintaining historic unfair differences in pay due to gender, race and disability inequality. 
+
+Rather than offering a salary based on skills, experience and performance, it meant employers rewarded an individual's perceived worth and negotiating skills instead, the society said.
+
+The Recruitment and Employment Confederation supported the move, urging recruiters not to ask.
+
+Employers in the EU will be banned from asking about salary history in new rules being rolled out across the bloc.
+
+But that's not featured in Cabinet Office plans in the UK, which instead concentrates on telling employers to publish salary information in job adverts.
+
+When you're going for a new job, you can reveal your current salary if you are happy to.
+
+Some people asked by BBC News out and about in London suggested they would reply with an inflated salary - so they get paid more in the next job. However, the risks of lying in an interview can far outweigh the possible reward.
+
+There are no requirements for you to disclose your salary if you don't want to.
+
+Rudd says some people might prefer to give their salary expectations, or outline their understanding of the salary range for the role.
+
+Recruitment firms often say applicants could instead focus on their skills and experience, so those are used as a measure of what they should be paid, not their salary history. 
+
+Shazia Ejaz, director of campaigns at the Recruitment and Employment Confederation, says jobseekers should approach questions about pay with "realism but also confidence". 
+
+"Candidates can focus on showcasing the value they bring, the benefits that matter most to them and to go to the interview knowing the market rate for the role," she says.
+
+"Jobseekers who have done their homework on salaries and can explain the contribution they will make are in the strongest position to secure the right package."
+
+What was your worst job interview? How did you handle it?
+
+You need Â£17,000 for a first home - here's how to save it
+
+Will you get Â£13,000 a year when you stop working? Here's how to check
+
+The Â£70 refund letter that isn't a scam
+
+Get our flagship newsletter with all the headlines you need to start the day. Sign up here.
+
