@@ -1,0 +1,173 @@
+---
+layout: post
+title: "Breaking: Europe is pouring billions into space. Can Glasgow's satellite industry keep up?"
+date: 2026-10-05T23:07:08
+author: "badely"
+categories: [News]
+tags: []
+excerpt: "The city's space boom raises questions about the role of the state in backing important industries."
+image: assets/images/683cccce90e29d4cf27f444a48202245.jpg
+---
+
+It has been recently reported that Europe is pouring billions into space. Can Glasgow's satellite industry keep up?
+
+In 2005, a young space engineer called Craig Clark moved back to his home city of Glasgow. He'd graduated from university just over a decade before, but the only jobs he could find were south of the border. Now Craig wanted to start a company of his own. He called it Clyde Space.
+
+I went to school not far from the River Clyde, where Glasgow's shipbuilding industry earned a global reputation for craftsmanship and engineering excellence. There was a saying that I grew up with: "The Clyde made Glasgow and Glasgow made the Clyde."
+
+What I hadn't realised until recently was that, in a different guise, that tradition is still alive. Two decades later, Glasgow is a European leader in building small satellites.
+
+Many of those built here are known as CubeSats. Their basic building block measures just 10cm by 10cm by 10cm - think of something about the size of a Rubik's Cube. They are much smaller, cheaper and quicker to develop than the huge contraptions that you might picture when you think of satellites.
+
+CubeSats - like this one, pictured in the offices of Spire Global in Glasgow - can be used for anything from weather forecasting to global positioning
+
+But crucially, they are modular and can be stacked together, then packed with cameras, sensors, communications equipment or other technology depending on their purpose.
+
+And their size belies their significance. The data collected by satellites of all kinds is increasingly woven into everyday life. It helps us communicate and navigate, track ships and transport goods, monitor forests and crops, manage energy networks and understand changes to our climate.
+
+For governments, that information can help inform decisions and respond to emergencies. As satellites have become more capable, space has become increasingly important.
+
+More than two decades after the first satellite company was established there, the Scottish government says more small satellites are built in Glasgow than anywhere else in Europe.
+
+Across Scotland, the wider space industry generated Â£335m in income in 2022-23 - up 69% in five years. Excluding traditional satellite television broadcasting, it employed 2,811 people, an increase of 81% over the same period.
+
+But elsewhere in Europe, governments are committing big money to their own satellite industries.
+
+Could this take investment and jobs away from Glasgow? And if so, what - if anything - should the Scottish and UK governments do about it?
+
+Perhaps the most surprising thing about Glasgow's success in the space industry is that it wasn't planned.
+
+One of the catalysts was Craig Clark's Clyde Space. The company specialised in CubeSats at just the right moment, a few years after it launched, as smaller and cheaper spacecraft were taking off, and would go on to build Scotland's first satellite, the UKube-1.
+
+Crucially, the tech was built in partnership with the University of Strathclyde - which provided skills and research, as well as a ready supply of engineers.
+
+Other companies followed, including Craft Prospect and Alba Orbital. Expertise grew and a new space cluster began to form. American satellite company Spire chose Glasgow for its European base in 2015. Smaller businesses developed, while established engineering and technology firms became part of the supply chain.
+
+Glasgow: Satellite City
+
+Glasgow has transformed itself into Europe's largest producer of small satellites - but some of the sector's leading figures say Glasgow's position is no longer secure.
+
+Listen now on BBC Sounds.
+
+"Companies started moving to Glasgow because they could see that it was possible to do it here, and there was an ecosystem that was starting to grow," says Andrew Strain, chief technology officer at AAC Clyde Space - the company formed after Clyde Space was acquired by Swedish firm AAC Microtec, although Glasgow remains the group's main satellite manufacturing site.
+
+Soon Glasgow was host to an "entire small satellite value chain", from components and satellite manufacturing, through to launch, spaceports and ground stations, according to Daniel Smith, founder of space marketing firm AstroAgency and the Scottish government's trade and investment envoy for space.
+
+There are wider benefits too. According to a review commissioned by Space Scotland, space manufacturing alone accounted for more than 1,000 Scottish jobs in 2022-23. The wider industry generated Â£202m for the Scottish economy.
+
+And as the industry grew, so did the pool of knowledge. There are now more than 100 people working across space-related activity at the University of Strathclyde, with the subject now one of the institution's strategic priorities, according to Prof Malcolm Macdonald, its chair of applied space technology. The university works directly with commercial space companies on research and tech development.
+
+Macdonald recalls that when he graduated, there was basically no local space industry for him to join. Now, "when our graduates leave the university, they will go and work in the local space sector because it is now here in Glasgow for them", he says.
+
+But what's significant, Macdonald says, is that Glasgow's satellite industry wasn't something the government set out to establish. Instead, the process was "largely organic", says Smith.
+
+By any measure it's a success story. But there are warnings about competition from overseas.
+
+"It's not necessarily that we're going backwards," Macdonald tells me. "But other people are catching up."
+
+Bavaria is emerging as a significant European hub for aerospace and defence technology. Germany's Defence Ministry says it plans to invest around â¬35bn (Â£30bn) in military space capabilities in the coming years, including more than 100 encrypted communications satellites.
+
+For Macdonald, that kind of spending is changing Europe's space industry. Against a backdrop of the war in Ukraine and wider geopolitical uncertainty, governments are no longer simply supporting research and innovation. Increasingly, they are becoming major customers rather than just investors.
+
+Will Lecky, co-founder and director of know.space, the space economics consultancy, says that matters because the global playing field is not level. He says UK public space funding falls well behind countries such as France and Germany.
+
+"It's certainly a risk to Glasgow and the wider UK space sector that investment will follow the money and lead to longer term competitive disadvantage as activity flows elsewhere," he says.
+
+The Scottish space company Skyrora is celebrating after it says it successfully tested a "hot fire" of its rocket last month
+
+Meanwhile, Finland's aerospace firm ICEYE specialises in synthetic aperture radar (SAR), satellites, which can produce images of the Earth's surface through cloud and darkness. Macdonald says these have been used in the war in Ukraine, where satellite imagery can provide intelligence - for example, spotting a Russian vessel in a Crimean port - when conventional optical cameras cannot.
+
+In June, ICEYE announced a funding round worth more than â¬1bn, valuing the company at more than â¬10bn. The Finnish state has also increased its stake and now owns around 12% of the company.
+
+Finland's Minister for European Affairs, Joakim Strand, said the geopolitical situation had highlighted the importance of domestic ownership in what he called a "key strategic sector".
+
+Governments want guaranteed access to satellite communications, especially when their country is facing a crisis. Some want the satellites - and the ability to build them - within their own borders.
+
+That can have consequences for Glasgow.
+
+"The recent increases in space spending elsewhere in Europe matter," says Gabriele Piazza, an economist at the London School of Economics who researches government procurement of advanced technology.
+
+Space is not a normal market. Where the contracts go can help determine where companies invest, where engineers work and where expertise builds.
+
+"Since capabilities build on themselves, firms with a large customer at home gain an advantage that lasts," Piazza adds.
+
+Meanwhile, as well as Clyde Space's 2018 acquisition by AAC Microtec, Glasgow-founded Alba Orbital has moved its headquarters to the US, while retaining a Scottish base and team. Spire has expanded its manufacturing operation into Munich.
+
+The Scottish government maintains that Glasgow still builds more small satellites than anywhere else in Europe. So, this is not an industry in decline.
+
+But the bigger challenge, Smith says, is helping companies that start in Scotland to scale here.
+
+"I wouldn't want it to be overly negative," says Macdonald. "It's more just like there are warning lights flashing that other parts of Europe are investing much more aggressively, and moving much more quickly, than we have."
+
+Satellite camera manufacturer Simera Sense announced this year that it was opening a new production facility in the city, creating 20 highly skilled jobs. The firm, which has premises in South Africa, Belgium and France, will open a high-value electronics assembly lab and office at EastWorks in Dalmarnock.
+
+That suggests something more nuanced than an exodus. Glasgow's concentration of universities, engineers and specialist suppliers, built up over two decades, would be difficult to replicate elsewhere.
+
+Plus, some comparisons with overseas competitors are not exact. ICEYE is just one specialist company focused on radar satellites, while Glasgow is an entire manufacturing cluster producing different kinds of small satellites. Spire expanding in Munich does not necessarily mean it is retreating from Glasgow.
+
+Smith doesn't think the answer is simply trying to outspend competitors: "We can grow alongside them," he says.
+
+Instead, he argues Scotland should focus on what the industry actually needs â filling gaps and helping space companies find customers in areas such as energy, transport and healthcare.
+
+With a successful domestic industry facing competition from abroad, you might anticipate calls for the government to provide financial support.
+
+But Lecky cautions against that. He argues Glasgow's small satellite industry originally grew partly because of a lack of government support, as part of the commercially-focused "newspace" revolution.
+
+"We shouldn't jump to government support as being the answer - it's critical to keep this commercial-minded attitude," he says.
+
+"If you offered most entrepreneurs a choice between a grant, with significant paperwork, milestone payments and continuous scrutiny, or a paying customer, I suspect they would always choose the customer," he says.
+
+And increasingly, governments are becoming that customer anyway.
+
+For Smith, government contracts can do something grants cannot - give young companies revenue, a customer and a track record they can use to win business overseas.
+
+Glaswegian engineers say the city will soon have an "end-to-end" space sector
+
+Piazza says there is an economic case for thinking about procurement too. Building satellites creates knowledge that can spread far beyond the company itself. Engineers move between employers. Suppliers acquire new skills. Ideas become new products - sometimes in entirely different industries.
+
+"Often, tomorrow's industries grow out of today's," he says. "The teams and suppliers building satellites now are the ones able to develop the next generation of a related technology, and once they disperse, they are very hard to reassemble."
+
+But there is a cost.
+
+Piazza points out that money spent supporting one industry cannot be spent on hospitals or schools. Governments can be poor at picking industries. And if everyone subsidises, nobody necessarily gains ground.
+
+That is one reason procurement can make sense. The government buys something it needs anyway. The company gets a customer. Not just a grant.
+
+But that raises a bigger question, made more important by the Ukraine war: what does the UK actually need to be able to do for itself?
+
+Satellites provide communications, navigation and intelligence during conflict. Beyond defence, satellite services underpin parts of transport, energy, telecommunications and emergency response. Governments therefore have to decide which capabilities they are comfortable buying from overseas providers or allies.
+
+Piazza says there can be a strategic case for keeping capabilities that are critical and difficult to replace. He describes it as a form of insurance. But keeping capability at home can mean higher costs, smaller production runs and duplicating what allies already do.
+
+There is evidence that some public investment in space produces significant economic returns. Every Â£1 of UK investment through the European Space Agency generated Â£7.49 in direct economic benefit, an independent evaluation commissioned by the UK Space Agency estimated.
+
+The UK Space Agency also says its work helped catalyse Â£2.2bn in investment and revenue for the UK space sector in 2024-25. But these figures relate to the whole of the UK, not Glasgow specifically.
+
+The more important question may be where the valuable parts of the industry - its people, intellectual property, research and manufacturing - ultimately end up.
+
+"The risk is not closure," says Piazza. "It is that the next phase of growth follows the contracts elsewhere."
+
+Scotland also has another potential addition on the horizon: SaxaVord Spaceport in Shetland.
+
+When parenting advice becomes too much
+
+China has cracked down on AI relationships. Is it ahead of the game?
+
+My hometown shows that high streets have to change or die
+
+The vision of a fully integrated, "end-to-end" space sector is moving closer to reality. Although the infrastructure is ready, actual launch campaigns have experienced technical delays.
+
+So, success is not guaranteed.
+
+"We are in a great position right now," says Strain. "But if we get complacent, then we can fall behind again because it's moving very, very fast."
+
+Glasgow's shipyards once made the city synonymous with building things for the world. Its space industry has done something similar - almost by accident.
+
+The question now is not whether Glasgow can build a successful satellite industry. It already has.
+
+It is whether the next phase of that success is built here too.
+
+BBC InDepth is the home on the website and app for the best analysis, with fresh perspectives that challenge assumptions and deep reporting on the biggest issues of the day. Emma Barnett and John Simpson bring their pick of the most thought-provoking deep reads and analysis, every Saturday. Sign up for the newsletter here
+
+Are you personally affected by the issues raised in this story?
+
