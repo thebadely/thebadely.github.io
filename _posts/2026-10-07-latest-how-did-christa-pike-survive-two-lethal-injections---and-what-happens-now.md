@@ -1,0 +1,123 @@
+---
+layout: post
+title: "Latest: How did Christa Pike survive two lethal injections - and what happens now?"
+date: 2026-10-07T10:01:47
+author: "badely"
+categories: [News]
+tags: []
+excerpt: "The convicted killer of Colleen Slemmer is said to be awake and speaking in hospital in Tennessee after an execution attempt."
+image: assets/images/3c0cbc1c822376ee36cd4e6d457de325.jpg
+---
+
+It has been recently reported that This video can not be played
+
+Watch: What we know about Christa Pikeâs "unprecedented" recovery after failed execution
+
+Convicted murderer Christa Pike has woken up and begun speaking from her hospital bed almost a week after authorities in the US state of Tennessee botched her execution, her lawyers said.
+
+Pike, 50, was sent to hospital after surviving two attempts to execute her via lethal injection for the 1995 murder of a 19-year-old she met at a summer camp for troubled teens.
+
+An independent review of what went wrong in the Nashville execution chamber on 30 September has been ordered by Tennessee Governor Bill Lee.
+
+He has also halted executions in the state for the rest of the year.
+
+Warning: This article contains details that readers may find distressing
+
+The Tennessee Department of Correction is yet to say why the execution did not go as planned, though it has defended the method it used.
+
+Dr Joel Zivot, an anaesthesiologist advising Pike's defence team, says it was not the case that Pike had some "special immunity" but suggested it was simply that not enough of the drug pentobarbital reached her bloodstream to kill her.
+
+Pike was injected with a second dose of the drug, according to the prison authorities' protocol, after the first did not kill her.
+
+In interviews with the BBC, Zivot has suggested the pentobarbital was more likely to have spread across the tissue under Pike's skin than to have entered her bloodstream.
+
+"Most of the pentobarbital, instead of circulating in her body, ended up in her arms, and that's how she lived," Zivot said.
+
+Pike's medical condition of thrombocytosis, a blood-clotting condition, was highlighted in advance by Pike's legal team as an additional issue that could scupper the process. Before the attempted execution, they had filed a legal case challenging the injection protocol.
+
+If clots of blood formed at the injection site as a result of thrombocytosis, they would potentially have blocked the chemical from entering her veins, the lawyers warned.
+
+Listen: America's global hunt for execution drugs
+
+I've seen nearly 500 executions - but never one like Christa Pike's
+
+I interviewed Christa Pike 20 years ago - I can't stop thinking about her
+
+As the attempted execution took place, prison officials used at least seven needles on Pike during their efforts to establish intravenous (IV) lines, Pike's lawyers said afterwards. The woman could simultaneously be heard "crying, whimpering, and breathing loudly".
+
+May Martinez, the mother of Colleen Slemmer who was murdered by Pike and her then-boyfriend, told NBC the failed execution had been "a mess".
+
+Colleen Slemmer was tortured and brutally killed by Pike and her then-boyfriend
+
+The Tennessee Department of Correction has defended the method it used, saying "the protocol does not allow for additional procedures beyond what was carried out".
+
+The state protocol does not clearly specify what should happen if an inmate remains alive after a second dose, according to the AP news agency.
+
+After it became clear that Pike was not going to die from the two doses, she was taken to hospital for life-saving treatment. States have a legal obligation not to deny medical treatment to prisoners.
+
+Pentobarbital is a potent sedative that slows down the body, including the nervous system. Doctors sometimes use it as a treatment for certain conditions, but in high doses it can also be used as a lethal injection to cause death.
+
+Its use in lethal injections came under renewed scrutiny last year after a US federal government review during the Biden administration raised concerns about the drug's potential for "unnecessary pain and suffering".
+
+The Biden government banned its use in federal executions, but that did not bind individual states such as Tennessee, which can choose their own methods.
+
+In recent years, states have found some drugs needed for lethal injections harder to come by, because pharmaceutical companies have opposed the use of their products for such purposes.
+
+The Tennessee correction department has not specifically addressed an allegation from Pike's legal team that the pentobarbital it used was "degraded".
+
+But the department said the lethal injection chemical had "consistently been effective".
+
+The full picture of Pike's current physical condition is unknown.
+
+Although she was said to be awake and speaking in hospital as of 6 October, it is unclear whether she has any long-term health defects. Medical staff have been working to clear the drug from her body, a process that they expected to take about a week. She has been removed from a ventilator.
+
+Zivot said Pike had been able to communicate in a "basic way", including by giving her name and making an incorrect attempt to guess the date.
+
+Meanwhile she is reportedly handcuffed to her bed.
+
+This video can not be played
+
+Watch: Witnesses recount Christa Pike's failed execution attempt
+
+There is then the question of what happens to Pike next.
+
+Authorities are yet to say whether they will try again to execute Pike, though executions in the state have been paused for the rest of the year. Meanwhile, it has been announced that the state's Department of Correction Commissioner Frank Strada is stepping down.
+
+Pike's lawyers have made repeated calls for Lee, the state governor, to commute her sentence to the lesser punishment of life in prison without the possibility of parole.
+
+Historically, the US Supreme Court has not halted second attempts at executions, said John Mills, a lawyer who works with inmates sentenced to death.
+
+In 2024, it allowed Alabama to proceed with a second execution of Kenneth Eugene Smith, using an experimental oxygen deprivation method, after their plan to kill him by lethal injection failed two years earlier.
+
+The Supreme Court has already been involved in Pike's case: it allowed the lethal injections to go ahead after a legal battle.
+
+While there is a lengthy history of botched executions across the US, Pike is believed to be the only person to have survived after receiving a lethal injection.
+
+Deborah Denno, a criminologist and professor at Fordham Law School, said she was "absolutely astonished" that Pike is conscious and speaking.
+
+There had been seven previous cases in which prisoners survived executions, but in those cases, executioners were not able to inject anything into the inmates' veins, Denno told the BBC.
+
+Pike "is the only person for whom some kind of toxin has been injected", she said.
+
+The attempted execution of Pike was not the first in Tennessee in 2026 that did not go to plan.
+
+The execution of Tony Carruthers, who was convicted of kidnapping and murdering three people in 1994, was postponed in May after staff were unable to find a vein for a lethal injection. He was granted a year's reprieve by the governor.
+
+In 2022, more than a third of executions across the US were botched or highly problematic, according to the Death Penalty Information Center, which does not take an ethical stance on the penalty.
+
+Pike, now 50, was sentenced to death in 1996 for the murder a year earlier of 19-year-old Colleen Slemmer, which was perpetrated along with her then-boyfriend, Tadaryl Shipp.
+
+Pike killed Slemmer at a camp for troubled teens, after accusing Slemmer of insulting her and attempting to steal Shipp from her.
+
+Two other residents at the camp later testified that Pike had bragged about the murder and showed them a piece of Slemmer's skull.
+
+An inverted pentagram - which is associated with satanic groups - was carved into Colleen's chest during the murder. Pike has denied carving the symbol herself.
+
+Shipp was given a life sentence with the possibility of parole and he remains in prison. He was spared the death penalty for his part in the attack because he was not yet legally an adult at the time.
+
+Correction 1 October: This article originally referred to the inmate executed by the state of Louisiana in 1947 as Willie Smith. We have amended the article to make clear that his name was Willie Francis.
+
+Pike's murder accomplice, Tadaryl Shipp, was spared capital punishment
+
+Why the death penalty is on the rise in US
+
