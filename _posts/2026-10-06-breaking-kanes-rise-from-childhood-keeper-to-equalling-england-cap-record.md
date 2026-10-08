@@ -1,0 +1,159 @@
+---
+layout: post
+title: "Breaking: Kane's rise from childhood keeper to equalling England cap record"
+date: 2026-10-06T19:15:12
+author: "badely"
+categories: [Sports]
+tags: []
+excerpt: "Harry Kane reaches another significant England milestone by equalling Peter Shilton's record as the most-capped Three Lions player that he has held fo"
+image: assets/images/b6c7d244522712087b810ea04ff05f18.jpg
+---
+
+It has been recently reported that Harry Kane has played in all four of England's Nations League games during this international break
+
+Harry Kane has reached another significant England milestone by equalling Peter Shilton's 36-year-old record as the most-capped Three Lions player.
+
+The Bayern Munich striker made his 125th appearance for the national team against the Czech Republic in the Nations League on Tuesday.
+
+Kane is already his country's record scorer with 89 goals in 124 appearances in a full international career he started by opening his account 79 seconds into his debut.
+
+Goalkeeper Shilton congratulated Kane for equalling his record, writing on social media: "You will go on and beat it in November I am sure of that, and maybe go on and set a record that may never be beaten.
+
+"You're still going strong Harry, still playing well and scoring goals. I know how much dedication and hard work you put into achieving this, especially as a striker as I think that is probably the hardest position to play with goalkeeper just behind it.
+
+"You've been a great captain and will be in the future."
+
+BBC Sport takes a look at the origins story of the England captain.
+
+England's greatest international? Kane is now a serious contender
+
+Harry Kane with older brother Charlie and, right, with David Beckham and now wife Katie Goodland
+
+When a six-year-old Harry Kane arrived for trials with Ridgeway Rovers in 1999, the youth side - who a generation earlier had produced David Beckham - thought they had found themselves a new goalkeeper.
+
+Dave Bricknell, former Ridgeway Rovers coach: "We're doing a little shooting session, and I ask for a lad who can go in goal.
+
+"This little boy puts his hand up and says: 'I'll go in goal.' We give him some gloves, and he performs heroics - makes some fantastic saves. He's tipping it round the post, tipping a couple over the bar.
+
+"I'm thinking this is great, we've got a goalkeeper. And then this woman came up to me and said he's better on the pitch.
+
+"We put him on pitch and he smacked goals in left, right and centre. So he ends up being our centre-forward."
+
+Kane and his Ridgeway Rovers team-mates' goalscoring exploits were recorded in a notebook
+
+Kane's prolific form for Ridgeway Rovers and his Waltham Forest district side caught the attention of professional scouts. Arsenal initially snapped up the youngster but decided not to keep him, while Watford also passed up the opportunity to sign Kane.
+
+Trevor Bailey, Kane's manager at Waltham Forest: "Harry could have done nothing all game, but if that chance came up it was in the onion bag.
+
+"He was always on the move up front. When he got a chance, guaranteed four out of five he was going to score or set someone up."
+
+Alex Welsh, former academy coach at Arsenal: "I first met Harry in the academy and he was a very competent goalkeeper, but his real desire was to score goals.
+
+"I am absolutely convinced that is the reason why he is such a clinical striker - he intuitively knows what the goalkeeper doesn't like. He shoots early when the goalkeeper's not set."
+
+Bricknell: "I believe he was second top-scorer at Arsenal behind Benik Afobe, and then for some reason they decided at 11 years of age that they didn't want him any more."
+
+PE teacher Mark Leadon said Kane was a "real team player" and "wasn't one to keep the ball if a pass was on"
+
+Kane attended Larkswood Primary Academy before moving to Chingford Foundation School, where he was inevitably the star of the football team. But, as a dedicated student, Kane impressed his teachers across the board.
+
+Mark Leadon, Kane's PE teacher: "Aged 11, Harry was technically very gifted, with a great first touch, and a very clever player. He always knew where to go, right from an early stage.
+
+"He was also a very good cricketer - he opened the bowling from year seven to 10 and batted at four or five. But he loved football. He was never a prima donna, and he would always put a shift in. 
+
+"What came through more than anything else was his determination to succeed. That work ethic was clear."
+
+Luke Robinson, Kane's childhood friend and team-mate: "The only thing on his mind was football.
+
+"We used to have a laugh, a couple of games of Fifa, but he was always driven. He'd always keep himself to himself.
+
+"He loved David Beckham, he came in with the Mohican, everyone was laughing but he loved it. He loved football, 24/7, he lived and breathed football."
+
+This video can not be played
+
+Kane's old coach: He always had 'thirst' for goalscoring
+
+It was Tottenham Hotspur who offered Kane hope after his earlier disappointments, but the future England captain was by no means the pick of the bunch for his age group. 
+
+Kane's desire to learn and improve endeared him to the Tottenham academy staff and he signed scholarship terms with the club on his 16th birthday in July 2009.
+
+Alex Inglethorpe, former Tottenham youth-team coach: "When I joined Spurs as under-18 coach, Harry was 13.
+
+"I'd like to say he was the gold medallist in the group and we'd all spotted he was going to be the fantastic player, but I'd be lying. He probably wasn't even on the podium.
+
+"If there was something that endeared him to you it was that he was very, very low maintenance. It became fairly evident when Harry became a scholar he was someone who could finish. 
+
+"He was wonderfully demanding to coach because he always wanted to stay out and do extra. That obsession to improve is undoubtedly his greatest strength.
+
+"It was probably around 16 he started having an impact on the youth team. We trusted him to come off the bench and have an impact - anywhere from right wing, number 10, centre-forward, sometimes in midfield."
+
+Kane (centre) scored five goals during an 18-game loan spell at Leyton Orient in 2011
+
+Kane went to League One Leyton Orient - making his professional debut in January 2011 at Rochdale, coming on for veteran striker Scott McGleish. Kane would score five times in nine starts.
+
+McGleish: "Harry was not like other Premier League players, where you feel they're going to come in 'Billy Big Time'. He wanted the experience of learning what I call men's football.
+
+"From the word go he was ready to fight for his place. In training, he was willing to just knuckle down and work hard.
+
+"You could see in training and subsequently the matches he had ability and a desire to go further, but you're still looking like a young 17-year-old: very slight, still needing to physically develop, not the quickest but technically excellent."
+
+After a few first-team games for Spurs, he went on loan in January 2012 to Championship strugglers Millwall. Kane's nine goals helped save Kenny Jackett's side from relegation.
+
+Former Millwall defender Alan Dunne: "I've seen a lot of players come to the Den and freeze, because within five minutes they're being called names they've never heard before and they can't cope with that pressure.
+
+"But it didn't faze him - he was a focused lad, he was confident in his ability."
+
+Former Tottenham manager Tim Sherwood: "I used to watch Harry a lot at Millwall, and it was an intimidating atmosphere. I remember overhearing one of our scouts come and talk to Harry Redknapp - who was Spurs manager at the time - and say: 'We need to get Harry Kane out of Millwall, it's no good for him there.'
+
+"I went straight in and said: 'This is the perfect atmosphere for him."
+
+After making his Premier League debut for Tottenham in August 2012, Kane was sent on loan again. The 19-year-old only made three appearances in the top flight for Norwich because of injury, and then had a loan spell at Leicester where he and future England team-mate Jamie Vardy struggled for regular starts.
+
+Kane (centre, pictured playing against Hearts in 2011) joined Tottenham as an 11-year-old and signed professional terms on his 16th birthday in 2009
+
+After four loan spells in three seasons, Kane spent the entire 2013-14 campaign with Tottenham. But it was not until April, after Andre Villas-Boas had been sacked and replaced by Sherwood, that a 20-year-old Kane was handed his first Premier League start for Spurs, scoring his first top-flight goal in the process against Sunderland and also netting in the following two games against West Brom and Fulham.
+
+Sherwood: "It didn't feel a gamble at all to give Harry that start. It was almost overdue to be honest.
+
+"Roberto Soldado was in front of him in the team, and nobody wanted Roberto to do well more than me - but every single day in training Harry was outperforming him. He didn't let me down.
+
+"Harry wanted to get to the top, and nothing was going to stop him achieving that because of the ability, desire and mentality he possesses.
+
+"I was the biggest believer Harry Kane ever had, because I used to think he was a mix between Teddy Sheringham and Alan Shearer."
+
+Kane became Spurs' all-time top scorer on 5 February 2023, passing Jimmy Greaves' old mark of 266
+
+Kane never looked back after scoring 21 top-flight goals the following season - and earning his first England call-up in March 2015.
+
+He ended up as the club's all-time top scorer with 280 goals in 435 appearances - and three Premier League Golden Boots, but no trophies
+
+Then Manchester City boss Pep Guardiola, who tried to sign him, said in 2023: "What an exceptional player â the numbers and, more than the goals, the quality. Harry Kane remains one of the best strikers I have ever seen in my life."
+
+Former Spurs team-mate Son Heung-min: "Leader, brother, legend.
+
+"Since day one it has been a joy to play by your side. So many memories, amazing games and incredible goals together."
+
+Then Tottenham boss Ange Postecoglou: "Harry was brilliant throughout. You want to work with the best players and he is a hell of a striker and I thought he could help me.
+
+"He has left an indelible mark at this football club, will go down as one of the greats."
+
+Harry Kane won the German double this season
+
+The only thing missing from Kane's career CV was trophies - and in 2023 he joined German side Bayern Munich, where he has continued to impress.
+
+He has scored 152 goals in 154 games for the club, won the Bundesliga Golden Boot three times and won two German titles and a German Cup.
+
+Former Bayern defender Lothaur Matthaus: "Kane has reinvented the centre-forward game, as Manuel Neuer did with goalkeepers.
+
+"I don't see a better striker in the world right now. Not just because of his goals, but because of his versatility and the positions he plays.
+
+"Kane also demonstrates qualities as a passer, dribbler, and tackler. He is simultaneously a goalscorer, playmaker, box-to-box player, and tackler."
+
+Ex-England striker Alan Shearer, speaking this summer: "To me he looks fitter and stronger than before.
+
+"He's come into this World Cup off the back of a brilliant campaign for Bayern Munich and looks very sharp and very confident - as you would do after scoring 61 goals in one season. Those numbers are just ridiculous."
+
+BBC pundit Chris Sutton: "He has to be in that bracket when you talk about the world's best. Harry Kane has instincts that are simply uncoachable."
+
+Some of these interviews were first published in 2016.
+

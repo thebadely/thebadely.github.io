@@ -1,0 +1,53 @@
+---
+layout: post
+title: "Big News: Fuel prices added to Google Maps as petrol and diesel costs soar"
+date: 2026-10-07T23:50:29
+author: "badely"
+categories: [Technology]
+tags: []
+excerpt: "A search for forecourts will now display their pricing, using the government's Fuel Finder scheme."
+image: assets/images/dcb9fd8a99406256637b7014125ebf5b.jpg
+---
+
+Here’s what you need to know: The prices will be displayed when people search for fuel, as well as listed underneath descriptions of forecourts
+
+Google Maps will now show fuel prices to help motorists find cheaper petrol and diesel in the UK as costs continue to soar.
+
+From Thursday, a search for forecourts on the app will display their locations as well as their pricing, using data supplied via the government's Fuel Finder scheme.
+
+It is a legal requirement for UK forecourts to add their prices to Fuel Finder within 30 minutes of changing them.
+
+It comes days after the price of diesel topped Â£2 per litre for the first time, which RAC policy head Simon Williams described as "a price threshold no one wanted to cross".
+
+There are multiple apps dedicated to finding the cheapest fuel around, but Google Maps is used by 77% of Britain's adult population for general navigation, according to Ofcom.
+
+Fuel costs around the world have been dramatically impacted by the US war with Iran and Russia's war with Ukraine.
+
+Diesel price has since fallen by 2p but the AA says an average 55 litre tank of diesel still costs around Â£110, with the petrol equivalent coming to around Â£96.
+
+The feature is already part of the navigation app Waze, which is used by around 2 million people in the UK.
+
+Apple Maps does not show the price of fuel, although some third-party apps can link to its maps on iPhones.
+
+Some experts say Fuel Finder is not entirely reliable.
+
+"At the moment, we still have to supplement the Government's Fuel Finder feed with other data sources because, on its own, it does not provide the level of coverage and accuracy needed to deliver a complete and reliable service to motorists," said Clare Lafferty, director at the price comparison site PetrolPrices.
+
+"There are still sites that have not registered with the scheme at all, alongside sites that have registered but are not consistently updating their prices within the required timeframe."
+
+She said the firm identified 200 forecourts in September which it did not believe had updated its diesel prices in time.
+
+Sarah-Jayne Williams, director of product partnerships for Google Maps and Waze, said the firm would check the data independently, and would not display prices it believed were not up-to-date.
+
+"Accuracy is very important, so we will still show the petrol station and where it is, but you'll only see a price if we have high confidence that it's the right price," she said.
+
+The Petrol Retailers Association, which represents thousands of UK forecourts and petrol retailers, said its members were complying.
+
+Fuel Finder was launched in February by former chancellor Rachel Reeves, who said at the time it could save households Â£40 per year.
+
+Why UK diesel prices have breached the Â£2 per litre mark
+
+G7 to release millions of barrels of oil and diesel after Trump threat
+
+Sign up for our Tech Decoded newsletter to follow the world's top tech stories and trends. Outside the UK? Sign up here.
+

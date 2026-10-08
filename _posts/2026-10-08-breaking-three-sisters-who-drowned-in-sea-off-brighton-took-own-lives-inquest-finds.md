@@ -1,0 +1,61 @@
+---
+layout: post
+title: "Breaking: Three sisters who drowned in sea off Brighton took own lives, inquest finds"
+date: 2026-10-08T12:04:06
+author: "badely"
+categories: [News]
+tags: []
+excerpt: "The bodies of Jane Adetoro, Christina Walters and Rebecca Walters were pulled from the sea in May."
+image: assets/images/ac4181aa5109b38ea1a67f7f153310aa.jpg
+---
+
+It has been recently reported that The three sisters, pictured here as teenagers with their father, died in the sea. From left to right, Jane Adetoro, Joseph, Christina Walters and Rebecca Walters
+
+Three sisters who drowned in the sea off Brighton took their own lives, a coroner has ruled.
+
+Jane Adetoro, 36, Christina Walters, 32, and Rebecca Walters, 31, had been living "very secluded lives" following the death of their mother, who drowned in 2010, senior coroner Penelope Schofield said.
+
+On 11 May, the women - who had all been living together in Greenford, London - visited an area of Birmingham close to where their mother died before travelling the next day to Brighton beach, where they drowned in adverse sea conditions in the early hours of 13 May. The coroner said they could not swim.
+
+Their father Joseph Jacobsen said it was heartbreaking to lose "all three of my precious daughters".
+
+He was among family members who followed proceedings via video link.
+
+In an emotional statement read out on his behalf, he said he watched his daughters grow from little girls to beautiful, intelligent women "with a special place in my heart".
+
+He said: "There are no words that can adequately express the pain of losing a child. 
+
+"To lose all three of my precious daughters is a heartbreak beyond anything I could ever have imagined."
+
+He could not understand why his daughters' lives ended so suddenly, and hoped they were reunited with their mother "in God's eternal care", he added.
+
+The bodies of the three sisters were recovered off Brighton beach in the early hours of 13 May
+
+The coroner told the court: "These three sisters lived very secluded lives, they were incredibly private, we don't know why they took this course of action or indeed why they chose to do it in Brighton.
+
+"It is not for the court to speculate and sadly these reasons may never be known."
+
+The hearing was told the sisters left their home in London and arrived in Brighton together by taxi at 22:21 BST on 12 May. They were last seen alive at 02:42 on 13 May.
+
+Police searched Christina's laptop and found 227 references to water and 179 references to suicide.
+
+The coroner said Christina had been experiencing anxiety and depression since the death of her mother.
+
+Rebecca's medical records showed "nothing of note" and Jane was not registered with a doctor, Det Ch Insp Mark Cullimore told the court.
+
+A previous inquest into their mother's death had found her cause of death was drowning.
+
+Postmortem tests revealed toxicology results for all three sisters were negative for drugs and alcohol. There was no evidence to suggest they had been subject to violence.
+
+If you are experiencing emotional stress, help and support is available via the BBC Action Line here.
+
+Follow BBC Sussex on Facebook, external, X, external, and Instagram, external and listen to BBC Radio Sussex on Sounds. Send your story ideas to southeasttoday@bbc.co.uk , external or WhatsApp us on 08081 002250.
+
+Women who died in sea off Brighton were sisters
+
+Inquest opens for three sisters who died in sea
+
+Bodies of three young women pulled from sea off Brighton
+
+Sussex Police
+
