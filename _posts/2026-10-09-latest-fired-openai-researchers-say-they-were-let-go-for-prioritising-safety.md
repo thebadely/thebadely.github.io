@@ -1,0 +1,49 @@
+---
+layout: post
+title: "Latest: Fired OpenAI researchers say they were let go for 'prioritising safety'"
+date: 2026-10-09T09:30:49
+author: "badely"
+categories: [Technology]
+tags: []
+excerpt: "The AI firm instead claims the researchers were fired for mishandling sensitive information."
+image: assets/images/dd82024488683aa5aca94e4533945354.jpg
+---
+
+According to new developments, Three former OpenAI researchers sacked for allegedly mishandling information claim they were instead let go because they raised safety concerns at the tech firm.
+
+"I believe we were fired for prioritising safety over the near-term interests of OpenAI as a corporation," Mikita Balesni posted on X, external alongside an open letter to the ChatGPT-maker, written with fellow ex-employees.
+
+On 2 October, a spokesperson for the AI firm told the BBC its investigation "confirmed that these individuals mishandled sensitive information outside established company procedures".
+
+OpenAI repeated these claims, external on Friday morning in a note from research leaders.
+
+"We want to be very clear that these decisions were not about raising safety concerns or speaking out," the note said. 
+
+"Our internal investigation uncovered a significant breach of trust beyond what's outlined in the letter they published and we stand by the decision to not continue their employment."
+
+The dismissals come amid a growing debate over AI safety and the potential risks advanced AI systems could pose to society.
+
+The joint letter to OpenAI leadership was written by Balesni, Tomek Korbak and Jasmine Wang, who say they were all, until recently, safety or alignment employees at the company.
+
+Alignment is the practice of building human ethical ideas and principles into the technology. In other words, it aims to keep it on track with what humans value.
+
+The former staff members raised concerns that their firings had made employees at the tech company "afraid to speak and operate in ways that, until last week, were an integral part of working at OpenAI".
+
+Reposting the letter, Korbak wrote, external: "For months, I'd been raising safety concerns that we're losing the ability to monitor what AI agents think, one of our best tools for catching when they misbehave. 
+
+"I believe that was why I was fired."
+
+OpenAI said it was finalising contracts with third-party safety assessors and would announce details in the coming weeks.
+
+"We were not the first to be pushed out of OpenAI under suspicious circumstances," Wang said in a post on X, external.
+
+"Unless the employees take a stand now against this kind of manoeuvre, I am concerned we will not be the last."
+
+Sign up for our Tech Decoded newsletter to follow the world's top tech stories and trends. Outside the UK? Sign up here.
+
+OpenAI says teen ChatGPT use limited but research finds it an 'unacceptable risk'
+
+Why are there concerns AI could threaten humanity, and how real are they?
+
+AI staff 'genuinely frightened' for humanity's future, ex-Anthropic researcher tells BBC
+

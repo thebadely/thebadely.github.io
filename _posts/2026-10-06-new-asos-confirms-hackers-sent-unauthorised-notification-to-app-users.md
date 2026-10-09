@@ -1,0 +1,113 @@
+---
+layout: post
+title: "New: Asos confirms hackers sent 'unauthorised' notification to app users"
+date: 2026-10-06T17:50:19
+author: "badely"
+categories: [Technology]
+tags: []
+excerpt: "Asos confirmed an 'unauthorised customer notification' was sent out via its app on Tuesday, after users raised alarm."
+image: assets/images/037acdf963f1b347d6f4a23c28c1ec75.jpg
+---
+
+Experts revealed that Asos says it is investigating "unauthorised activity" involving third-party platforms it uses after customers received a notification from its app sent by hackers. 
+
+Dozens of people told the BBC they received the strange "ASOS HACKED" message from the clothing and beauty store's app on Tuesday morning - with some saying it left them "scared" to open the app.
+
+The notification was addressed to the company's data protection officer and IT teams in what cyber security experts said looked like a "brazen" extortion attempt.
+
+Asos acknowledged the "unauthorised customer notification" on Tuesday afternoon, saying some "basic personal information" may have been accessed.
+
+In an email to customers on Tuesday night, the company apologised and urged customers not to engage with the notification. And it said the website and app are "operating as usual" promising customers they can "shop with confidence" while it investigates the incident. 
+
+The company has not as of yet informed the UK's data watchdog, the Information Commission's Office (ICO), about any breach.
+
+Exactly how many Asos customers received the notification on Tuesday remains unclear, but Google's Play store says the ASOS app has been downloaded to android devices more than 10 million times. 
+
+The British retailer has a substantial global footprint - serving around 17 million customers each year across more than 150 markets.
+
+Some Asos app users in Australia, France, Sweden and the Republic of Ireland had also received the notification, according to local reports on Tuesday.
+
+Hackers seeking to pile pressure on potential victims by informing their customers is rare, as most extortions happen in private, so this incident may go down as a significant moment in cyber-attack history.
+
+Shares in the company fell by around a tenth on Tuesday. 
+
+Charlotte Wilson, head of enterprise at cyber-security firm Check Point, called it a "deeply serious" and "brazen" attack whereby the hackers had apparently "turned Asos' own app into their ransom note".
+
+But she told the BBC that Asos customers should not be "scared and frightened" - encouraging those worried to change their passwords, avoid clicking on the notification's link and be cautious about possible scam emails or texts.
+
+What can I do to protect myself after 'Asos hacked' message?
+
+The message popped up on many Asos app users' home screens on Tuesday morning
+
+Users of the Asos app appeared to have received the alarming notification at around 10:00 BST on Tuesday.
+
+Headlined "ASOS HACKED" and addressed to the company's data protection officer and IT teams, it said: "We have fully compromised the Snowflake instance."
+
+"Engage with us, or we will leak it," it added, before linking to a Telegram channel.
+
+The message left many ASOS  customers confused.
+
+"At first I thought it was an ad or a fun promotion like 'ASOS HACKED get 50% off everything for a limited time only'," Jodie, an analyst from Edinburgh, told the BBC. 
+
+"Then I read the rest of the message which clearly showed that it wasn't an ad and instead a message to IT."
+
+Jodie's concerns about what the Asos incident might mean for data she has shared with the platform, like her address, are shared by other users
+
+"My main concern is that my information, such as bank information, home address, telephone number, has been compromised," said Erin, a student at the University of Sheffield.
+
+She told the BBC that while her friends have expressed similar concerns about a potential data leak, her sister did not receive the notification on the Asos app.
+
+"So the question is what is the extent? Are all customers affected even if they didn't get the notification? It's poor from Asos on all fronts."
+
+Asos said in its statement that it took "immediate action to restrict access to the notification platforms" on Tuesday - adding it was working with specialists within and outside the company, as well as relevant authorities.
+
+It said it does not believe payment-card information or account passwords were impacted, and that its site and app are "operating as normal".
+
+"Customer trust is incredibly important to us, and if the situation changes an update will be provided as appropriate," it said.
+
+The BBC understands the National Cyber Security Centre has offered assistance to Asos.
+
+Meanwhile Snowflake - whose tools are used by dozens of firms to collect, analyse and store data - told the BBC its investigation was ongoing, but it had so far found "no compromise" of its platform.
+
+The company's services have, however, been the subject of many high profile data breaches in recent years.
+
+Snowflake has previously been linked to cyber incidents targeting Ticketmaster and Santander.
+
+According to cybersecurity expert Jen Ellis, Snowflake collects data from multiple sources for analysis, and an "enormous" firm like Asos will have lots of data about how people shop globally.
+
+However Dan Bird, from cybersecurity firm Horizon3, said the message implied the apparent hackers' access had gone beyond the Snowflake database.
+
+"Sending a push notification to Asos's app users would require access to the company's notification system, which is separate from the Snowflake data platform the attackers claim to have compromised," he said.
+
+"If both claims hold up, it suggests the attackers got hold of credentials that opened more than one door."
+
+The company has also shared a statement, external to the London Stock Exchange's Regulatory News Service, which provides updates to investors.
+
+Cybersecurity experts, including Ellis, have told the BBC those behind those behind this incident are most likely trying to "apply pressure" to Asos to meet their demands, rather than target its customers.
+
+While those who received this notification will undoubtedly be concerned, it is  important to know that it does not mean your phone has been hacked.
+
+We are still waiting to find out exactly what "basic personal information" may have been impacted in this incident, if any.
+
+But for now, the advice is:
+
+Do not click on links in the notification
+
+Visit Asos's official website directly for updates
+
+Watch out for emails, texts or calls offering refunds, compensation or help with your account - scammers will exploit this type of incident when they know people are worried
+
+Try and use different passwords for your online services
+
+Enable two-step verification on email and banking accounts
+
+Keep an eye on your online transactions for anything unusual
+
+Additional reporting by Shiona McCallum, Chris Vallance and Alex Emery
+
+Have you been affected by this hack? 
+
+Sign up for our Tech Decoded newsletter to follow the world's top tech stories and trends. Outside the UK? Sign up here.
+
+Why burnout is a growing problem in cyber-security
+
