@@ -1,0 +1,59 @@
+---
+layout: post
+title: "Big News: Adidas sues Australian label White Fox over four stripes design"
+date: 2026-10-09T03:36:41
+author: "badely"
+categories: [Business]
+tags: []
+excerpt: "The German sportswear brand wants the Sydney-based label to stop selling the clothes and pay damages."
+image: assets/images/54d347cf582a197632ed16ad8da91d4b.jpg
+---
+
+Let's dive into the details: Adidas tendered pictures of White Fox advertisements to support their claim
+
+Adidas is suing Australian label White Fox for selling and advertising clothes with a four-striped design, arguing it is "deceptively similar" to the German brand's distinct logo.
+
+The sportswear giant said it had repeatedly asked White Fox to stop selling and promoting the clothes since March, but the Sydney-based company refused.
+
+The fast-fashion online retailer is popular with teenagers and young adults in Australia, the UK and the US, and has relied on billboards, bus advertising and influencers - often university-aged - to grow its profile.
+
+In the Federal Court on Friday, lawyers for White Fox denied any breach of trademark.
+
+While White Fox has not yet lodged a formal defence, its lawyers told Justice Ian Jackman that the firm intends to argue that other prominent Australian brands such as Cotton On, Sportscraft and Glassons sell clothes with "similar decorative stripes". 
+
+Lawyers for Adidas told the court that White Fox, in advertising and selling its clothes with four stripes, had the "intention to trade off our reputation".
+
+A three to four-day trial is expected to take place early next year, the court heard.
+
+In its written statement of claim, Adidas says its three-striped design has a "substantial and valuable reputation" in Australia, where it has been trademarked since 1957.
+
+The company says since at least March, White Fox has been selling and advertising clothes with four parallel stripes of equal width, which it claims is an infringement of Adidas's trademark.
+
+White Fox's designs are "substantially identical with or otherwise deceptively similar" to Adidas, the company claims.
+
+It also argues that White Fox's advertisements for its four-striped clothes and White Fox-branded socks feature people wearing "genuine" Adidas items.
+
+This might lead Australians to think Adidas is associated with White Fox and has approved of the design, the documents claim.
+
+The company says White Fox is "drawing an association in the minds of consumers" of the two brands, or at least "sailing close to the wind".
+
+Adidas, which reported â¬24.8 billion (Â£21bn; $28bn) in revenue in 2025, is also seeking damages, saying White Fox must pay them the profit from the products plus interest and costs.
+
+Another image filed by Adidas which shows its shoes paired with shorts of a similar style
+
+Evidence provided by Adidas included side-by-side comparisons of its products with White Fox clothes which include sweatpants and lounge shorts, as well as images of billboards on buses and at bus stops.
+
+In one example, Adidas claimed that an online listing from June 2025 showed a pair of White Fox-branded socks being modelled by someone wearing pink Adidas shoes.
+
+A few days after the court proceedings were lodged last month, the Adidas logo on the shoes were digitally altered to remove one of the stripes, the documents alleged, and a week later, all three stripes were scrubbed from the image.
+
+In 2013, Adidas successfully sued Pacific Brands in Australia for selling shoes with four stripes.
+
+White Fox was launched in 2013 by Georgia and Daniel Contos and is privately-owned by the Greek-Australian couple and Daniel's mother Melina Maceri. It has a growing presence in the US and expanded into the UK market in 2024.
+
+In the 12 months to June 2025, the company generated AU$542m (Â£286m; $377m) in revenue, a four-fold jump from its 2022 figure of $121m, according to the Australian Financial Review.
+
+Adidas loses stripes trademark battle with Browne
+
+Adidas designer sorry for shoes 'appropriated' from Mexico
+

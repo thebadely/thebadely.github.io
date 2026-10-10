@@ -1,0 +1,181 @@
+---
+layout: post
+title: "Latest: The four 'what next?' scenarios for Premier League after Man City ruling"
+date: 2026-09-29T17:37:54
+author: "badely"
+categories: [Sports]
+tags: []
+excerpt: "It has taken more than two years, but a judgement has finally been made on the 115 charges levelled against Manchester City. Here's what it means."
+image: assets/images/982f0c0329185952c3dd5228392692ca.jpg
+---
+
+It has been recently reported that This video can not be played
+
+Kieran Maguire on potential sanctions for Man City
+
+If you had the impression that the saga over Manchester City's 115 charges was almost over, think again.
+
+Two years since the hearing began, the Premier League has confirmed that City have been found guilty of all charges related to breaches of its financial rules between the 2009-10 and 2017-18 seasons.
+
+City have said they are "innocent of the accusations made by the Premier League" and would pursue "appeal avenues open to it, on the basis that the opinion contains clear material errors, of law, principle and fact, and is unsafe."
+
+It appears the chaos and uncertainty is only going to increase now. 
+
+City fans, and the rest of football, are left to guess what the punishment might be. And when this all might reach a definitive conclusion.
+
+The charges are so serious that some form of points deduction now appears inevitable, subject to the appeal by City, who strongly refute the accusations. 
+
+When and how any punishment is applied will be crucial not just for City, but the Premier League as a whole.
+
+And that's before we get to the prospect of clubs suing City for compensation.
+
+Enzo Maresca's side go to Liverpool on 11 October when the Premier League resumes after the international break. They could go six points clear at the top. But is that now rendered meaningless?
+
+Let's look at possible scenarios - none of which are particularly appealing. 
+
+No Premier League appetite to strip Man City of titles - but threat remains
+
+Deciding the punishment should be quicker than ascertaining guilt, but nothing is certain in this case. 
+
+As the charges have been denied, it will have to go to a sanction hearing convened by the independent panel.
+
+At the hearing, everything will be on the table. Fines, points deductions and even demotion.
+
+This differs from Chelsea's case earlier this year, as the Stamford Bridge club self-reported and admitted guilt. That allowed them to negotiate with the Premier League and reach a sanctioning agreement.
+
+The panel will have to comb through the hundreds of pages of evidence and determine the punishment. 
+
+Remember, Everton were docked six points, reduced from 10 on appeal, and then two points in separate cases for breaches of profit and sustainability rules (PSR). Nottingham Forest were deducted four points.
+
+These were considered to be minor breaches, while City faced seven separate charges on PSR breaches in the Premier League alone, as well as a further five related to Uefa competitions.
+
+This aspect alone suggests a large points penalty.
+
+That is before you get into the findings that the club arranged "sham contracts" as well as "relying on sham agreements to artificially inflate the club's revenues and reduce its costs", equating to roughly Â£830m of extra revenue from sponsorship deals.
+
+Take all this into account, and it places an asterisk against the Premier League between 2009 and 2018.
+
+Chelsea and Manchester City, two of the competition's most successful clubs, have been part of that. While Chelsea admitted effectively cheating, City have been found guilty. They got around the financial rules to put them in a position to be able to sign more expensive players than their finances should have permitted.
+
+And if this season passes with no decision on the sanction while it is known City were guilty of the majority of counts, what does that mean for the integrity of the competition?
+
+Could a penalty be backdated to this season when finally awarded? Unlikely.
+
+So what if Manchester City win the league?
+
+Coventry are third from bottom right now. What if they finish in that position, are relegated, but would have stayed up had City's punishment come this season?
+
+This inertia is terrible news for the Premier League as a competition.
+
+There's a strong argument that a sanctioning agreement is the cleanest way out of this. 
+
+But that may not be palatable to the league as they would have to negotiate with City, who would presumably want a lesser punishment.
+
+Clubs seek legal advice over Man City charges compensation
+
+Man City fans face up to reality of guilty verdict
+
+Man City legal fight could spiral out of control - Purslow
+
+The usual process when any points penalty is handed down is that it is applied immediately, subject to appeal.
+
+It could be a points deduction so large that it is effectively a relegation.
+
+Alternatively, if City's membership of the Premier League was revoked, it is unclear how that might be applied mid-season.
+
+It could also be that the punishment is a huge fine, although that would seem unlikely given points deductions to other clubs.
+
+The question would be how soon we hear, and how long after the appeal is heard.
+
+While there are timelines for the appeal process within the Premier League regulations, it is unclear whether they would directly apply here. 
+
+City have until Friday to appeal. 
+
+Usually, the league asks for an expedited process from the independent arbitration company which handles disciplinary cases.
+
+But, as ever in this case, the complexities indicate this is not straightforward.
+
+There is the chance, though slim, that the punishment is only applied to the league table after the appeal.
+
+That would surely lead to protests from impacted teams this season, who will demand it should, as usual, come into effect immediately.
+
+Manchester City vs The Premier League
+
+For the integrity of the Premier League, so all clubs know what they are playing for, this would need to happen sooner rather than later.
+
+Last season, a points deduction for West Bromwich Albion related to breaches of profit and sustainability regulations was not announced until 24 April.
+
+While ultimately they stayed in the Championship, it plunged them back into a relegation fight when they thought they were safe. It also gave some hope to the teams in the relegation zone.
+
+The Premier League does not want this to drag on until the penultimate month of the season, but nothing is guaranteed in this story.
+
+In this scenario, let's not forget City could also win their appeal, like they did over a two-year Champions League ban handed down by Uefa in July 2020. 
+
+However, unlike with Uefa, City would not be able to take this case to the Court of Arbitration for Sport.
+
+While this would be celebrated at Etihad Stadium it would likely not be the end of the acrimony over the case.
+
+Manchester City won seven domestic trophies during the period of the alleged offences  
+
+Premier League clubs are seeking legal advice about compensation from Manchester City over the case.
+
+One source, who held a senior executive position at two Premier League sides, said they expected clubs to submit individual compensation claims against Manchester City.
+
+Another leading lawyer told the BBC that process could even be centralised by the league.
+
+Premier League rules allow clubs to seek legal action against each other for compensation.
+
+In June, Everton were told they must pay Burnley Â£35m after they broke PSR over a three-year period.
+
+Burnley argued the breach impacted their chances of staying in the Premier League, and sought compensation for the losses associated with being relegated.
+
+Everton are appealing, with sources previously saying they would "robustly and thoroughly" contest the ruling, but it provides an interesting backdrop to the Manchester City case.
+
+There is uncertainty over a statute of limitations, which would set a cut-off point for claims.
+
+Arsenal, Manchester United, Liverpool and Tottenham Hotspur reportedly preserved their rights to claim compensation two years ago.
+
+This is not just about Manchester United (twice) and Liverpool, who finished as runners-up to City in their title-winning seasons.
+
+It is about those clubs who just missed out on the Champions League, or failed to make Europe, or even those who were relegated. 
+
+And it could even result in claims over the prize money for each Premier League place, or the potential commercial earnings lost by rival clubs. 
+
+Kieran Maguire, professor of football finance at the University of Liverpool, told BBC Sport it would be considered a "denial of an opportunity" by complainants. 
+
+Maguire explained that the "statute of limitations is not referenced" in the Premier League's traditional handbook, though that could be subject to a legal challenge from City.
+
+But what of the compensation? Just looking at Champions League qualifying could bring huge financial claims. 
+
+"The Champions League in those days was worth a minimum of Â£30m," Maguire said. "I think by the time we got to 2018, it was probably worth Â£60m or Â£70m, and that's in prize money. 
+
+"On top of that, you could claim for loss of gate receipts, loss of sponsor bonuses. This is highly unlikely, but it's certainly being discussed. 
+
+"Players get bonuses for qualifying for the Champions League. Those bonuses, if you talk to people connected to the elite clubs, are normally in the region of 25%.
+
+"An average salary in those days would probably, if you go back to 2012, be in the region of Â£80,000 or Â£90,000 a week. Twenty-five percent of that is four or five million pounds a year. That's how the issues stack up."
+
+Points deductions, fines, and compensation claims.
+
+This is an extremely messy situation for the Premier League, and it does not look like being resolved anytime soon.
+
+This video can not be played
+
+'I don't really know how to feel' - Man City fan on charges
+
+Clubs seek legal advice over Man City charges compensation
+
+Everton told to pay Burnley Â£35m over PSR breach
+
+Forest docked four points for financial rules breach
+
+Follow Manchester City on BBC Sounds
+
+Pre-match, post-match and topical City content
+
+ 
+
+Subscribe and listen for everything you love about City
+
+Football on Trial: The Manchester City Charges
+
