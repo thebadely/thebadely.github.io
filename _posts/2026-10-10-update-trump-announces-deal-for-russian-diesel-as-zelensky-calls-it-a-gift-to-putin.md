@@ -1,0 +1,97 @@
+---
+layout: post
+title: "Update: Trump announces deal for Russian diesel as Zelensky calls it a gift to Putin"
+date: 2026-10-10T14:24:14
+author: "badely"
+categories: [Business]
+tags: []
+excerpt: "Ukraine's president sharply criticised the move, calling it an 'investment in war that must be ended, not prolonged'."
+image: assets/images/df8438b935c3e898d37637ceb76c25e1.jpg
+---
+
+Let's dive into the details: Donald Trump and Vladimir Putin met in Alaska last year
+
+Ukraine's President Volodymyr Zelensky has condemned Donald Trump's announcement of a deal to import Russian diesel into the US.
+
+Zelensky called it a gift to Russian President Vladimir Putin that amounts to "an investment in a war that must be ended, not prolonged", a position quickly backed by Ukraine's European allies.
+
+Trump said Putin had agreed to release 300,000 tonnes of diesel immediately "to the American and global marketplace" followed by 500,000 tonnes in November and a further one million after that.
+
+It is understood that the US Treasury is suspending sanctions on Russian diesel exports until 7 April as part of the deal, but other assets like those in American banks are still frozen.
+
+Trump wrote on his Truth Social platform that a further three million tonnes of Russian diesel would be delivered "within a short period", dependent on the condition of its refineries, which have been attacked by Ukraine.
+
+Putin later said that Russia, which introduced a ban on diesel exports earlier this year, was willing to supply both the US and global markets with oil and petroleum products, but his statement did not specify amounts.
+
+Zelensky said Russia would repay the diesel with "further terror".
+
+"We count on America's fair support for our defence of life, for our defence of people in Ukraine â and on the United States having a correspondingly strong conversation with Russia. A strong one, not a weak one," he wrote.
+
+He later pointed to deadly overnight strikes on Zaporizhzhia and Kyiv as Russia expressing "its thanks" for the agreement. 
+
+Analysts have questioned whether Russia is capable of providing that quantity of diesel and the extent to which doing so will ease prices for American consumers.
+
+Analysis: Trump's shock Russia deal highlights mounting pressure to curb fuel prices
+
+Russian glide bomb attack on Zaporizhzhia kills at least 15 people
+
+Tim Armitage, an investment strategist at Quilter Cheviot, said the numbers mentioned by Trump were "relatively small". 
+
+He said the first tranche equated to approximately 2.25 million barrels, and daily US consumption was around 3.8 million barrels, "so it won't make a material difference to pump prices in the US".
+
+"Granted, there are then two more releases to come, but it does appear to be a slightly desperate move by President Trump to try to lower inflation ahead of the midterms," he said.
+
+Paul Johnson, former director of the Institute of Fiscal Studies think tank and provost of The Queen's College, Oxford, said: "What would make a difference, of course, is sorting out what's happening with Iran.
+
+"Let's be clear, President Trump has created this problem himself," he told Sunday with Laura Kuenssberg.
+
+"This is a problem not created because of Ukraine and Russia in terms of diesel prices at the moment, this is created by the war in the Middle East."
+
+The BBC has asked the White House what Russia will get from the US in return for the commitment. 
+
+The agreement with Russia also opens Trump up to criticism from European allies and pro-Ukraine politicians in the US that the American president is now helping to fund Moscow's war machine.
+
+The EU's foreign affairs chief Kaja Kallas said suspending sanctions "provides Moscow with more revenues to wage war", adding: "This is not the time to ease pressure on Russia, and Europe won't."
+
+She said European foreign ministers intended to approve the biggest set of sanctions on Russia since the start of its full-scale invasion on Monday.
+
+Meanwhile, a UK government spokesperson said its position "could not be clearer" and that it would continue working with international partners to support Ukraine and bring about sustained peace.
+
+"We will also maintain pressure on Russia through the toughest sanctions regime ever imposed by the UK, increasing the cost of Putin's aggression and supporting efforts to secure a just and lasting peace."
+
+Friday's announcement is the latest effort from Trump to lower fuel prices in the US ahead of the midterm elections, after months spent grappling with the political consequences of the Iran war.
+
+That conflict, which began in February, has sent the cost of petrol and in particular diesel skyrocketing, which has soured his standing with the American public who have been stung by the higher pump prices and knock-on effects that led to across-the-board inflation.
+
+Ukraine's President Volodymr Zelensky said Russia would repay the diesel with "further terror"
+
+The average diesel price in the US is currently $6.28 (Â£4.74) a gallon, according to the AAA, down from the record high of $6.53 recorded at the end of September.
+
+Shortly after Trump's announcement, the US Treasury formally issued a temporary licence allowing Russian diesel into the market. 
+
+Putin said he had spoken to Trump about the global energy situation on Friday, adding: "The Russian side confirmed its willingness to supply oil and petroleum products to the US market and global markets at large."
+
+An envoy for Putin, Kirill Dmitriev, welcomed the deal on social media, saying: "Russia-US co-operation on diesel and energy will benefit the world."
+
+Russia has this year experienced two waves of severe fuel shortages across the country as a result of Ukrainian drone strikes on Russian oil refineries. Its diesel production has fallen by nearly 30%, according to International Energy Agency estimates.
+
+Trump has expressed his displeasure over those attacks, blaming them for rising fuel prices.
+
+But Zelensky defended the strikes on Friday, saying they were in response to "Russia's years-long campaign of terror against Ukraine's energy sector".
+
+"Ukraine will not set Russian oil refineries on fire if Russia does not destroy our energy infrastructure," he said.
+
+Trump wants to reduce the cost of fuel as the midterms loom - will it work?
+
+Trump's Truth Social posts often provide incomplete information, and the details of exactly how Russia will supply this fuel to the global market is unclear. 
+
+But the announced deal represents a remarkable about-face, as the US Congress recently enacted legislation - signed by the president - to authorise new American sanctions and tariffs on nations that import Russian oil and gas.
+
+What impact the deal with Russia will have on fuel prices also remains unclear. The global benchmark for crude oil, Brent, remains above $103 a barrel. Before the war with Iran, Brent crude was trading at about $73 a barrel.
+
+With the looming US elections - which will determine whether Republicans maintain control of Congress - Trump has been searching for ways to ease his Republican party's political pain.
+
+Earlier this week, he said he was "thinking about" suspending the federal tax on gasoline and also announced that he would allow so-called red dye diesel to be used on US highways without facing federal tax.
+
+Trump has also successfully pressured G7 nations into releasing 100 million barrels of oil and diesel from stockpiles to help ease supply concerns and previously supported calls for a ban on diesel exports from the US.
+

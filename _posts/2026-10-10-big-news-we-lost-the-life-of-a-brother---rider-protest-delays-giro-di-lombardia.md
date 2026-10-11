@@ -1,0 +1,75 @@
+---
+layout: post
+title: "Big News: 'We lost the life of a brother' - rider protest delays Giro di Lombardia"
+date: 2026-10-10T11:57:40
+author: "badely"
+categories: [Sports]
+tags: []
+excerpt: "Riders at the Giro di Lombardia stage a protest over safety concerns which delays the start for five minutes, before 20-year-old Paul Seixas goes on t"
+image: assets/images/7e4725ac6173b2686e9206ccf6669c24.jpg
+---
+
+Let's dive into the details: Remco Evenepoel addressed the crowd in Bergamo after the peloton did not set off on time
+
+Riders at the Giro di Lombardia staged a protest which delayed the start of the race by five minutes as they sought to draw attention to safety concerns following a series of incidents.
+
+Organisers completed the countdown and a starting flag was waved but the peloton remained stationary, creating confusion among spectators in Bergamo, Italy.
+
+Belgium's Remco Evenepoel then addressed the crowd, saying "there are too many incidents happening with vehicles in the race" and highlighting the death of British cyclist Fin Tarling, who died in a collision with a vehicle at the Volta a Portugal in August.
+
+"Unfortunately we lost the life of a brother and a colleague, so we want to make this statement to show to the world that we cannot keep accepting the fact that guys are getting injured or literally dying in what we like the most to do," added double Olympic champion Evenepoel.
+
+After five minutes had elapsed, a second starting flag was waved and the riders set off for Como.
+
+French 20-year-old Paul Seixas broke with 19km to go to become the youngest winner of the Giro di Lombardia and the youngest winner of a Monument race since 1944.
+
+Seixas finished 48 seconds ahead of Spain's Enric Mas, having dropped Italy's Giulio Ciccone and Great Britain's Tom Pidcock, who finished third and sixth respectively, shortly after his break.
+
+His solo ride for over 18km saw him take a Monument title in only his third appearance, having made his debut with a seventh-place finish in this race last year.
+
+This video can not be played
+
+'We can't keep accepting that riders are dying'
+
+"This week alone, there were multiple incidents of vehicles on race courses," said the CPA union, which represents professional cyclists, in a statement which was re-posted on Instagram by riders including Evenepoel and Pidcock., external
+
+"This summer, a life was tragically lost to exactly this kind of failure. We will not stand for this any longer."
+
+The CPA has called for cycling's governing body, the UCI, to help ensure race organisers "take responsibility" and "act" to improve safety standards.
+
+Earlier this week, Thomas Gloag and Marcel Camprubi were struck by a police motorcycle travelling in the opposite direction during the Tre Valli Varesine race.
+
+"Riders race at high speed with little protection, and we depend on the UCI and race organisers to secure the roads. That responsibility is not being met," the CPA statement added.
+
+"We did not want to affect the race, only to show what riders can do when we stand as one.
+
+"We love this sport. We respect the race organisers. We want to race hard and put on a show for our fans. However most importantly we want to come home safe to our loved ones."
+
+The Giro di Lombardia is the last of the season's five Monuments, a set of long-standing, prestigious one-day races.
+
+It has been won by Tadej Pogacar for the past five years but the Slovenian was not present at the race, which is also the penultimate event on this year's UCI World Tour calendar, after sustaining a season-ending injury at the Vuelta a Espana.
+
+Seixas, who finished fourth in this year's Tour de France, also finished second behind Pogacar at LiegeâBastogneâLiege, his only other Monument appearance this season.
+
+The DecathlonâCMA CGM rider is the first Frenchman to win a Monument since Julian Alaphilippe at MilanâSan Remo in 2019, and the first to triumph at the Giro di Lombardia since Thibaut Pinot in 2018.
+
+Il Lombardia is known in Italy as The Race of the Falling Leaves and changes in seasonal temperature often makes for a tricky event.
+
+The barometer for cyclists' thresholds for danger is changing too. Several riders have died, or been seriously injured, in and out of competition in the past five years.
+
+The protest leader, Evenepoel, himself nearly lost his life in this race in 2020 following a harrowing crash on a descent.
+
+And it's been a harrowing season â the loss of 19-year-old Tarling has stunned the whole sport, and the fury of the peloton has been evident. 
+
+Even the sport's best rider is not in Lombardy because of a serious, season-ending, crash, and cars continue to enter closed public roads in races.
+
+The UCI recently published results of a consultation to reform cycling, which treats safety as "non-negotiable, with stricter enforcement of existing requirements".
+
+Such changes may not exist in the sport before 2029.
+
+But the riders want change now.
+
+Pidcock 'mad' after team-mates hit by police vehicle
+
+'Fury' at Tarling death as cycling union calls for better helmets
+
