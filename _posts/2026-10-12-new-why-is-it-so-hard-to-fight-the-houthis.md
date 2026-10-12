@@ -1,0 +1,21 @@
+---
+layout: post
+title: "New: Why is it so hard to fight the Houthis?"
+date: 2026-10-12T12:15:01
+author: "badely"
+categories: [News]
+tags: []
+excerpt: "Security correspondent Frank Gardner explains how the Iran-backed Houthis' precision strikes and guerrilla tactics have made it difficult for Saudi fo"
+image: assets/images/eab38d305cbef3670bcd9f71e57f5a21.jpg
+---
+
+It has been recently reported that This video can not be played
+
+Saudi Arabia's energy minister has vowed to respond to the attacks on the kingdom's airports and oil and gas facilities by Yemen's Iran-backed Houthi movement.
+
+It comes after the Houthis fired missiles in strikes across Riyadh, killing at least 14 and injured more than 300 in two strikes on the city's airport. They also attacked oil facilities and Dammam airport in eastern Saudi Arabia, their military spokesman Brig Gen Yahya Saree said.
+
+The Houthis said they launched the attacks in retaliation for "brutal Saudi aggression" against areas they control in western Yemen.
+
+The BBC's security correspondent Frank Gardner explains how Houthis' precision strikes and guerrilla tactics have made it difficult for Saudi forces to gain the upper hand.
+
