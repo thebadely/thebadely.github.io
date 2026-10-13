@@ -1,0 +1,87 @@
+---
+layout: post
+title: "New: Huge night for Women's World Cup hopes - how are home nations set?"
+date: 2026-10-13T11:43:31
+author: "badely"
+categories: [Sports]
+tags: []
+excerpt: "England, Wales, Northern Ireland, Scotland and the Republic of Ireland are under way in their Women's World Cup play-offs. How are their prospects loo"
+image: assets/images/561879b479a3745c54144f8d6fc4563e.jpg
+---
+
+Here’s what you need to know: England's Georgia Stanway, Northern Ireland's Rebecca McKenna, Scotland's Rachel McLauchlan and Wales' Lily Woodham went into the play-offs with hope of reaching the Women's World Cup
+
+England came away from Greece with a valuable 3-1 lead in their first 2027 Women's World Cup play-off tie - a result they will look to convert into an aggregate win this week.
+
+Georgia Stanway, Maya le Tissier and Alessia Russo were on the scoresheet in the away game.
+
+The second leg will be played at home, at King Power Stadium in Leicester, on Tuesday, 13 October at 19:30 BST.
+
+Commentary will be on BBC Radio 5 Live.
+
+Should England beat Greece over two games, they will face the winners of Slovakia v Ukraine, with the away fixture played first.
+
+The exact dates of the potential second-leg fixtures are to be confirmed, although they will take place between 26 November and 5 December 2026.
+
+England head coach Wiegman named her initial squad last month, with Ella Toone and Chloe Kelly notable absentees, although Toone later received a call-up after Lucy Bronze left the squad with a slight injury.
+
+When asked why the two stalwarts were initially left out, Wiegman said: "They have not been playing to their full potential.
+
+"Of course, I still believe in these players. They are really good and have shown so much for us."
+
+Toone featured on the bench but did not make it on to the pitch in Heraklion.
+
+Send us your questions
+
+All you need to know about 2027 Women's World Cup
+
+Northern Ireland, Scotland, Wales and the Republic of Ireland are also involved in the play-offs as they chase World Cup places.
+
+In the first legs, Scotland beat the Czech Republic 2-0, Wales defeated Albania 1-0, Northern Ireland lost 4-0 to Portugal while the Republic of Ireland thrashed Kazakhstan 8-0. 
+
+As with England, the second legs of these ties take place on Tuesday.
+
+Wales face Albania at 19:15 BST - with coverage on BBC One Wales from 19:00 BST.
+
+Scotland play the Czech Republic at 19:15 BST, available to watch on BBC Scotland from 19:00 BST.
+
+Northern Ireland take on Portugal at 19:15 BST.
+
+The Republic of Ireland play Kazakhstan at 19:30 BST.
+
+Despite England securing five wins from their six qualifying matches, world champions Spain finished top of the Lionesses' group and secured the one automatic spot.
+
+England did not want to go through the play-offs but were given an unkind draw in the qualifying groups when they met world champions Spain.
+
+However, Wiegman's side are in a strong position for the play-offs and, armed with their handy first-leg lead, are firm favourites to progress against Greece, who sit 55 places beneath them in the Fifa world rankings.
+
+England also beat potential round two opponents Ukraine in both matches in the qualifying group stage, with an aggregate 9-1 score.
+
+Northern Ireland were always in for a tricky tie against a talented young squad from Portugal in round one, and their prospects do not look good with a 4-0 deficit to take into the second leg, away from home. Head coach Michael McArdle suggested it has become an "impossible" task.
+
+Scotland are hoping to reach just their second Women's World Cup, after a 2019 appearance. They failed to qualify in 2023 but have performed well this year, including drawing with Belgium, showing that they can compete with some of Europe's strongest teams.
+
+They would need to produce their best in round two if they meet big-hitters Sweden, who have been semi-finalists in the past two Women's World Cups.
+
+Wales have never beaten a team ranked inside the world's top 20 in a competitive fixture and are likely to need to do so to qualify.
+
+There is optimism, though, as Rhian Wilkinson's side thrashed play-off opponents Albania 4-0 in their qualifying group and already have a first-leg lead.
+
+Elsewhere, having performed superbly in qualifying, the Republic of Ireland have a tough play-off route with Belgium potentially waiting in round two.
+
+Carla Ward's side navigated a 3,100-mile trip to Kazakhstan for the first leg in round one and have an impressive 8-0 lead so will already be thinking ahead.
+
+Find interviews and extra content on the BBC Women's Football Weekly feed
+
+Greek takeaways: What did we learn from Lionesses' win?
+
+Delight for Cuthbert after long summer of recovery
+
+Wales hope pattern continues in Albania return
+
+NI World Cup hopes gone from 'improbable to impossible'
+
+Republic of Ireland put eight past Kazakhstan in play-off
+
+Get the latest WSL news on our dedicated page
+

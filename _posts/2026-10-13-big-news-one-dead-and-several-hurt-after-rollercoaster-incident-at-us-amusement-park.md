@@ -1,0 +1,53 @@
+---
+layout: post
+title: "Big News: One dead and several hurt after rollercoaster incident at US amusement park"
+date: 2026-10-13T10:28:07
+author: "badely"
+categories: [News]
+tags: []
+excerpt: "Aerial footage at the park after the incident shows a stuck rollercoaster with riders being helped off."
+image: assets/images/3acfaca0399fc43814fa1acec1b71230.jpg
+---
+
+Experts revealed that This video can not be played
+
+Watch: Aerial footage shows riders stuck on Six Flags roller coaster
+
+One person has died and several others were injured after an incident on a rollercoaster at an amusement park in the state of Georgia.
+
+The Cobb County Police Department said it was investigating the fatality at Six Flags Over Georgia, about 15 miles (24km) from Atlanta, according to the BBC's news partner CBS News. 
+
+Police did not specify which ride was involved, but aerial footage from news helicopters showed the Goliath rollercoaster stopped midway, with riders being helped off by workers.
+
+Six Flags Over Georgia said it was "deeply saddened by the guest incident at our park today. Our thoughts and heartfelt condolences are with the guest's family, friends, and loved ones."
+
+Officials have not said how the person died, or how the other riders were injured. The BBC has contacted local police and fire authorities, as well as park officials. 
+
+The identity of the person who died has also not been disclosed.
+
+Witnesses told local media they saw a man ejected from the ride - an account of events that the BBC has not verified. 
+
+Local outlet 11 Alive quoted a witness saying the man had come loose from his seat, and had then struck the rollercoaster and some of his fellow riders before falling onto the roof of a nearby haunted house attraction.
+
+The incident was captured in souvenir photos that were automatically taken of the rollercoaster while it was in motion, the witness added.
+
+A husband and wife also told 11 Alive that the man had been ejected from the rollercoaster and had struck it afterwards. The couple said workers at the park had checked their safety harnesses before the ride set off.  
+
+A park spokesperson said in a statement that its team and local authorities had responded immediately, and they were co-operating on an investigation into the incident.
+
+Mableton Mayor Michael Owens said the city's public safety director was co-ordinating with local police and park security on the situation.
+
+The Goliath ride opened in 2006, and it has an elevation of 200ft (60m), a 170ft plunge, a 540-degree spiral, and a speed of up to 70mph (112km/h), according to the park website. On its "thrill scale", Six Flags ranks Goliath at level four out of five.
+
+Six Flags is the largest amusement park operator in North America, with 20 amusement parks, 14 water parks and nine resorts across Canada, the US and Mexico.
+
+After the incident in Georgia, Six Flags also said it had temporarily closed similar attractions across its parks "out of an abundance of caution".
+
+The death in Georgia comes just weeks after one of Six Flags' parks in southern California announced it would close the popular X2 roller coaster after more than 100 people alleged brain injuries from the ride.
+
+Six Flags said that ride had passed a range of safety tests, but that it had decided to retire the attraction because it was "the right thing to do".
+
+Were you at Six Flags? Did you witness what happened? Get in touch here
+
+Six Flags shuts down X2 rollercoaster after more than 100 allege brain injuries
+
