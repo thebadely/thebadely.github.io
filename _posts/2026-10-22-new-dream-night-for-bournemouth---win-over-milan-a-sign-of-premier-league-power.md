@@ -1,0 +1,119 @@
+---
+layout: post
+title: "New: Dream night for Bournemouth - win over Milan a sign of Premier League power"
+date: 2026-10-22T21:30:31
+author: "badely"
+categories: [Sports]
+tags: []
+excerpt: "Bournemouth's 3-0 win against AC Milan further illustrated the dominance of Premier League sides against their European counterparts."
+image: assets/images/2def660429aabbecad1d7659d09c84da.jpg
+---
+
+Experts revealed that Bournemouth have beaten Real Sociedad, Sturm Graz, and now AC Milan in the Europa League
+
+At times, being a Bournemouth fan must feel like living in a simulation.
+
+That was certainly the case on Thursday night as the Cherries beat seven-time continental champions AC Milan 3-0 in only their third-ever European fixture.
+
+Justin Kluivert scored the opener at Vitality Stadium, 31 years after his father, Patrick, scored the winning goal for Ajax against Milan in the Champions League final.
+
+Having seen their club narrowly avoid the jaws of liquidation in 2008, not many Bournemouth fans would have dreamed that famous name would one day appear on their shirts.
+
+"It's mega. In terms of the story of the club it's ridiculous. Someone told me today, 15 years ago today we were 17th in League One, so it's pretty incredible," Bournemouth midfielder Ryan Christie told TNT Sports.
+
+"So many of these fans have been here for this journey so to have nights like this and win as well is special."
+
+To add to the peculiarity of the situation, Milan fielded more English players in their starting XI (three) than the hosts (two).
+
+While the sending off of Milan goalkeeper Mike Maignan killed the contest after 27 minutes, Bournemouth were by far the better side up until that point.
+
+In truth, that didn't come as a surprise, even though Bournemouth have won just six points from seven league games this term while Milan are fourth in Serie A.
+
+The three sides they have beaten this season - Real Sociedad, Sturm Graz, and now Milan - have all competed in the Champions League inside the past three years.
+
+For them it's a fairytale, but for the rest of Europe, is it a Premier League-induced nightmare?
+
+Five months after a missed Arsenal penalty denied a Premier League clean sweep in the Champions League, Europa League and Conference League, is this yet another sign of English club dominance?
+
+Bournemouth sweep aside 10-man Milan in Europa League
+
+English clubs played nine games in Europe this week, losing just once.
+
+In fact, Premier League clubs have lost just four of 26 games played across the three continental competitions so far this season. Manchester United are responsible for two of them.
+
+In the five seasons since the Conference League was introduced, no league has yet won all three, but in three different seasons Premier League clubs have won two of them.
+
+Over the past two seasons, Premier League clubs have played 21 knockout ties against European opposition in the Conference League and Europa League - and won all 21.
+
+The only two ties they have lost have been to other English teams.
+
+But, despite such dominance, the Champions League still remains elusive for most, with only Manchester City lifting the trophy over the past five years.
+
+So, why are English clubs so dominant in Europe's secondary competitions - and why hasn't this transferred to consistent Champions League glory?
+
+Fifteen of last season's 20 Premier League teams featured in the top 30 of Deloitte's 2026 Money List.
+
+It is easy to see why then English clubs appear to be head and shoulders above the rest when it comes to the Europa League and the Conference League.
+
+Premier League clubs earn more than Â£1.37bn per season in television rights, a figure La Liga, Serie A, Bundesliga and Ligue 1 could only match combined.
+
+Brighton are easily the richest club in the Conference League this season, while Bournemouth and Crystal Palace both appear in last season's top 30.
+
+Last season Aston Villa beat Freiburg comfortably in the Europa League final, with a revenue more than double the Germans'.
+
+Crystal Palace won the Conference League with a revenue of almost four times more than Rayo Vallecano, the side they saw off in the final.
+
+In 2025, Tottenham beat Manchester United in the Europa League final. In the Premier League, they finished 17th and 15th respectively.
+
+In 2022-23, West Ham finished 14th and won the Conference League.
+
+All the evidence points to the Premier League's collective strength. Take away Europe's richest and England dominates.
+
+The summer transfer window was further evidence of Europe's struggles against the Premier League, with the latter again setting a new transfer spend record of Â£3.49bn to dwarf their rival leagues.
+
+Of the 20 most expensive transfers completed in the summer only six were not to clubs in the English top flight.
+
+You now have Premier League clubs - away from the traditional big six - beating other top European sides to signings.
+
+Premier League wages are generally higher and the league is increasingly seen as the place to be for a lot of European talent.
+
+"With the exception of some of the global brands within football, and I think you'd look at Real Madrid, Barcelona, PSG and Bayern Munich, the Premier League can outspend anyone and everyone," football finance expert Kieran Maguire said in August.
+
+"A significant proportion of overseas players are now choosing to play in England than elsewhere in Europe because of the wages on offer."
+
+This video can not be played
+
+'That was for the fans who were going when we were facing liquidation'
+
+Despite the success of Premier League sides in the Europa League and Conference League, the Champions League is a harder nut to crack.
+
+While Barcelona, Real Madrid and Bayern Munich all lost to English teams in last season's elongated Champions League league stage, it has been a very different story when it really mattered.
+
+Over the past two campaigns, eight of nine English teams have been knocked out by one of the Deloitte Money League's big four, according to the last report produced in January 2026.
+
+Chelsea, Manchester City, Newcastle and Liverpool were eliminated by an aggregate score of 25-6 last season.
+
+No English club appeared in the top four of Deloitte's Money List, with Real Madrid, Barcelona, Bayern Munich and Paris St-Germain leading the way. Three of those have won the Champions League five times between them in the last seven years.
+
+English clubs are certainly very much in the mix for the Champions League, with Arsenal losing last season's final on penalties and Manchester City winning in 2023.
+
+But, with just one English club in the past three finals, the Premier League elite are yet to take their European domination to the very top.
+
+Come May, it could well be Bournemouth, Brighton, Crystal Palace or Sunderland leading the English charge in Europe.
+
+Brighton winning run ends with dull draw against Jablonec
+
+Sage denied win but Palace earn hard-fought point at Besiktas
+
+Wasteful Sunderland held to draw at Lech Poznan
+
+Get news, insight and fan views on your Premier League team
+
+All your football quizzes in one place
+
+Premier League index
+
+Premier League table
+
+Premier League fixtures
+

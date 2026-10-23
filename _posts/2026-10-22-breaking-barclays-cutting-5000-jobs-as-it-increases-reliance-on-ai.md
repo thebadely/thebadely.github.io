@@ -1,0 +1,65 @@
+---
+layout: post
+title: "Breaking: Barclays cutting 5,000 jobs as it increases reliance on AI"
+date: 2026-10-22T14:28:59
+author: "badely"
+categories: [Business]
+tags: []
+excerpt: "The bank says it is using more AI leading to a 5% reduction in its workforce."
+image: assets/images/65643de440398f8c18debd1cea2e6e6d.jpg
+---
+
+Experts revealed that Barclays is cutting around 5,000 staff as it introduces more artificial intelligence (AI) into its work processes.
+
+The banking group said 1,000 posts had already been closed and it expects a further reduction of 4,000 to be complete by the end of this year, amounting to around 5% of its global workforce. 
+
+The bank's cost reductions are focused on its UK retail bank, but some back office functions for the UK are done in India, where a significant proportion of the job cuts are expected to fall.
+
+Barclays said the changes were the result of an ongoing modernisation plan, with the use of AI being the "icing on the cake" of its strategy.
+
+Although not all of the cuts are due to AI, their scale will prompt further concern over the impact of the new technology.
+
+Company spending on AI is increasing along with claims new tools can replace some of the basic tasks currently done by staff such as administrative and programming work.
+
+HSBC, Standard Chartered and Danske Bank have also flagged AI-related job cuts this year.
+
+"It is a hot button topic," said AJ Bell investment analyst, Russ Mould.
+
+However, banks had not yet made big moves towards the widespread introduction of AI and they would be considering the implications for security and customer service before implementing AI technology to make financial savings, he said.
+
+"Any company at any time needs to keep on top of its cost base," he said.
+
+"It will be intriguing to see what other banks say in their results in the coming weeks.
+
+Sharon Graham, general secretary of the Unite union that represents banking sector workers said the company was "using AI as an excuse to discard its loyal and long-suffering workforce".
+
+"Employers should be focussed on upgrading employees' skills so that they remain employed as new technology changes the workplace. Instead, Barclays is guilty of taking a short-term, kneejerk approach," she said.
+
+Barclays is reaching the end of a three year cost-cutting programme  focused primarily on its UK retail banking arm, although the investment banking division is also affected.
+
+AJ Bell's Russ Mould said despite "reaching for the AI lever" Barclays had failed to match expectations with its financial results.
+
+Barclays also revealed it made Â£2.3bn profit in the three months to September, higher than the same period a year ago, but slightly less than forecast.
+
+Barclays Group chief executive CS Venkatakrishnan said the job cuts were the result of significant investment it is making in technology to simplify and improve its business.
+
+"AI has an important role to play and may have a more important role to play in the future.
+
+"We will employ the AI at scale," he said. "But AI is the icing on the cake not the cake.
+
+"Because you need to do the infrastructure build to get the benefits of AI."
+
+Barclays said around 60% of the job cuts will fall within its support functions, including among developers. 
+
+Will Howlett, financials analyst at Quilter Cheviot said the cuts illustrated "how significantly AI and automation could reshape the banking industry over the next few years".
+
+"Banks have spent heavily on technology for years, but we are increasingly reaching the point where that investment translates into fewer people being required to run the business," he said.
+
+Barclays said it expects its efficiency measures to deliver a further Â£1.1bn of savings in 2027.
+
+How has AI changed your job or the type of work your do?Â 
+
+Barclays workers ask for more money to return to the office
+
+AI boom could trigger market shocks, Bank of England boss warns
+

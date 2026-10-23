@@ -1,0 +1,117 @@
+---
+layout: post
+title: "Latest: Tour de France UK stages in detail - where can you watch?"
+date: 2026-10-22T17:56:48
+author: "badely"
+categories: [Sports]
+tags: []
+excerpt: "The full route for the 2027 Tour de France is announced in Paris, with street-by-street details of the six stages in the UK revealed."
+image: assets/images/a7afff2ed020413162d89d5463f48152.jpg
+---
+
+Experts revealed that The Tour de France and Tour de France Femmes start in the UK in 2027
+
+The street-by-street details for the six British-based stages that will start both the men's and women's editions of the 2027 Tour de France have been revealed.
+
+The three-week men's race gets under way with a stage from Edinburgh to Carlisle on 2 July. It is followed by a route between Keswick and Liverpool before Wales hosts a third and final grand depart stage from Welshpool to Cardiff on 4 July.
+
+The women's event starts on 30 July with a race from Leeds to Manchester, before moving back across the Pennines to Yorkshire with a finish in Sheffield.
+
+A testing team time trial around the streets of central London will complete the opening section of that nine-stage race.
+
+The collaboration is a first for both races in a Super Grand Depart - the finer details of which were announced at a ceremony hosted by the Tour's organisers ASO on Paris' Palais de Congres on Thursday.
+
+Oscar Onley, who rides for the British-Danish Netcompany Ineos team, attended the event in Paris, and told BBC Sport: "Starting in the UK is something really special - friends, family watching on home roads is something we're really looking forward to.
+
+"It's a once-in-a-lifetime opportunity and I'm really excited."
+
+"I'm hoping [I can win a stage]. It's really hard to say from the start and finish towns how hard the route is. But we'll make a plan and pinpoint stages which really suit me." 
+
+The 24-year-old Scot, who finished fourth in the 2025 Tour de France and sixth in this year's Vuelta a Espana, added: "The ultimate dream is to win the Tour de France, or any Grand Tour. 
+
+"That's why I joined this team - to be one of the top Grand Tour riders, and I feel like I'm on the right track with that."
+
+Stages of the Tour have been held in the UK before, in 1974, 1994 and 2007 in London and the Yorkshire Grand Depart in 2014.
+
+This will be the first time both men's and women's events have come to the same nation outside France in the same year.
+
+Stage one map
+
+Stage one profile
+
+1 of 2
+
+Stage one of the men's race on is a 184km ride south from Edinburgh across the border to Carlisle, taking on a tricky 2.2km climb up the Cote de Melrose - just a few miles from the birthplace of Netcompany Ineos' Onley.
+
+See how close stage one comes to your street here., external 
+
+Tour de France stage two map
+
+Tour de France stage two profile
+
+1 of 2
+
+Stage two is a gruelling 223km ride from Keswick in the Lake District to Liverpool, which includes five categorised climbs and 2,800 metres of ascending in total.
+
+See how close stage two comes to where you live here., external 
+
+Tour de France stage three map
+
+Tour de France stage three profile
+
+1 of 2
+
+The final UK stage of the men's race is on 4 July and ends in Wales' capital Cardiff after a 223km race from Welshpool in the country's north. There are eight categorised hills to negotiate and about 3,000m of climbing in total.
+
+See how close stage three comes to where you live here., external 
+
+Tour de France Femmes stage one map
+
+Tour de France Femmes stage one profile
+
+1 of 2
+
+The first stage of the Tour de France Femmes on Friday, 30 July is an 85.7km race from Leeds to Manchester, which takes on three climbs. That includes the Cote de Meltham, which is 3.2km long at an average elevation of 8.4%.
+
+See how close stage one comes to your home, here., external
+
+Tour de France Femmes stage two map
+
+Tour de France Femmes stage two profile
+
+1 of 2
+
+The second stage from Manchester to Sheffield is 154.4km long and includes Winnats Pass in the Peak District - 1.4km at 12.3% average elevation. One of seven climbs that day.
+
+See how close stage two comes to your home here., external
+
+The final stage of the Tour de France Femmes grand depart is a team time trial in London.
+
+The 18km circuit starts on Whitehall, makes its way through Trafalgar Square, past Tower Bridge and finishes along The Mall.
+
+See how close stage two comes to your home here., external
+
+In an address to the auditorium, Paul Bush, managing director of the Grand Depart GB 2027 called it an "extraordinary, and historic moment". 
+
+"These routes showcase what a spectacular stage Scotland, England and Wales will provide," he added. 
+
+"The women's team time trial will be such a memorable moment, passing through the heart of London, finishing on The Mall - the first of its kind in the modern history of the race."
+
+UK Sports Minister Stephanie Peacock echoed those comments, adding: "Our Â£32m will fund the races and a lasting legacy, so the public feel the benefits long after the last rider crosses the line."
+
+Men's race director Christian Prudhomme said: "Just a few weeks apart, the Tour de France and the Tour de France Femmes avec Zwift will each take their respective pelotons on a journey through the roads of the United Kingdom.
+
+"Along with what we anticipate will be a warm and massive welcome for the champions, Great Britain also offers us a symbol that further ties the two races together. From the start on 2 July at the foot of Edinburgh Castle, which will be the northernmost in the history of the Tour, to a team time trial in London on 1 August. 
+
+"Needless to say, there will be thousands of thrills and emotions."
+
+When the Tour last came to the UK in 2014 more than 2.5m fans watched the race from the roadside.
+
+And that was only two stages of the men's race, across Yorkshire.
+
+What followed was a huge spike in participation across the country and a race - the Tour de Yorkshire.
+
+That race eventually left the calendar, never recovering from the Covid pandemic and interest dwindled just as the grip of the sport's most successful British riders - such as legendary sprinter Mark Cavendish and four-time yellow jersey winner Chris Froome - began to loosen.
+
+But 2026 featured a record number of British riders across the men's and women's World Tour pelotons, at 49, and some great race wins - including Matt Brennan's five stage wins at Spain's Tour de France equivalent the Vuelta a Espana in September.
+

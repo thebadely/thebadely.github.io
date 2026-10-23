@@ -1,0 +1,121 @@
+---
+layout: post
+title: "Breaking: What is the Budget and what could be in it?"
+date: 2026-10-23T08:14:04
+author: "badely"
+categories: [Business]
+tags: []
+excerpt: "Chancellor John Healey will set out his plans for UK taxes on 28 October."
+image: assets/images/c80a5447130e83fb108c1d696b8ac76f.jpg
+---
+
+Let's dive into the details: Chancellor John Healey will set out Labour's tax and spending plans when he delivers his first Budget on 28 October.
+
+He has refused to rule out tax increases after acknowledging government borrowing costs are at "historic highs".
+
+But the government's room for manoeuvre on tax is limited. 
+
+Before the 2024 general election, Labour promised not to increase three big revenue earners for the government: income tax, National Insurance and VAT.
+
+In his statement, delivered to MPs in the House of Commons, Healey will set out how the government plans to raise or lower taxes.
+
+Alongside the Budget, the Treasury will publish details about the measures and their costs.
+
+The independent Office for Budget Responsibility (OBR), which monitors government spending, will also publish an assessment of the health of the UK economy and a forecast of what it thinks will happen in the future.
+
+The run-up to the Budget typically generates speculation about what might be in it,  which the government is trying to keep to a minimum this year.
+
+Healey and Prime Minister Andy Burnham face a difficult balancing act, trying to offer more support to households and meet commitments on defence spending,  while also sticking to Labour's manifesto commitments on tax and the government's self-imposed fiscal rules.
+
+The previous chancellor, Rachel Reeves, set out two main rules, which the new leadership has vowed to follow. These are:
+
+Not to borrow to fund day-to-day public spending by the end of this parliament
+
+To get government debt falling as a share of national income by the end of this parliament
+
+In March, the OBR calculated that the first rule would be met with a gap - or headroom - of Â£23.6bn. However, this headroom is expected to have shrunk.
+
+Analysts are divided on how much it may have fallen by. While a rise in government borrowing costs will increase debt interest payments, higher inflation could push up tax revenues.
+
+KPMG believes the government's buffer could have fallen to Â£12bn, but the Institute for Fiscal Studies estimates it could be Â£20bn.
+
+There has been speculation over what specific measures will be announced in the Budget.
+
+Bank taxes
+
+Bank bosses have told the BBC they expect Healey to raise taxes on the sector. UK banks have been reporting bumper profits, leading to calls from unions for higher taxes.
+
+The Treasury has options: it could raise a 3% surcharge on profits which was lowered from 8% under the previous Conservative government, or it could raise the bank levy that is based on the size of their balance sheets.
+
+Your First Home scheme
+
+Further details on the Your First Home scheme, aimed at helping first-time buyers in England to purchase a property, are expected to be announced in the Budget.
+
+The scheme will allow people to buy a new-build home with a deposit of 2.5%. It would provide them with a loan worth 20% of their property's value to help pay for the purchase.
+
+There were concerns raised that the threshold for eligibility for first-time buyers could be set at Â£90,000 for a combined income outside London, and Â£110,000 in the capital, which could have excluded couples such as teachers and nurses, or police officers.
+
+But that threshold is will now be Â£110,000 outside of London, and Â£140,000 in the capital, the BBC understands.
+
+Capital Gains Tax
+
+There had been speculation that Capital Gains Tax (CGT) - which is imposed on the profit people make when they sell an asset that has increased in value - could be changed, through either higher rates or by removing or amending exemptions. However, this has now been ruled out.
+
+Tax on businesses
+
+The Times has reported, external that online retail giants such as Amazon and eBay are expected to be made responsible for collecting tax owed by traders using their platforms.
+
+The paper said the money raised is expected to be used by the government to cut business rates for High Street shops, by raising the threshold at which small companies start paying rates from Â£12,000 to Â£18,000.
+
+Fuel duty
+
+Fuel duty was frozen under the Conservatives in March 2022 and Sir Keir Starmer's government continued the freeze, deciding in May to push back a planned 3p increase in September until the end of this year.
+
+Healey told the BBC in late September that the time and place for dealing with rising petrol and diesel costs was the Budget, but would not give details on whether the freeze would be extended again.
+
+Energy bills
+
+Household energy bills are set to see their biggest rise in four years in January, with a typical annual bill forecast to jump by Â£276.
+
+There has been speculation, external that Healey is planning energy bill help for households on certain benefits.
+
+Mansion tax
+
+The High Value Council Tax Surcharge - dubbed the mansion tax - was announced in last year's Budget and will apply to properties in England valued above Â£2m from April 2028.
+
+There had been speculation that the government was considering extending it to properties worth more than Â£1.5m. However, reports now suggest, external Healey has ruled this out.
+
+Cutting red tape
+
+Healey has said the government plans to slash "form-filling and pointless paperwork" to save UK businesses up to Â£800m.
+
+Ministers have said the proposed changes in regulations will reduce unnecessary bureaucracy for businesses.
+
+In the first three months of the year, the UK's economy grew by 0.6%, while in the  April-to-June quarter it grew by 0.5%.
+
+The most recent data showed the economy grew by 0.1% in August after growth of 0.4% in July, with both figures stronger than expected.
+
+Analysts say the UK economy is proving resilient in the face of energy price shocks caused by the US-Israel war with Iran.
+
+Energy prices jumped after the conflict led to the effective closure of the Strait of Hormuz, a key waterway for oil and gas trade.
+
+Economists expect UK growth to slow in the months ahead as those costs continue to weigh on households and businesses.
+
+Prices for goods and services are still rising faster than wanted. Inflation hit 3.1% in the year to August, the highest rate in five months and above the Bank of England's 2% target, driven by higher petrol and diesel prices.
+
+The Bank of England held interest rates at 3.75% for the sixth time in a row in September, but said they were likely to rise if high energy prices persist.
+
+The Budget speech usually starts at about 12:30 UK time - after Prime Minister's Questions - and lasts about an hour.
+
+It will be broadcast live on the BBC iPlayer and on the BBC News website.
+
+The Leader of the Opposition, Conservative MP Kemi Badenoch, will respond to the speech in the House of Commons.
+
+MPs debate the measures for four days, before voting on them.
+
+If approved by MPs, tax changes can come into effect immediately.
+
+However, the government must pass a finance bill to make them permanent.
+
+Do you have any views, comments or questions about this story?
+
