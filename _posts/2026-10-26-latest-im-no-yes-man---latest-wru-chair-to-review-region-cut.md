@@ -1,0 +1,105 @@
+---
+layout: post
+title: "Latest: 'I'm no yes-man' - latest WRU chair to review region cut"
+date: 2026-10-26T08:00:11
+author: "badely"
+categories: [Sports]
+tags: []
+excerpt: "Lyndon Faulkner is not in his role yet but is already intent on getting to grips with both the WRU's finances and plans to cut a region."
+image: assets/images/4027ec3f87e5010ad76d78d225ccf678.jpg
+---
+
+Here’s what you need to know: Lyndon Faulkner will be formally elected as WRU chairman in November
+
+New Welsh Rugby Union chair Lyndon Faulkner has confirmed he will review the controversial plan to cut a professional club in Wales.
+
+The millionaire business magnate and former rugby player does not officially start his role until next month.
+
+But he has already drawn up a list of priorities to get to grips with, including a review of the future number of regions and the union's "worrying" financial performance.
+
+Faulkner - the nephew of Wales great Tony 'Charlie' Faulkner - hit back at suggestions he has been appointed to simply wave through the highly contested shake-up of professional rugby which will reduce the number of regions from four to three in 2028.
+
+"There's talk out there that whoever took this job was under the condition that they can't talk about that [regional shake-up] but that's absolutely incorrect," said Faulkner.
+
+"I wouldn't have taken the job with those conditions or if it were me needing to be a yes man. That's not me."
+
+In his first interview since accepting the role, Faulkner admitted he was not aware of the full extent of the WRU's debt until it was announced last week.
+
+"I feel it's my role to review everything we've got going on, challenge it, probe it and hopefully bring my experience to bear where I feel we can do things better.
+
+"I haven't done what I've done in business by not doing that."
+
+Asked if he would be prepared to row back on the WRU's decision to cut a region, Faulkner replied: "Absolutely - and that's on anything I see."
+
+WRU bosses under pressure to resign after Â£18m loss
+
+Scrum V: Is Welsh rugby living beyond its means?
+
+WRU publishes data on why west Wales team will be cut
+
+The 66-year-old is a fan of any potential Anglo-Welsh competition, having played in a similar competition for Pontypool in the 1980s, and broadly agreed with the WRU's decision to rescue Cardiff. 
+
+Faulkner will not be part of the WRU executive team, but he will chair the board and while he does not make the final decisions, he will wield major influence.
+
+"They picked me because of my experience so it would be foolish to not take consideration of what I say," he said.
+
+He is "empathetic" to the feelings of distrust from Ospreys and Scarlets - the two sides most at threat from closure - and was eager that a review would not prolong any decision over the regional shake-up which, he admitted, had already dragged on.
+
+He said: "We've got four regions, all with their history in our great game. So I am understanding of the emotions that it drives. At the end of the day, we've got a review to do and then look at how that comes out."
+
+Faulkner has plenty of experience of turning around the fortunes of struggling businesses.
+
+The WRU may not be failing but, speaking at the Arms Park before a Super Rygbi Cymru match, Faulkner visibly grimaced when asked about the Â£18m loss posted for the latest financial year.
+
+"That was quite a surprise to me because the previous finances didn't look that bad, but they are worrying," he said.
+
+"So there is an absolute business aspect that has to be fixed and without that, we haven't got the right investments to go where we need the investments to go. 
+
+"There are no simple reasons, but there will be things we change or improve that will make a difference to those numbers, to manage costs and get revenue in. 
+
+"There's probably not a company in the UK at the moment, unless you're in oil and gas, that's not having some of the same issues with utility bills, minimum wages, national insurance or cost of food."
+
+Faulkner watched games in Cardiff and Swansea on Saturday
+
+Coming from a famous rugby family, Faulkner made a name for himself after a knee injury ended his playing career, working for and eventually owning Welsh technology company Nimbus.
+
+He talked Richard Branson into investing in CDs and then succeeded Robert Maxwell as owner of the business he later floated on the New York stock exchange.
+
+He helped launch the Xbox and Microsoft Office before making his fortune trading and investing with some of the biggest tech companies in the United States - and even featured on Apprentice-style TV show The Mentor.
+
+"$100m doesn't frighten me," he quipped.
+
+But while Faulkner joked that not only his wife, but also close friends questioned his decision to get involved in the chaos of Welsh rugby, there was a heartfelt belief he can help provide solutions.
+
+And he admitted he was frustrated by the "noise" generated by those voicing opinions "from the side of the ring" but unwilling to roll up their sleeves.
+
+Swansea council leader Rob Stewart, ex-player Alex Cuthbert and businesswoman Hayley Parsons all called on WRU bosses to resign after the reported financial loss last week.
+
+"Let's be honest, I'm putting my impeccable professional reputation on the line here," admitted Faulkner.
+
+"But I'm actually getting in the ring. It frustrates me there's a lot of voices out there telling everybody what to do, but many of those voices are not prepared to actually get in the fight - and that list is quite extensive.
+
+"It's also pretty distracting from the playing side. There are positive things happening, but we need people to support."
+
+He added: "I don't need a job. I love Welsh rugby and this is purely motivated around trying to make a difference. I can apply all the things I've done in business but as an ex-player, I also understand rugby.
+
+"There's no shortage of people telling me what we should be doing, but I think everybody in Wales wants us to do well, on and off the field. That's my goal."
+
+Faulkner twice faced Australia with Pontypool in 1981 and 1984
+
+Criticisms of his predecessor Richard Collier-Keywood were that he neither lived in Wales nor had any grounding in Welsh rugby. The merits of those arguments can be debated, but cannot apply to Faulkner.
+
+As a centre, he played in the fearsome Pontypool team of the 1980s that was among the best in the UK and included the likes of Graham Price, Eddie Butler and David Bishop.
+
+He won the Welsh Cup, represented Monmouthshire and twice faced Australia. 
+
+And while Wales honours eluded him behind the likes of Mark Ring and Dai Richards, Faulkner was shaped by working under inspirational coach Ray Prosser.
+
+"He was an amazing man and there's a whole mix of emotions and things you learn under coaches like that," he recalled.
+
+"I've always believed in the skills rugby teaches you, not just on the field but teamwork, camaraderie, competition, winning. 
+
+"And frankly, my success in business was taking many of those things to a business environment, building a team, having everybody look after each other's back and being tough."
+
+While his uncle 'Charlie' Faulkner was a mainstay of a legendary Wales team of the past, Lyndon - whose son is finding his feet as a flanker in the Cardiff pathway - clearly believes he can be part of galvanising Welsh rugby's future.
+
