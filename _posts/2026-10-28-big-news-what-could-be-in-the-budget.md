@@ -1,0 +1,105 @@
+---
+layout: post
+title: "Big News: What could be in the Budget?"
+date: 2026-10-28T09:25:19
+author: "badely"
+categories: [News]
+tags: []
+excerpt: "Chancellor John Healey will set out his plans for UK taxes on 28 October."
+image: assets/images/a591e246da63b614931e05a8da7d36ce.jpg
+---
+
+Experts revealed that Chancellor John Healey will set out Labour's tax and spending plans when he delivers his first Budget at around 12:30 on Wednesday.
+
+The speech, which usually lasts about an hour, will be broadcast live on BBC iPlayer and on the BBC News website.
+
+He and Prime Minister Andy Burnham are hoping to give households "breathing space" amid the ongoing high cost of living and they have already announced measures to change gas bills. 
+
+But Healey has also refused to rule out some tax increases to potentially pay for support he could distribute elsewhere. 
+
+The government has run an unusually tight ship, preventing policies leaking out ahead of time, but here are the key measures expected.
+
+LIVE: Follow all the Budget coverage
+
+Household energy bills are set to see their biggest rise in four years in January, with a typical annual bill forecast to jump by Â£276.
+
+Healey has announced that standing charges for household gas bills will be removed for about 23 million homes. These charges are fixed daily fees that are paid by households no matter how much gas they use, and average Â£108 a year.
+
+The government says energy regulator Ofgem will aim to deliver the removal of these charges in 2027 or "as soon as possible after".
+
+However, this will be offset by higher unit costs for gas. Overall the Treasury estimates that three-fifths of households will see an average saving of Â£45 a year. Lower gas users will save more but higher users will end up with bigger bills than they have now.
+
+The government also plans to remove tariffs from 100 food items, which it calculates could save households up to Â£21 per year - or 40p a week - when combined with existing tariff suspensions that were introduced in June.
+
+The BBC understands the chancellor will keep fuel duty frozen at the Budget and keep in place the 5p fuel duty cut introduced by Rishi Sunak in 2022, as first reported by The Sun, external. 
+
+Household energy bills forecast to see biggest rise in four years
+
+The Budget will contain more details on Burnham's planned Your First Home scheme, aimed at helping first-time buyers in England to purchase a property.
+
+The scheme will allow people to buy a new-build home with a deposit of 2.5%. It would provide them with a loan worth 20% of their property's value to help pay for the purchase.
+
+The threshold for eligible buyers will be those with combined incomes of Â£110,000 outside London, and Â£140,000 in the capital. 
+
+Burnham announces scheme to help first-time buyers onto housing ladder
+
+A minimum wage increase will be announced in the Budget, but 18- to 20-year-olds are set to see lower increases than in previous years, the BBC understands.
+
+Pay for younger workers will rise in line with the increase in minimum pay for employees aged 21 years and over.
+
+ The increase for younger workers is lower than that seen in the previous two years
+
+However, the increase for younger workers is lower than that seen in the previous two years, when Labour raised the rate to meet a manifesto promise that it would remove "discriminatory age bands" with all adults entitled to the same minimum wage.
+
+Minimum wage set to rise but 18-20 year-olds will not get bigger increase
+
+Pensioners who only get an income from the state pension are expected to be shielded from paying income tax through a new personal allowance. 
+
+But the full state pension is set to rise above the current Â£12,570 threshold, to Â£13,036.40 - which would force one million people to pay tax on it. 
+
+In his Budget, Healey will explain how these pensioners will be exempted.
+
+State pension likely to top Â£13,000 a year as UK wage growth slows to 3.9%
+
+An easy target for a Labour chancellor, bank bosses are expecting Healey to raise the amount of tax they pay in order to offer support with energy bills and costs affecting households elsewhere.
+
+Top executives told the BBC they believe the chancellor could reverse a Conservative cut to the surcharge banks pay on their profits, which lowered it from 8% to 3%. Healey could also raise the levy banks pay on the size of their balance sheets. 
+
+Banks expect to be hit with higher taxes in Budget
+
+Online retail giants such as Amazon and eBay are expected to be made responsible for collecting tax owed by traders using their platforms, according to The Times, external.
+
+The money raised is expected to be used by the government to cut business rates for High Street shops, by raising the threshold at which small companies start paying rates from Â£12,000 to Â£18,000.
+
+He is also planning support for small breweries.
+
+Healey has also said the government plans to slash "form-filling and pointless paperwork" to save UK businesses up to Â£800m. Ministers believe changes in regulations will reduce unnecessary bureaucracy for businesses.
+
+Chancellor says he will cut 'pointless paperwork' to save businesses up to Â£800m
+
+Healey has repeatedly praised the UK's resilience. The UK is the fastest growing G7 country so far this year, and performing better than expected in the face of energy price shocks caused by the US-Israel war with Iran.
+
+But UK growth is expected to slow in the months ahead as those costs continue to weigh on households and businesses.
+
+Prices for goods and services are still rising faster than wanted. Inflation hit 3.5% in the year to September, the highest rate since October 2025 and above the Bank of England's 2% target, driven by higher petrol and diesel prices.
+
+Healey's aim in the Budget is to give people "breathing space" to help them cope with the challenges ahead.
+
+When the chancellor sits down, the Office for Budget Responsibility (OBR) will publish economic forecasts for the next five years.
+
+It will set out whether the government is likely to meet the rules it has set for managing the public finances, and how the economy is expected to perform.
+
+Its judgement on the government's plans is keenly watched by financial markets and can have a significant impact on confidence, in turn affecting government borrowing costs. 
+
+Leader of the Opposition Kemi Badenoch will respond to the speech in the House of Commons.
+
+MPs then debate the measures for three days before voting on them.
+
+If approved by MPs, tax changes can come into effect immediately.
+
+However, the government must pass a finance bill to make them permanent.
+
+Do you have any views, comments or questions about this story?
+
+Sign up for our Politics Essential newsletter to keep up with the inner workings of Westminster and beyond.
+
