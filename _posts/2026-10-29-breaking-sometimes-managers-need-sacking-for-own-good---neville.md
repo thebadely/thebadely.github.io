@@ -1,0 +1,71 @@
+---
+layout: post
+title: "Breaking: Sometimes managers need sacking for own good - Neville"
+date: 2026-10-29T11:00:53
+author: "badely"
+categories: [Sports]
+tags: []
+excerpt: "Gary Neville says managers sometimes need to be sacked 'for their own good' as Manchester United persist with under-pressure boss Michael Carrick."
+image: assets/images/c8bccab4a82252257d2eeb45bfadc1fb.jpg
+---
+
+According to new developments, Michael Carrick has guided Manchester United to just one Premier League win this season
+
+Gary Neville says managers sometimes need to be sacked "for their own good" as he reflected on Manchester United's decision to persist with under-pressure Michael Carrick.
+
+United are 16th in the Premier League, just one point above the relegation zone, following a dismal 3-0 home defeat by Bournemouth on Sunday.
+
+Carrick was widely expected to be sacked after that loss, but the club have opted to give the 45-year-old head coach the opportunity to turn things around, and he will remain in charge for United's trip to Chelsea on Saturday lunchtime.
+
+"I reckon what's happened in the 24 hours after Bournemouth is that they've literally debated it back and forth," former Manchester United captain Neville said on the Stick to Football podcast.
+
+"I don't know this, but they've debated it to the point where they've got themselves into a muddle, and thought, 'we'll just stay with him'.
+
+"I think staying with him is a result of the lack of planning, the lack of probably available options, the lack of decision-making around the two people that probably are available. That's when you're really struggling."
+
+Neville added: "Sometimes a manager needs sacking for their own good. I needed sacking at Valencia. I was happy that they put me out of my misery."
+
+Carrick's position was precarious even before the Bournemouth game after captain Bruno Fernandes criticised the tactics deployed in the 4-1 Champions League loss at Como last week.
+
+Fernandes was dropped for the Bournemouth match, but he and Carrick have since held talks to clear the air.
+
+"We've all been in football dressing rooms, and they're quite brutal places," Neville said.
+
+"If Bruno Fernandes, the captain of the club... if he comes out and questions the manager's tactics after a 4-1 defeat in Como, where he's played like a drain, and he's been playing like a drain for three months, and the rest of them have as well, that is only 1 or 2% of what they're actually saying internally."
+
+United fans sang Carrick's name as he applauded the crowd after the Bournemouth defeat during what Neville called "effectively a farewell lap".
+
+Those fans then booed the players as soon as Carrick went down the tunnel.
+
+This video can not be played
+
+When are Premier League managers most likely to get sacked?
+
+It is understood United's hierarchy have explored the possibility of replacing Carrick, with ex-Newcastle United boss Eddie Howe and former Germany head coach Julian Nagelsmann under consideration.
+
+But, for now, the former Manchester United midfielder is left to bring the group together for Saturday's game at Stamford Bridge, with home fixtures against Roma and Aston Villa to follow before November's international break.
+
+Former Liverpool defender Jamie Carragher said: "I think he can never say publicly, but I think Michael Carrick would want to be put out of his misery. I really do.
+
+"The thought of going into that training ground now... and trying to do that team talk before Chelsea, when you know the players just aren't having it at all.
+
+"Those players know Michael Carrick's not going to be there in two or three weeks. He knows it, they know it, everybody knows it."
+
+Another former United captain, Roy Keane, added: "He needs the players more than they need him. That's football in a nutshell.
+
+"The players know he's gone, but these are the same players who got him the job last year. So they're running the show."
+
+Follow Manchester United on BBC Sounds
+
+Pre-match, post-match and topical United content
+
+ 
+
+Subscribe and listen for everything you love about the Red Devils
+
+Carrick and Fernandes hold clear-the-air talks
+
+Latest Manchester United news, analysis and fan views
+
+Ask about Man Utd - what do you want to know?
+
