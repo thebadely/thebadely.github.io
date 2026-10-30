@@ -1,0 +1,79 @@
+---
+layout: post
+title: "Big News: Syrians struggle with soaring prices as crisis challenges post-Assad recovery"
+date: 2026-10-30T06:02:23
+author: "badely"
+categories: [News]
+tags: []
+excerpt: "End of subsidies and rising prices drive discontent, testing support for Ahmed al-Sharaa's government."
+image: assets/images/49f137f8023954c9cf35836520151b95.jpg
+---
+
+It has been recently reported that Many Syrians say their economic situation has worsened in the last two years amid a cost-of-living crisis
+
+Last month, protests erupted in squares and streets across Syria. People burned tyres, blocked roads and chanted slogans, angry at the government's decision to raise fuel prices again. It was the largest show of discontent yet since President Ahmed al-Sharaa came to power two years ago. 
+
+Speaking on a Syrian TV channel, a man said he still supported the authorities but that his situation had deteriorated to the point where he could no longer afford to buy bread. "Honestly," another said, "we have begun to fear what kind of new decision each morning will bring".
+
+The increase was the latest in a series of measures people blame for a growing cost-of-living crisis. For many Syrians, life, financially, has worsened since rebels led by Sharaa ousted President Bashar al-Assad, ending five decades of his family's brutal rule and more than 13 years of a devastating civil war. 
+
+Catapulted to the presidency, Sharaa has, since then, led Syria's transition and efforts to revive a broken economy after a long period of mismanagement, isolation and conflict.
+
+There was never any doubt about how challenging this would be. But as they celebrated Assad's overthrow and their new freedoms, Syrians, perhaps unrealistically, hoped things would quickly improve. That, however, has not materialised, and the handling of the economy has frustrated many here.
+
+From essential bills to basic items, the cost of virtually everything has gone up. And many saw a further and unexpected rise in fuel prices as a sign of a government out of touch with its country. "We don't want roundabouts. Every day they build a new roundabout. People stood by you and are still with you," another protester said, addressing Sharaa, "but this will [make] things explode".
+
+Days later, amid calls for further demonstrations, the increase was revoked.
+
+"We eat more sparingly now. We no longer buy chicken once a week," Fatima Saleh Eid says
+
+In a suburb of Damascus, I joined Fatima Saleh Eid at an open-air market for her weekly shop. At 50, she works as a cleaner to help support her family. "We've suffered a lot," she said. Her husband had recently been hired by a ceramic factory after a year unemployed. He is among the lucky ones, as many are struggling to find work. In some streets, men gather in the hope of meeting someone offering a day job; often, they wait in vain.
+
+Since coming to power, the government has slashed long-held subsidies as part of an austerity drive. The price of bread, a Syrian staple, has increased tenfold. Fuel prices are now in line with the international average, which has put pressure on farmers and made transportation more expensive, while the cost of electricity has gone up several hundred per cent for some. 
+
+The authorities, in response, have adjusted public sector wages, including pensions; unsurprisingly, the effect of the additional pay for people has been lost as prices keep rising.
+
+"We eat more sparingly now. We can't afford chicken anymore nor meat. We only eat vegetables but even [that is] expensive," Fatima said. "Inshallah [God willing] things will get cheaper."
+
+As she spoke, around a dozen people, of all ages, gathered around us. Nobody disagreed. One elderly man also said he had stopped eating meat. Another, in his 20s, told me his family were no longer able to pay the medicine for his father, who had a heart condition. One young woman said she and her four children could only afford to have a proper meal every two days.
+
+Assad regime planned US journalist's kidnap for weeks, BBC finds
+
+Global charity withholds report into its role in Syria's 'disappeared' children
+
+The phone book that led us to Assad's spy chief in hiding
+
+Marwan Bashour, a 68-year-old pensioner, said his monthly pay was around $90 (Â£70), which is the public sector minimum wage. "It's not enough at all," he said. 
+
+The United Nations Development Programme said 90% of Syrians were in poverty last year. Marwan told me how he made ends meet. "Sometimes I borrow money, sometimes I sell things from my house," he said, "like an old pot or plates that we never used, gifts that were given to us. I've even had to sell furniture".
+
+There have been other pressures too. Like many Syrians, Marwan used to rely on help from aid agencies. But, for him, that has stopped, as organisations have been forced to cut back services because of funding cuts. Syria has also not been immune to the impact of the US-Iran war. The government said the fuel increase that led to the protests was, in part, due to the pressure on energy markets because of the conflict.
+
+Nabil al-Remhein says he has cut back on lighting in his house because of high electricity bills
+
+I met another pensioner, Nabil al-Remhein, who is 63. None of his four adult children could find work. "We're now having only one meal a day. It's tragic," he said. His face looked tired. "It isn't only me. It's the entire population. We're all hungry... We're suffocating under rising costs."
+
+Nabil took me to his house, in a poor area of narrow alleys and modest buildings. There, I met his wife. She was doing her chores in the dark. "I'm afraid of the electricity bill," Nabil said. "We've cut back on lighting up the house and we [also] turn off the fridge for about five hours a day". Still, their latest bill was about a third of the family's income. He has not paid it.
+
+Nabil al-Remhein's wife does her chores in the dark in their house
+
+Dr Haid Haid, a Syrian columnist and consulting fellow at the London-based think tank Chatham House, said a "significant portion of the population" was worse off than before Assad's fall. The economic crisis, he told me, was "one of the most dangerous issues" for the government, and that some of it was of its own making.
+
+"Part of [the crisis] is related to the lack of [financial] resources and the legacy left by the former regime," he said. "But it's also the direct impact of the new policies that are moving [Syria] towards a liberal and free-market sort of economy, which don't take into account the impact on people".
+
+A spokesman for the Syrian economy and industry ministry told me no-one was available for an interview.
+
+Jobar, on the outskirts of Damascus, still lies in ruins nearly two years after the fall of the Assad regime
+
+Sharaa has, of course, scored some important gains. International sanctions imposed in the Assad-era have been lifted, and the US has removed the country from its list of state sponsors of terrorism. Security remains volatile and a source of concern, but the country feels more stable. 
+
+And the president continues to consolidate his power and, earlier this year, retook the resource-rich north-east from a Kurdish-led militia. (The Druze still control areas in the south, where they want to create an autonomous state; Israel occupies parts of the south-west.)
+
+But real economic recovery is yet to happen. Large parts of Syria remain in ruins after a war that killed half a million people and displaced half of the population. Unable to afford rent, many families live in partially destroyed buildings. The World Bank says reconstruction costs are estimated at $216bn and, without foreign help and investment, it will be impossible for Syrians to rebuild.
+
+Samir Aita, a Syrian economist who heads the Circle of Arab Economists, a Paris-based independent think-tank, said the crisis was a "combination of policies with the [government] not managing expectations and creating unrealistic hopes". When I asked him about how he felt about the future, he said: "It's unsustainable. If they don't change, I fear chaos."
+
+Exhausted after years of conflict, Syrians, left with almost no choice, remain hopeful. Abu Mahmoud, a cab driver, told me: "They inherited the country bankrupt, so people need to be patient. Things don't happen overnight."
+
+Additional reporting by Lana Antaki, Samantha Granville and Neha Sharma
+
