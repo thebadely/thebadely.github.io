@@ -1,0 +1,129 @@
+---
+layout: post
+title: "Update: Trump's tariffs could shutter this Canadian town - its residents are fighting to save it"
+date: 2026-10-31T02:39:25
+author: "badely"
+categories: [News]
+tags: []
+excerpt: "A century-old paper mill in Témiscaming, Quebec is indefinitely closed after the US imposed 50% tariffs on its products, putting hundreds out of work."
+image: assets/images/18b8cc89224226a776e3c48f59969978.jpg
+---
+
+Let's dive into the details: This video can not be played
+
+"We're going to fight" - How a paper mill's uncertain future could devastate tiny Quebec town
+
+As you cross the Ottawa river into TÃ©miscaming, Quebec, the paper mill takes up much of the horizon.
+
+The town itself was built over a century ago, around the mill and the region's forests  filled with pine, birch, spruce and fir. Now, the main employer and economic anchor sits idle after trade talks broke down between Canada and the US and President Donald Trump imposed more tariffs on the country.
+
+Most of the millâs 360 employees are out of work, kept afloat for the moment with partial pay from government tariff-relief. 
+
+For some, like Nadine Suley, the shuttering of the mill could mark not just a lost livelihood, but a lost way of life. 
+
+She is not "a city girl", and is heading out moose hunting later to take advantage of the short season, like much of the town. She quips they'll all need the free meat provided by the animals this year. 
+
+"It's not just a job. It's our home," Suley says, adding that the US tariffs on her town feel like "a personal attack". 
+
+In early October, American owner RYAM went ahead with an "economic shutdown" of the mill for "an indefinite period". 
+
+Property values in TÃ©miscaming fell almost overnight, and "For Sale" signs dot the yards of modest middle-class homes that make up most of the town. 
+
+There are fears that essential service people - from grocery store clerks to the doctors at the small local hospital - could also be on their way out.
+
+"If the mill goes down, it'll turn into a ghost town," says Ronnie Raymond, who like many in the town comes from a family of mill workers. 
+
+"There'll be nothing, nothing left. There's no work for anybody, really. It's scary."
+
+The paper mill has served as the economic engine of TÃ©miscaming for over a century.
+
+At a high level, Canada's economy has weathered the ongoing trade war with the US, its largest customer. The national unemployment rate has remained largely steady at around 6.5% since Trump's tariffs were first implemented. It's been coupled with tepid but consistent economic growth.
+
+But a closer look at the numbers shows pockets of deep pain in industries directly hit by US tariffs of up to 50%, like steel, aluminium, automobiles and - in the case of  TÃ©miscaming - lumber, pulp and paper. It raises questions about whether the Carney government is doing enough to help those struggling while a trade deal remains elusive.
+
+"If there was 10% of job loss in Toronto or Montreal or Quebec City or Vancouver, it'd be all over the news, and it'd be a lot of pressure on the governments to do something,â says StÃ©phane Lefebvre, an employee and union leader, whose father and grandfather also worked at the mill. 
+
+What tariffs has Trump introduced and why?
+
+White House lifts tariffs on some Canadian goods as midterm elections loom
+
+That economic pain could have ripple effects on the entire forestry industry in the region, including saw mills and trucking. One local contractor told the BBC he has already had to lay off 13 people.
+
+The last time the town faced a threat this existential was in 1973, when the mill's then-American owner threatened to shut it down, prompting the local workers and managers to come together and purchase it.
+
+They turned it into Tembec, a Quebec-owned, international company with branches across North America and France. 
+
+The workers now hope to do it again, mobilising a coalition of locals who want to buy the plant back from RYAM, which purchased it in 2017. 
+
+"We're hoping that lightning will hit twice," Lefebvre says, speaking inside the town's union hall.
+
+But he contends that they cannot do so without significant help from Prime Minister Mark Carney and the Quebec government, either in the form of tariff relief or financial support. 
+
+Suley notes that the prime minister has placed emphasis on "buy local" and supporting Canadian workers since he was elected. Backing the town's bid to buy back the mill, she says, would be a way for Carney to fulfil that pledge. 
+
+In an email to the BBC, RYAM said it would not comment on a potential sale of the plant or any prospective buyers.
+
+StÃ©phane Lefebvre, his father and grandfather all worked at the paper mill in TÃ©miscaming.
+
+Mayor Alain Gauthier doesn't blame RYAM for its decision. He calls US tariffs "a bomb to shut down our manufacturing in Canada". 
+
+He wants Ottawa to retaliate with its own duties on the board products coming into Canada from the US, currently tariff-free.
+
+And he says that while politicians have said Canada is in an economic war with the US, "in reality we see absolutely no evidence of war measures being taken". 
+
+"We feel we got into a war with kid's water guns to fight back." 
+
+Some, like Lefebvre, feel that forestry has taken a back seat in the fight to save other tariffed industries like steel and autos.
+
+This month, Industry Minister MÃ©lanie Joly threatened Stelco - one of Canada's largest steelmakers - with financial penalties or a forced asset sale should they go ahead with the planned layoffs of some 500 workers due to steel tariffs pressure. 
+
+Stelco in Hamilton, near Toronto, is owned by US-based Cleveland-Cliffs, which committed to keeping jobs in Canada when it bought the firm in 2024. 
+
+Last week, Carney and Ontario Premier Doug Ford announced nearly C$9bn ($6.4bn; Â£4.8bn) to help Ontario's steel and auto sector. The funds will be used to help the industries modernise, strengthen domestic demand and open new markets overseas, they said.
+
+SÃ©bastien Lemire, the elected MP for TÃ©miscaming from the Bloc QuÃ©bÃ©cois party, told the BBC that he is "very concerned and worried" about what he calls inaction from the Carney government to support the town and Quebec's forestry industry more broadly.
+
+A spokesperson for Minister Joly told the BBC in a statement that the government has made available $400m to support the forestry sector in rural and remote areas.
+
+It has also launched a programme to help businesses impacted by tariffs to access cash-flow while they work to pivot away from US markets. 
+
+On the TÃ©miscaming mill, the spokesperson said that the government "is actively working with all parties involved to find a viable solution to the issues facing the company, while responsibly managing Canadians' dollars."
+
+TÃ©miscaming residents gathered for a Union-led rally to support the mill's workers and draw attention to the woes of the lumber industry. 
+
+In August, after the breakdown in trade talks, the US imposed 50% duties on a some C$28bn of Canadian goods, including wood and paper products like pulp, stationery and boxes. 
+
+Canada in response imposed its own "dollar-for-dollar" counter-tariffs. 
+
+The TÃ©miscaming mill, which produces paperboard used in frozen-food packaging across North America and in the scratch-off lottery tickets commonly found at convenience stores, sends roughly 75% of its production to the US.
+
+Trump argues these import taxes boost US manufacturing and create jobs - essentially seeking to protect US workers who could face similar fates to those in TÃ©miscaming. 
+
+Frank Dottori has been through all of this before. 
+
+Now in his 80s and retired in TÃ©miscaming, he was an engineer at the mill that was instrumental in organising its employees in the 1970s to take a 10% cut in order to collectively purchase it. He went on to become CEO.
+
+Their ambitions were seen as foolish at the time, and he recalls being "politely ejected" by the Quebec premier when he first came knocking for support. 
+
+But they prevailed with the help of the labour union and an ex-employee with executive experience and plenty of swagger. Dottori attributes their success to this person's forceful charisma.
+
+Dottori said the new generation of workers need someone just as bold.
+
+"Does the local group have that? Highly unlikely. Can they get it? Yeah, if they organise themselves," he said. 
+
+Frank Dottori led the effort to buy the TÃ©miscaming mill in the 1970s during a period of economic hardship 
+
+It is also imperative, he says, that US tariffs be lifted to restore the mill's long-term economic viability, at least in the short term.
+
+Many workers in TÃ©miscaming say they are placing some hope in the upcoming US midterm elections to put pressure on Trump â whose approval ratings have fallen among Americans, according to polls â to ease some of his tariffs on Canada.
+
+"We'll take any help we can get," Suley says, adding: "There are Americans that care what's going on, and it's affecting them too."
+
+There are signs the Trump administration is taking note of that pressure, with some tariffs on Canadian goods lifted last week after lobbying from Republican Maine Senator Susan Collins, who is running for re-election in November. Those changes don't apply to products made at TÃ©miscaming's mill, however.
+
+Suley and others hope a resolution will come quickly, before winter, when sub-zero temperatures could freeze equipment at the idle plant, causing damage that would make reopening even more difficult.
+
+In the meantime, Lefebvre says he is committed to making the dream of local ownership of the mill a reality, regardless of what happens.
+
+"We're in Game Seven right now," he says. "We're gonna play till the last whistle."
+
