@@ -1,0 +1,75 @@
+---
+layout: post
+title: "Big News: How the downfall of Serbia's Vučiċ mirrored that of Hungary's Orbán"
+date: 2026-11-01T00:55:06
+author: "badely"
+categories: [News]
+tags: []
+excerpt: "Defeat for Serbia's Aleksandar Vučiċ in last weekend's vote was a carbon copy of Viktor Orbán's fall in Hungary."
+image: assets/images/10d81f5a4a0d0e06bdf1e6801804bebb.jpg
+---
+
+According to new developments, Hungarian Prime Minister Viktor OrbÃ¡n and Serbian President Aleksandar VuÄiÄ shared more than a taste for Balkan pastries
+
+When they met in northern Serbia last November, Serbian President Aleksandar VuÄiÄ and Hungarian Prime Minister Viktor OrbÃ¡n could hardly have guessed they would both be out of power within a year.
+
+Both were ousted by popular movements - OrbÃ¡n fell first, in April, defeated by PÃ©ter Magyar's Tisza party. Then last Sunday a student movement less than two years old won Serbia's parliamentary elections by a landslide.
+
+The Tisza party in Hungary and the Student List in Serbia look very different - Tisza is centred on the personality and energy of its leader, while the students in Serbia insist they have no leadership. 
+
+But the huge turnout - 79% in Hungary and 69% in Serbia, was driven by tech-savvy young people in both countries. They used AI tools to crunch numbers, identify threats to the vote, and mobilise tens of thousands of election monitors to prevent intimidation and electoral fraud by the governing parties. 
+
+Opposition activists from Hungary shared election monitoring techniques that contributed to the result in Serbia
+
+Mobilisation of voters, and the role of election monitors, played a big role in the opposition victory in both countries.
+
+Last weekend, the DE civic action group in Hungary sent 70 election monitors to Serbia, to work with students' movement representatives, visiting polling stations in the northern Serbian province of Vojvodina. 
+
+During the summer, even before the election was called, they held workshops to share their experience and methods from the Hungarian election with the Serbian students. 
+
+A key technique was to identify "infected" polling districts in advance - places where the surprisingly high number of votes for the governing party at previous elections suggested that voter intimidation or "chain voting" techniques were used.
+
+"From around 16:00 on election day, we noticed groups of masked hooligans - VuÄiÄ supporters - gathering near voting stations," PÃ©ter Klemm, a student activist from Subotica, told the BBC. "So we sent mobile teams, and started filming everything." 
+
+Combined with the "stationary" monitors already in place, 20 to 30 volunteers at each threatened polling station acted as a strong deterrent, he believes, and prevented intimidation or fraud.
+
+OrbÃ¡n in Hungary, VuÄiÄ in Serbia, both looked invincible. Both were powerful leaders, in office for 16 and 14 years, who had taken over state institutions and established business empires overlapping the two countries.
+
+Orban chose cheese, VuÄiÄ meat, when they sat down to a quick lunch of traditional burek pastries at a small, popular town centre bakery in Subotica almost a year ago.
+
+They continued to a local winery, to talk about oil and other business deals - the planned Hungarian purchase of Serbia's Nis oil refinery. The two nationalist leaders found much in common, in business and politics, not least their friendship with Vladimir Putin in Russia and Chinese President Xi Jinping, and their strong support for Milorad Dodik, the separatist leader of the Bosnian Serbs. 
+
+A high-speed railway between Belgrade and Budapest is being built with Chinese finance and know-how.
+
+Serbian President Aleksandar VuÄiÄ and his Russian counterpart, Vladimir Putin, made simultaneous visits to China in 2025
+
+The parallels between the fall from power of the two men are extraordinary. Aleksandar VuÄiÄ admitted defeat at exactly 21:30 on Sunday evening, just as Viktor OrbÃ¡n did on 12 April. Few observers expected either leader to concede peacefully.
+
+There has been speculation this week that VuÄiÄ spoke to OrbÃ¡n twice on Sunday night to ask his advice - once before he conceded, and again at 23:15. And that OrbÃ¡n convinced his Serbian ally not to use force. 
+
+VuÄiÄ denies that he spoke to OrbÃ¡n before he made his announcement, but acknowledges the later conversation. Viktor OrbÃ¡n, contacted by the BBC, declined to comment. 
+
+An hour before polls closed in Serbia, masked and hooded vigilantes took up position in central Belgrade. During voting, similar groups were photographed at many polling stations, and blocked by election monitors.
+
+There is another strange numerical similarity. The Student List will have 140 seats in the 250-seat Serbian parliament, the same number PÃ©ter Magyar's Tisza party won in the 199-seat Hungarian parliament.
+
+Magyar was the only European leader to ring the students directly to congratulate them that evening - and probably the only one who had their number.
+
+"It is always good to hear that the story of Tisza could provide an inspiration for other nations," the Hungarian prime minister told the BBC.
+
+"The result of the Hungarian election clearly showed us that what we are doing here is right," the head of the Student List, Ilija SrdanoviÄ, said on the eve of the vote.
+
+SrdanoviÄ was one of those PÃ©ter Magyar spoke to that Sunday evening.
+
+There has been speculation that Victor OrbÃ¡n persuaded Aleksandar VuÄiÄ not to use force, during a telephone call on election day
+
+OrbÃ¡n, 63, and VuÄiÄ, 56, may now both face prosecution for corruption and abuse of power. 
+
+The judicial machinery in both countries is similar. Serbia's special prosecution service for organised crime, JTOK, and Hungary's brand new special prosecutors, known as NVVH, have similar powers. They could prove useful to each other. 
+
+Hungarian companies close to OrbÃ¡n were also involved in the Novi Sad railway station construction project. The collapse of the station's canopy on 1 November 2024 - blamed on corruption, as well as negligence - killed 16 people, and acted as the catalyst for the Serbian student movement. 
+
+"There was a perception in Europe that the longer the OrbÃ¡n and VuÄiÄ regimes stayed in office, the stronger they got," Ãron Timar, founder of the DE civic action group in Hungary told the BBC. 
+
+"In fact they got weaker. And once society found its voice and rose up, there was no way of stopping it."
+
