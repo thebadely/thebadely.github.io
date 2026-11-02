@@ -1,0 +1,41 @@
+---
+layout: post
+title: "Breaking: Wizz Air flight from London in emergency landing after bomb threat"
+date: 2026-11-02T14:35:38
+author: "badely"
+categories: [News]
+tags: []
+excerpt: "A Hungarian fighter jet escorted the aircraft to Budapest after the threat was received mid-air."
+image: assets/images/2ba9affb57a0af4bdbfd4ba7437c05da.jpg
+---
+
+Here’s what you need to know: A file photo of a Wizz Air plane on the tarmac at Ferenc Liszt International Airport in Budapest
+
+A Wizz Air flight travelling from London Luton Airport to Sofia has been escorted by a Hungarian fighter jet to Budapest after a mid-air bomb threat.
+
+The aircraft was forced to make an emergency landing at Budapest Liszt Ferenc International.
+
+Authorities there "carried out the necessary security checks on the aircraft and passengers", a spokesperson for Wizz Air said. 
+
+The airline later confirmed an inspection had been "completed and nothing was found", adding that the plane would depart again shortly. Hungarian Defence Minister Romulusz Ruszin-Szendis confirmed his country provided the fighter jet to escort the flight. 
+
+According to flight tracking website FlightAware, Wizz Air flight 4302 departed Luton at 08:33 GMT and was due to arrive in the Bulgarian capital at 13:25 local time (11:25 GMT). 
+
+But the website said it landed in Budapest at 12:09 local time (11:09 GMT). 
+
+In a post on social media, Ruszin-Szendis said that after receiving the bomb threat, the Wizz Air flight had requested permission to land at the airport in Budapest. 
+
+"Within minutes, a Hungarian Defence Forces Gripen fighter jet took to the skies and provided an escort for the passenger aircraft", he said.  
+
+After this, the jet returned to its base and police took charge of the incident, he added. 
+
+The airline said that after the plane made the emergency landing, it taxied "to a designated stand" where the security checks were carried out.
+
+Wizz Air added that it was "cooperating fully with the authorities", and that the safety of passengers and crew "remains our highest priority". 
+
+Wizz Air plane diverted after 'technical issue'
+
+Wizz Air launches six new routes at Luton Airport 
+
+Airlines cutting fares to lure hesitant customers, says Wizz Air
+

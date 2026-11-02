@@ -1,0 +1,63 @@
+---
+layout: post
+title: "Update: Parents' concerns to trigger urgent checks in A&E"
+date: 2026-11-02T08:52:08
+author: "badely"
+categories: [Health]
+tags: []
+excerpt: "Concerns from staff, parents, carers or the child themselves will trigger an immediate escalation of care."
+image: assets/images/e7c98496760e26368e6c6a77e188668a.jpg
+---
+
+Experts revealed that Two-year-old Finlay Roberts died after spending hours in a crowded hospital corridor. A coroner raised concerns about a lack of basic observations done by busy staff.
+
+A new early warning system is being introduced in hospital emergency departments in England to help busy NHS staff identify sick children who are dangerously deteriorating.
+
+A high overall score means a child needs more urgent attention. Concerns from staff, parents, carers or the child themselves will trigger an immediate escalation of care.
+
+It comes after Health Secretary Yvette Cooper promised to stop "corridor care"  for sick children because of long waits for hospital beds.
+
+The new National Paediatric Early Warning System (PEWS) asks staff to check, log and grade vital signs, such as blood pressure, heart rate and oxygen levels. 
+
+The initiative is designed to save lives ahead of winter, when pressure on the NHS is at its highest.
+
+On the BBC's Sunday with Laura Kuenssberg, Cooper recently talked about the case of two-year-old Finlay Roberts, who died in 2024 after spending hours in a hospital corridor before being discharged.
+
+Cooper apologised to Finlay's parents on behalf of the NHS, saying: "No child should be treated in a corridor. No patient should be treated in a corridor."
+
+Whittington Health NHS Trust, where Finlay waited for treatment, extended its condolences to the family and said it continued to experience periods of exceptional demand across emergency care and, at times, some patients may receive care in temporary clinical areas, including corridors.
+
+A coroner raised concerns about a lack of basic observations done by busy staff, external.
+
+Martha Mills died aged 13 at King's College Hospital in London in 2021
+
+A similar "early warning" system to identify acutely ill adults, including those with sepsis, is already in use in emergency and general NHS hospital wards.
+
+More than 90 hospitals across England have been using the alert system in children's wards, with different age-appropriate assessments available for babies through to teenagers.
+
+The NHS has already said it will expand Martha's Rule to all hospital emergency departments in England. The rule gives patients, families and carers the right to request a rapid review if they are worried that a patient's condition is getting worse and their concerns are not being responded to.
+
+The initiative is named after Martha Mills, who died aged 13 in 2021 after developing blood poisoning, or sepsis, in hospital following a bike accident. 
+
+A coroner ruled that her family's concerns about her worsening condition were not listened to and she would probably have survived had she been moved to intensive care earlier. 
+
+Martha's parents Merope and Paul came up with the idea of the rule in a bid to change the culture that contributed to her death.
+
+A&E units will have a dedicated phone number that can be called to trigger an urgent review of a patient's care.
+
+Duncan Burton, chief nursing officer for England, said the new early warning system for children in emergency departments was an "important next step in improving care for children and young people across England for this winter - and beyond".
+
+He added: "In fast-paced emergency departments, staff need to spot quickly when a child's condition is deteriorating.
+
+"This standardised approach will help them recognise the warning signs, communicate concerns, and make timely decisions when every moment matters."
+
+The early warning system for children, PEWS, is a collaboration between NHS England and the Royal College of Paediatrics and Child Health and the Royal College of Nursing.
+
+Have you been affected by the issues in this story? Share your experience
+
+Martha's Rule rolled out at every A&E department in England  
+
+Thousands of children facing 'catastrophic' waits for NHS community care
+
+Children as young as six going to A&E in mental health crisis
+
