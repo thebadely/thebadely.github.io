@@ -1,0 +1,73 @@
+---
+layout: post
+title: "Big News: Trump signs order to preserve Oval Office as national monument"
+date: 2026-11-06T09:19:57
+author: "badely"
+categories: [News]
+tags: []
+excerpt: "The order comes after Trump made a series of big changes to the decor of the Oval Office and tore down the White House East Wing."
+image: assets/images/7517a15521633aa4029794130f14d527.jpg
+---
+
+According to new developments, US President Donald Trump has signed an executive order that he says will prevent future presidents from making certain changes to the White House Oval Office.
+
+The executive order declares the president's official office, which he has renovated, to be a national monument.
+
+"We're making it a national monument, and it will not be allowed to be touched by anybody, destroyed, ripped down by stupid people, in order to build something in a slightly different shape," Trump told reporters on Thursday.
+
+The order does not prevent future presidents from changing the decor of the famous room.
+
+The document says that it does not "restrict the President's authority to redecorate the monument, select furnishings, or make ordinary operational and security modifications that do not substantially impair the monument's historic structure or architectural character".
+
+American presidents currently have the power to make some changes to the White House but large projects require the permission of Congress.
+
+The order comes months after Trump tore down the entirety of the White House East Wing in a project that has faced legal challenges.
+
+The project was not approved by the US Congress. Construction has continued, with plans to turn the space into a new ballroom. 
+
+How Trump is remaking the White House in his own image
+
+Signing the new executive order on Thursday, the president said: "We like the Oval Office, and it's a symbol, like the White House itself. It's a symbol of our country and the greatness of our country." 
+
+He added that world leaders who have visited in recent months have complimented his decorative changes to the room.
+
+Trump said the White House and the Oval Office had been in need of repairs before his changes, calling it "badly damaged". He described broken windows, cracked walls and broken stone. 
+
+Many of the noticeable changes, though, were cosmetic, including a large gold plaque reading "Oval Office" outside the space, paving over the Rose Garden and adding a new helicopter pad.
+
+Trump said the order would "make it impossible for anybody ever to destroy this incredible space". 
+
+The Oval Office in 2025 during Trump's second term in the White House
+
+The Oval Office in 2024 during Joe Biden's tenure 
+
+The office in 2015 during Barack Obama's time in the White House 
+
+It is unclear whether this action could simply be reversed by a future president or a legal challenge.
+
+Most executive orders can be overturned and Trump himself scaled back two national monuments in Utah in 2017. But revoking a national monument designation has not yet been tested in court. 
+
+The White House grounds are already designated as a National Historic Landmark, which is intended to prevent against sudden changes to the building.
+
+Trump's order calls on the Oval Office to be maintained by the National Park Service "in a manner that protects its historic character, architectural integrity, and association with the Presidency". 
+
+It notes the existing protections to the White House, but says "nonetheless, the Oval Office merits specific recognition and protective management as a discrete historic structure of national significance".
+
+Congress has carved out an exemption to the National Historic Preservation Act, in order to allow presidents to make needed changes. The current Oval Office has existed since the early 1930s, after its conception by President Franklin D Roosevelt. 
+
+Greg Werkheiser, from the law firm Cultural Heritage Partners, which specialises in historic preservation, says that temporary alterations like "furniture and decor is completely up to the president's discretion".
+
+"As long as they're not damaging the permanent art and architecture, they can generally do whatever they want," he told the BBC.
+
+A new gold sign was placed outside the Oval Office 
+
+A Trump administration staff member seen inside the Oval Office in May
+
+Werkheiser argues that the Trump administration has shown disregard for other historic sites in Washington and, through lawsuits, has attempted to undermine the laws that require preservation.
+
+He called Trump's order "hypocrisy", noting the various projects he's pushed for across Washington - including plans to build a new triumphal arch, which has been temporarily put on hold by a federal judge.
+
+"On the one hand he's talking about the importance of preserving the Oval Office - which is legally meaningless because he can't do it - and on the other hand he is absolutely taking an axe to the law that allows us to preserve other historic sites."
+
+Trump's massive arch wins approval as protesters threaten to block it
+

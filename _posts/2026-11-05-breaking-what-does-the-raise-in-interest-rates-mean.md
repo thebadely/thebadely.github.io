@@ -1,0 +1,15 @@
+---
+layout: post
+title: "Breaking: What does the raise in interest rates mean?"
+date: 2026-11-05T14:02:24
+author: "badely"
+categories: [Business]
+tags: []
+excerpt: "The BBC's cost of living correspondent Kevin Peachey explains what the change could mean for those saving for a holiday or to buying a house."
+image: assets/images/6b976e00172269e420435dca403784d3.jpg
+---
+
+Experts revealed that This video can not be played
+
+Read more about this story - How high will interest rates go?
+

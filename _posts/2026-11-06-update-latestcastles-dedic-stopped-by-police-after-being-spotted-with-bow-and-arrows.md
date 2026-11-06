@@ -1,0 +1,55 @@
+---
+layout: post
+title: "Update: Latestcastle's Dedic stopped by police after being spotted with bow and arrows"
+date: 2026-11-06T11:16:07
+author: "badely"
+categories: [Sports]
+tags: []
+excerpt: "Newcastle United defender Amar Dedic is at the centre of a police investigation after being spotted carrying a bow and arrows at a Northumberland beau"
+image: assets/images/a06289862b2b7f9b533358feb4a5ae56.jpg
+---
+
+Here’s what you need to know: Amar Dedic has featured in seven Premier League games since joining Newcastle in August
+
+Newcastle United defender Amar Dedic was stopped by police after being spotted carrying a bow and arrows at a Northumberland beauty spot.
+
+Bosnia-Herzegovina international Dedic, 24, was with a friend when he was stopped  in a car after a concerned member of the public raised the alarm.
+
+Reports say six police cars, external were dispatched, including armed police, and that Dedic and his companion were stopped about seven miles away from where they were originally spotted.
+
+Police searched the car and seized the bow and arrows but were satisfied the two men were not a threat to the public.
+
+BBC Sport has been told Dedic had no ill intention and has fully co-operated with police.
+
+It is reported Newcastle goalkeeper Mark Gillespie, 34, and former defender Paul Dummett, 35, arrived at the scene while police were speaking to Dedic. 
+
+It is understood the pair were in the area by chance and stopped to offer assistance.
+
+The incident happened on Wednesday, two days after Dedic - who joined from Benfica for a fee in the region of Â£30m in August - had played in Newcastle's 1-0 home defeat by Everton.
+
+Newcastle, who are 13th in the Premier League table on 11 points from nine games, have not commented.
+
+Northumbria Police has released a statement and said enquiries are ongoing. The force has not named Dedic.
+
+It said it received reports of two men carrying a bow and arrows while walking along a track by the reservoir on Military Road in the Harlow Hill area.
+
+"Officers attended and subsequently stopped a vehicle in the Darras Hall area and seized a bow and arrows," added the statement.
+
+"At this stage, it is understood they were for recreational use and there was no threat to the public."
+
+Newcastle are at Fulham on Saturday (15:00 GMT) before the November international break.
+
+Dedic, who has featured in 10 league and cup games since joining Newcastle, has been named in the Bosnia-Herzegovina squad for Nations League matches away to Sweden on 14 November and at home to Romania on 17 November. 
+
+Follow Newcastle United on BBC Sounds
+
+Pre-match, post-match and topical Magpies content
+
+ 
+
+Subscribe and listen for everything you love about Newcastle
+
+Latest Newcastle news, analysis and fan views
+
+Ask about Newcastle - what do you want to know?
+

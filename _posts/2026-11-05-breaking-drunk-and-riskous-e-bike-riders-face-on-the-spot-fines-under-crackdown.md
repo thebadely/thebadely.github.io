@@ -1,0 +1,61 @@
+---
+layout: post
+title: "Breaking: Drunk and riskous e-bike riders face on-the-spot fines under crackdown"
+date: 2026-11-05T15:27:09
+author: "badely"
+categories: [Business]
+tags: []
+excerpt: "A consultation will consider fines and other ways to clamp down on dangerous e-bike riders."
+image: assets/images/184522a54836b7b220a8dea38e53068b.jpg
+---
+
+Here’s what you need to know: People riding drunk or dangerously on e-bikes â and those who jump red lights - could face on-the-spot fines under plans to curb anti-social behaviour.
+
+Firms which run shared e-bike schemes will also be expected to manage their fleets better and provide designated parking areas to keep pavements safe.
+
+They could also be required to take out insurance so people can claim compensation if they are hit by someone on a shared bike.
+
+It's part of a crackdown on what ministers called the "wild west" of e-biking â with a patchwork of rules across the country often leaving the streets unsafe for pedestrians.
+
+A consultation launched on Thursday sets out proposed national standards to make journeys safer for everyone and keep pavements clear, particularly for wheelchair users and families with prams.
+
+The first e-bikes were launched in Exeter in 2016 and arrived in London a year later, growing to become a popular commuter option.
+
+According to the Greater London Authority, 37 million trips were taken on dockless e-bikes last year â a third more than the previous year.
+
+Shared e-bikes - such as Lime, Voi, Beryl, Dott, Forest and Bolt - make short journeys quick and convenient.
+
+While some areas enforce rules that mean shared bikes can only be left in specific areas, others have looser rules.
+
+Under the government's proposals, local leaders will be able to license schemes in their area, allowing them to enforce minimum standards and better integrate e-bikes into existing transport networks.
+
+Measures could include requiring operators to have a parking plan and to manage fleet sizes and operating areas, so bikes aren't overcrowding streets.
+
+The consultation will also consider ways to tackle antisocial and illegal behaviour, to prevent users from riding shared cycles drunk, underage, or on pavements. There will also be clear consequences set out â such as fines - for this type of behaviour.
+
+The government is also consulting on whether local leaders should have extra powers, including setting fees and requirements for operators to share data to improve enforcement and journey planning.
+
+The consultation will last for eight weeks after which the government will draw up legislation to implement the changes. 
+
+'Dumped e-scooters force blind people into road'
+
+Red light jumping cyclists offered film over fine
+
+'Our lives will never be the same again after Lime bike crash'
+
+Prime Minister Andy Burnham said the e-bike clampdown was a "small but important everyday fix" which would make streets safer. 
+
+Transport Secretary Heidi Alexander said the government wanted e-bike schemes to "grow in popularity" but acknowledged they were "causing a little bit of nuisance at the moment". 
+
+Asked how punishments for dangerous cycling could be enforced, Alexander said licensing rules could allow for fines but added: "What you can't do is legislate for every eventuality, you can't legislate for idiots."
+
+"The police enforce the rules of the road to stop cyclists when they are behaving recklessly but police have got a lot on their plate so individuals have to take some responsibility," she added. 
+
+Bosses at Lime, Voi and Bolt all welcomed the proposals, adding that consistent standards being applied across the country would provide clarity and certainty for operators, riders and the general public.  
+
+Mike Wordingham from the Royal National Institute for the Blind said 92% of blind and partially sighted people had been forced to walk into roads due to e-bikes blocking pavements.
+
+He welcomed the government's announced but warned that tackling rider behaviour would be "difficult" and said a locally-led approach shouldn't lead to "a patchwork of regulations and inconsistency in implementing them". 
+
+Have you been affected by the issues raised in this story? Let us know
+
