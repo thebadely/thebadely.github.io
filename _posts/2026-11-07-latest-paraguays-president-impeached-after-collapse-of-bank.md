@@ -1,0 +1,57 @@
+---
+layout: post
+title: "Latest: Paraguay's president impeached after collapse of bank"
+date: 2026-11-07T07:20:00
+author: "badely"
+categories: [News]
+tags: []
+excerpt: "Santiago Peña was ousted due to a banking crisis which left millions of people unable to access their money."
+image: assets/images/5363c268d020c57941acc55f1cf4556b.jpg
+---
+
+Here’s what you need to know: This video can not be played
+
+Late night political drama as PeÃ±a is impeached and arrested
+
+Paraguay's President Santiago PeÃ±a has been impeached and placed under house arrest after a bank collapse triggered a crisis that left more than half of the country's population without access to their accounts.
+
+PeÃ±a was arrested on Friday minutes after lawmakers, including from his own party, unanimously voted to remove him from office following the collapse earlier this week of Ueno Bank, which has links to his private business interests.
+
+He had offered to step down on Thursday. Rather than accept his resignation, senators impeached PeÃ±a and charged him with misconduct, meaning he has been stripped of the immunity usually granted to ex-presidents.
+
+PeÃ±a, who until last year held shares in the company that owned the bank, has denied any wrongdoing.
+
+The impeachment charges that led to PeÃ±a's removal alleged he had conflicts of interest, manipulated regulatory oversight, diverted pension funds, and participated in an institutional cover-up involving the central bank.
+
+He is due to be questioned on Saturday over allegations of breach of trust, influence peddling, and misappropriation of funds, prosecutor Silvia Margarita Gonzalez Vester said.
+
+PeÃ±a's deputy, Pedro Alliana, has been sworn in as the new interim president and promised not to "abandon" the millions of people affected by the scandal.
+
+"Compatriots who are now going through a difficult time as a result of the financial collapse will be fully compensated," said Alliana, who will serve as president until 2028.
+
+The demise of the digital bank left more than half of Paraguay's population without access to their savings after it was seized by Paraguay's central bank.
+
+Long lines of people trying to withdraw money from Ueno branches snaked down the streets of the capital Asuncion on Tuesday and Wednesday.
+
+An estimated three million depositors remain unable to access their savings and pensions, prompting public outrage particularly in the capital, AsunciÃ³n.
+
+Protests erupted across the country in response, with thousands taking to the streets on Thursday to demand their money.
+
+Earlier demonstrations featured clashes with the police, who used tear gas and water cannons on the crowd.
+
+PeÃ±a's impeachment passed with 44 out of 45 senators voting in favour of it. One lawmaker was absent.
+
+"It was never my intention to betray the trust you placed in me," PeÃ±a said in a video posted on X announcing his resignation, adding his priority was "the peace of mind of Paraguayans who entrusted their savings to our financial system".
+
+Afterwards, senate president Basilio NÃºÃ±ez said PeÃ±a was found guilty of "dereliction of duty".
+
+Pedro Alliana takes the oath of office as interim President
+
+Senator Rafael Filizzola said: "We are facing the biggest corruption scandal in our democratic history â a tremendous blow to the state, to private citizens, and to the country's credibility and image."
+
+Analysts say PeÃ±a is likely to now be prosecuted over the bank's collapse.
+
+His defence lawyer Ricardo Preda described the allegations as a "reckless accusation" that was "irresponsible and opportunistic".
+
+Paraguay President Santiago PeÃ±a resigns after bank collapse
+

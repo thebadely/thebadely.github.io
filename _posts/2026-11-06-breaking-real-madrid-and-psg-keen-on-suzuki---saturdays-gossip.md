@@ -1,0 +1,55 @@
+---
+layout: post
+title: "Breaking: Real Madrid and PSG keen on Suzuki - Saturday's gossip"
+date: 2026-11-06T21:08:04
+author: "badely"
+categories: [Sports]
+tags: []
+excerpt: "Paris St-Germain and Real Madrid interested in Aston Villa keeper Zion Suzuki, Inter Milan weighing up move for Crystal Palace's Chris Richards, plus "
+image: assets/images/b57f43e1a4e8eca829a8eeb6d9090691.jpg
+---
+
+Here’s what you need to know: Daily Star back page
+
+Daily Telegraph sports section
+
+Daily Express back page
+
+Daily Mirror back page
+
+The Times sports section
+
+1 of 5
+
+Paris St-Germain and Real Madrid are interested in Aston Villa keeper Zion Suzuki, Inter Milan are weighing up a move for Crystal Palace's Chris Richards and Manchester United are not convinced by Eddie Howe as a possible replacement for manager Michael Carrick.
+
+Aston Villa goalkeeper Zion Suzuki's form has attracted interest from Paris St-Germain and Real Madrid, while Arsenal, Liverpool, Manchester City and Tottenham are also monitoring the 24-year-old Japan international. (Teamtalk), external 
+
+Inter Milan are considering making a move for 26-year-old Crystal Palace and United States defender Chris Richards, whose contract with the Eagles expires next summer. (Tuttomercatoweb - in Italian), external
+
+Manchester United are not sold on former Newcastle United and Bournemouth boss Eddie Howe as a potential replacement for Michael Carrick in the Old Trafford hot seat. (Independent), external
+
+Liverpool, Manchester United, Chelsea, Newcastle United, Tottenham, Leeds United and Brentford are among the clubs monitoring AC Milan's 24-year-old Belgium defender Koni de Winter. (Caughtoffside), external
+
+Newcastle are looking at Middlesbrough's 21-year-old English striker Will Lankshear following his impressive form for the Championship promotion hopefuls. (Talksport), external 
+
+Bayern Munich are set to turn their attention to extending the contract of France winger Michael Olise, 24, after England striker Harry Kane signed a new deal with the German champions. (Football Transfers), external 
+
+Discussions are yet to take place over turning 33-year-old Germany striker Niclas Fullkrug's loan move from West Ham to Werder Bremen into a permanent one. (Sky Sports Germany - in German), external
+
+Barcelona are finalising a new contract for Spanish midfielder Marc Bernal, 19, who has been the subject of interest from Premier League clubs. (Mundo Deportivo - in Spanish), external
+
+Real Madrid plan to make JJ Gabriel's transition to the first team much less turbulent than the 16-year-old attacking midfielder endured at Manchester United as they finalise his move to the Bernabeu. (Marca - in Spanish), external
+
+Napoli owner Aurelio de Laurentiis is planning crisis talks with head coach Massimiliano Allegri, his staff and players to find out what's behind the side's poor start to the season. (Football Italia), external
+
+Vega plea for Scottish FA backing against Infantino - Saturday's Scottish Gossip
+
+Deschamps not interested in Man Utd job - Friday's gossip
+
+Get the latest on your Premier League team
+
+All your football quizzes in one place
+
+Listen to the latest Football Daily podcast
+
