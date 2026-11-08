@@ -1,0 +1,65 @@
+---
+layout: post
+title: "Big News: Period products 'essential not optional'"
+date: 2026-11-07T07:48:42
+author: "badely"
+categories: [Health]
+tags: []
+excerpt: "Matt Tyrer is working on a scheme which will ensure access to free sanitary towels or tampons."
+image: assets/images/2239d1d625416082b0be75fe1b9ab34d.jpg
+---
+
+Let's dive into the details: The Period Products (Free Provision) Act 2026 has been granted Royal Assent 
+
+Sanitary towels and tampons are "basic health and hygiene products" which are "essential and not optional", the public health director has said. 
+
+Matt Tyrer's department is spearheading the rolling out of a scheme which will see women and girls on the Isle of Man access free period products.
+
+The Period Products (free provision) Act bill was introduced by MHK Joney Faragher as a private members bill in 2024. It has now been given Royal Assent but it will not come into force until October 2027.
+
+Tyrer said making the products available would also ensure women or girls will not have to miss school, work or everyday activities.
+
+Making them available to households on low incomes, he said, ensured women, girls and those who menstruate, can access them.
+
+"We want to ensure people who need them have access to them as these are basic health and hygiene products that are essential and not optional," said Tyrer. 
+
+The scheme follows similar programmes in Scotland and Northern Ireland. 
+
+One of the co-founders of the Manx Menstrual Movement, Rhian Evans described Royal Assent as "a long time coming". 
+
+In 2023, Evans and Nicki Gaskell created the movement after speaking about period poverty and the basic right to have access products.
+
+They then set up donation stations across the island as well as a pick and mix station at Douglas City Library. 
+
+They praised MHK Joney Faraghar, who they approached in 2024, saying she had done "a lot of work behind the scenes for this".
+
+Rhian Evans from the Manx Menstural Movement says there is period poverty on the island
+
+Evans said the pick and mix station started as an interim solution but they hoped it would continue.
+
+"It is so important, it is also bittersweet because it also highlights that there is period poverty here and we wholeheartedly believe that your financial background does not matter, anyone who menstruates, should have this access," she said. 
+
+Becky Rolwey, head of public health communities, said the organisation would now engage with people to understand the needs going forward.
+
+"We really want to ensure that people aren't embarrassed to access it, be it a father or brother or even a male friend and that they can get it easily," she said.
+
+Nicki Gaskell particularly wants schoolchildren to have access to free products
+
+Rolwey said over the next year public health needed to determine  the best and most sustainable products it could make available.
+
+"Some people say a pad only costs X amount and is really cheap, but we know that those are not sufficient for everybody's needs," she said.
+
+While exact locations on where the products could be found are not yet available, Tyrer said local authorities, schools, libraries, the Isle of Man Foodbank and other charities could potentially be used.
+
+He added: "Fundamentally we want anybody who needs period products to be able to access them in a place that is convenient and appropriate."
+
+Tell us which stories we should cover on the Isle of Man
+
+Read more stories from the Isle of Man on the BBC, watch BBC North West Tonight on BBC iPlayer and follow BBC Isle of Man on Facebook, external and X, external.
+
+'Let's do even more to make period products free'
+
+MHKs back drafting of free period product bill
+
+Public Health Isle of Man
+
