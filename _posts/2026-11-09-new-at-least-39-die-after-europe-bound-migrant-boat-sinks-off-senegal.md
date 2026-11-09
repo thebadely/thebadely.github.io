@@ -1,0 +1,77 @@
+---
+layout: post
+title: "New: At least 39 die after Europe-bound migrant boat sinks off Senegal"
+date: 2026-11-09T14:44:47
+author: "badely"
+categories: [News]
+tags: []
+excerpt: "The Atlantic crossing to Spain's Canary Islands remains dangerous for migrants seeking a better life"
+image: assets/images/27a914ae54e337d224530cee92bb2dde.jpg
+---
+
+Here’s what you need to know: Spanish migrant rights group Walking Borders estimates that for every 100 people who reach the Canary Islands by sea, 21 die during the crossing (file photo)
+
+At least 39 people have died after a boat carrying migrants sank off the coast of Senegal, the Senegalese Press Agency (APS) reports.
+
+The interior ministry said one person had been rescued, but the number of people still missing was yet to be established.
+
+The small wooden boat capsized between the capital, Dakar and the northern city of Saint-Louis, as it headed towards Spain's Canary Islands.
+
+Spanish migrant rights group Walking Borders recorded 635 deaths on the Atlantic route to the Canary Islands between January and May 2026, the highest toll among the routes it monitors.
+
+Saliou Diouf, founder of Senegalese migrant aid group Boza Fii, told the AFP news agency that all the bodies recovered by Sunday evening were Senegalese. The nationalities of other people on board was yet to be established, as search operations continued.
+
+Four bodies were recovered on Monday morning in an advanced state of decomposition and buried following a collective funeral prayer organised by the fire service.
+
+Rescue teams are searching along a 25km (15-mile)- stretch of coastline, but operations have been complicated by difficult access and strong ocean currents, which are pushing bodies further south.
+
+Authorities say 24 of the 39 victims have been identified and their bodies returned to their families, while 11 others are still awaiting identification.
+
+President Bassirou Diomaye Faye has expressed his condolences to the victims' families and urged Senegalese nationals not to risk their lives on the dangerous sea crossings.
+
+In a statement posted on X, he pledged to intensify efforts to dismantle the networks organising the journeys.
+
+"We will relentlessly continue the fight against those who organise these crossings and the work that gives our young people reasons to hope here," he said.
+
+The tragedy comes amid renewed concerns over the dangers facing migrant attempting to reach Europe by sea.
+
+Walking Borders estimates that about 21 people died for every 100 who reached the Canary Islands during the period it monitored.
+
+Senegalese authorities said they had intercepted another boat, on Friday, carrying 142 migrants attempting to reach Spain.
+
+Those on board included 23 women, two babies and two other children. Police said the group comprised nationals of Senegal, Gambia, Guinea-Bissau, Guinea and Nigeria.
+
+Meanwhile, a state of emergency was declared on the Spanish island of El Hierro on Saturday following a surge in migrant arrivals.
+
+More than 3,300 people have reached the island in about 30 boats since the beginning of November, according to local authorities.
+
+This amounts to almost a third of the population on the island, one of the main entry points into Europe for migrants arriving from West Africa. 
+
+Fernando Clavijo, president of the Canary Islands regional government, described the situation as "absolutely unsustainable," reports the Reuters news agency.
+
+The route has grown in prominence amid tighter controls and increased cooperation between European countries and North African states, which may have diverted some journeys away from the central Mediterranean.
+
+Limited employment opportunities, family pressures and established migration networks are among the factors driving people to leave Senegal, according to the International Organization for Migration (IOM).
+
+For many young people, the prospect of finding work and earning more abroad remains a powerful incentive, despite the risks of crossing the Atlantic in overcrowded boat.
+
+Nearly one in four young people in Senegal was unemployed in the second quarter of 2026, according to the country's statistics agency. 
+
+The figure highlights the challenge facing President Faye's government as it seeks to create jobs for a predominantly young population that overwhelmingly voted for him in the 2024 elections.
+
+In a statement on Sunday, Senegal's interior ministry said it would continue efforts to combat people-smuggling networks, including by strengthening cooperation with neighbouring countries.
+
+âTry or dieâ - one manâs determination to get to the Canary Islands
+
+Four sons set out on a perilous migration route. Only one came home
+
+Senegalese mother: âI found out on social media that my son had diedâ
+
+Go to BBCAfrica.com, external for more news from the African continent.
+
+Follow us on Twitter @BBCAfrica, external, on Facebook at BBC Africa, external or on Instagram at bbcafrica, external
+
+Focus on Africa
+
+This Is Africa
+
