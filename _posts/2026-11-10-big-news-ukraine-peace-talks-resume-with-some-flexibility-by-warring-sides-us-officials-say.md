@@ -1,0 +1,77 @@
+---
+layout: post
+title: "Big News: Ukraine peace talks resume with 'some flexibility' by warring sides, US officials say"
+date: 2026-11-10T09:07:00
+author: "badely"
+categories: [News]
+tags: []
+excerpt: "Kyiv, Washington and Moscow have all sent delegations to the United Arab Emirates for the first trilateral talks since February."
+image: assets/images/5c6f96c9ff96a80f32f697f6b9a01c69.jpg
+---
+
+According to new developments, The talks come as Ukraine reels from a deadly Russian strike on a village in Zaporizhzhia last week, in which at least 50 people were killed
+
+Trilateral talks between Ukraine, Russia and the US aimed at ending the war in Ukraine have begun in Abu Dhabi. 
+
+Although expectations for a breakthrough that ends Russia's full-scale war on Ukraine are low, US officials said yesterday that Moscow and Kyiv were privately showing "a little bit of flexibility" on the issue of who would control Ukraine's eastern regions in a postwar scenario.
+
+Jared Kushner - Donald Trump's son-in-law and part of the US delegation alongside peace envoy Steve Witkoff - said the talks would be focused on addressing the "postwar security concerns" of both Russia and Ukraine.
+
+"An important part of this process is encouraging all parties to begin thinking seriously about what comes after the war," Kushner wrote on X.
+
+Ahead of the meeting, the two US envoys met Ukrainian and European and Nato officials in Abu Dhabi, and French Foreign Minister Jean-NoÃ«l Barrot was adamant that France, the UK and Germany "will indeed be in the meeting room". 
+
+European officials are wary of Russia trying to secure a deal with the US on future "collective security" without them, and Moscow and Kyiv's positions on ending the conflict are still far apart.
+
+A key area of disagreement between the two involves Ukraine's eastern region of Donetsk, which is by now mostly occupied by Russia.
+
+Moscow has demanded that Ukraine relinquish the parts of Donetsk which it still holds, while Kyiv wants to freeze the contact line to maintain control over those sections, which it says are crucial to its future security.
+
+While neither side has budged on these demands, the US official speaking on the eve of the talks suggested that this was just the public stance and that Moscow and Kyiv had shown "a little bit of flexibility, privately".
+
+However, he acknowledged that the issue would not be solved without discussions about a new "security architecture".
+
+"They will not solve the Donetsk issue and the territorial issue until they know what the security architecture is going to be after the war," the official said. "And keep in mind, we're not going to be able to finalise one without the other."
+
+For Ukraine, a post-war "security architecture" may include reassurance that allies will come to its aid if it's attacked again. For Russia, that could be its longstanding ambition to see Nato roll back from eastern Europe â which would be alarming to Europeans.
+
+The framework being proposed includes security consultations and crisis communications hotlines, as well as "reciprocal de-escalation measures" between the two. The officials also floated the re-activation of the Nato-Russia Council that has been largely paused since 2022.
+
+Jared Kushner and Steve Witkoff are part of the US delegation that will attend the talks in Abu Dhabi
+
+The last round of trilateral talks, held in Geneva in February, ended without a breakthrough. Soon after, the US-Israel war on Iran diverted Washington's attention from Ukraine, and no other discussions were held since.
+
+Since then, European leaders - who have been largely excluded from peace talks â have pushed to be involved in the process amid concerns that decisions about the security of their continent would be made without them.
+
+European Commission President Ursula von der Leyen urged on Monday to include Nato allies and EU members into any "meaningful discussions about Europe's security architecture". President Volodymyr Zelensky has repeatedly stated Kyiv wanted Europe to be part of the talks.
+
+The US official said the Americans would propose moving into a multilateral format bringing the Europeans into the discussion. "Hopefully we'll get the Russians on board," the official said, while acknowledging that "the Russians have a bad taste in their mouth with the Europeans." 
+
+Since the start of his second term in office, US President Donald Trump â who once boasted he could end the war in Ukraine within a day â has spearheaded several rounds of talks to end the conflict, albeit with little success.
+
+Meanwhile, his increasingly conciliatory approach towards Moscow has fuelled deep unease in Kyiv and across the European Union.
+
+After meeting Kremlin envoy Kirill Dmitriev in Washington last week, Trump touted a forthcoming "big, beautiful agreement" on Ukraine which "might involve all of Europe".
+
+Many in Ukraine are sceptical that this would result into a fair peace. 
+
+Ukrainian MP Oleksandr Merezhko, head of the foreign affairs parliamentary committee, told the BBC he believes Trump wants "a quick deal at the expense of Ukraine", which will certainly be rejected by Kyiv.
+
+The only way to make Putin start real negotiations is by putting greater pressure on Russia through sanctions and deep strikes, Merezhko said.
+
+"While Putin has a war machine up and running, he has no incentives to negotiate." He also mentioned recent moves by Trump, such as his deal to buy diesel from Russia, as something that "only encourages Moscow to continue the war".
+
+Moscow's delegation in Abu Dhabi will include Kremlin aide Vladimir Medinsky, deputy foreign ministers Sergei Ryabkov and Mikhail Galuzin, spy chief Igor Kostyukov and army general Yury Zhigarlovsky.
+
+Kyiv is sending several senior officials who have been part of previous negotiating teams, including Foreign Intelligence Service head Rustem Umerov, Volodymyr Zelensky's chief of staff Kyrylo Budanov, and MP Davyd Arakhamiya.
+
+Away from Abu Dhabi, Russia continues to pummel Ukraine with deadly bombardments and strikes on energy infrastructure, viewed in Kyiv as proof Moscow wants to corner Ukraine into accepting a deal on Russia's terms.
+
+On Monday, Kushner was cautious to point out that the Abu Dhabi talks could at most "build momentum toward the next phase of negotiations."
+
+"This is an extraordinarily difficult and complicated conflict," he wrote on X, adding the US was "approaching these discussions with determination and realism."
+
+Russian strikes wound nine and damage Ukraine's power network ahead of talks
+
+Why Donetsk 'fortress belt' matters so much for Ukraine's defences
+

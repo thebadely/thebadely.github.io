@@ -1,0 +1,33 @@
+---
+layout: post
+title: "Latest: Hill gets first England call-up as Konsa cover"
+date: 2026-11-10T11:41:27
+author: "badely"
+categories: [Sports]
+tags: []
+excerpt: "Bournemouth defender James Hill is added to the England squad for Thursday's Nations League match against Croatia at Wembley."
+image: assets/images/97028dbf4b823a613910f3fab0e9687a.jpg
+---
+
+According to new developments, James Hill has played for England Under-20s and U21s
+
+Bournemouth defender James Hill has been called up to the England squad for the first time.
+
+The 24-year-old centre-back has been added to Thomas Tuchel's squad after Arsenal's Ezri Konsa was ruled out of Thursday's Nations League match against Croatia at Wembley.
+
+Konsa was substituted after sustaining a knee injury in the Champions League win at Slavia Prague on Wednesday, but played all 90 minutes of the win over Hull on Saturday.
+
+He will return to full training this week, before England's game against Spain in Madrid on Sunday.
+
+On Sunday Dan Burn replaced centre-back Marc Guehi, who withdrew with a hip injury.
+
+Hill has played every minute of Bournemouth's Premier League season and has featured in every game of their inaugural Europa League campaign.
+
+He joined Bournemouth from Fleetwood for an undisclosed fee in January 2022.
+
+Having made only 24 appearances in his first three and a half years with the club, Hill became a regular last season as Bournemouth achieved their highest top-flight finish of sixth.
+
+Bournemouth, who are on an eight-match winning run in all competitions, are seventh in the Premier League.
+
+'A beautiful story' as Bellingham brothers called up
+

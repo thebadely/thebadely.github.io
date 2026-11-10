@@ -1,0 +1,75 @@
+---
+layout: post
+title: "Breaking: Met Police investigating more 'potential criminal allegations' about Brand"
+date: 2026-11-10T14:09:11
+author: "badely"
+categories: [News]
+tags: []
+excerpt: "Det Supt Andy Furphy says the force had received 'several reports during the trial and since the trial'."
+image: assets/images/f5cadb45a43e00afd496142a8f9e0fea.jpg
+---
+
+Let's dive into the details: The Metropolitan Police have said several people contacted them during the trial and following the conviction and sentencing of the disgraced comedian Russell Brand, "to provide information or report a potential criminal allegation".
+
+A Met spokesperson said: "Detectives are assessing this information as part of their ongoing enquiries."
+
+Speaking to BBC Breakfast, Det Supt Andy Furphy, who led the Brand investigation, said officers were "looking at exactly what we've got" and "whether they're information that points to behaviour or whether they could constitute a criminal offence".
+
+Brand is already being investigated over rape allegations from two more women. He has been interviewed under caution in connection to those allegations.
+
+Met Police boss 'wouldn't be surprised' if more allegations made about Brand
+
+Russell Brand being investigated over rape allegations from two more women, police say
+
+On Monday, Brand was sentenced to 10 years and six months in prison, after being convicted of rape and sexual assault.
+
+In his sentencing remarks, judge Joel Bennathan described him as a "sexual predator" and criticised his "staggering arrogance".
+
+The 51-year-old was sentenced to nine years for rape, with an additional 18 months, nine months and eight months for three counts of sexual assault. The latter sentences are to run concurrently.
+
+He was found guilty of the charges involving four women between 2004 and 2009.
+
+The head of the Metropolitan Police, Sir Mark Rowley, said on Friday that he "wouldn't be surprised" if more people came forward to make allegations about him.
+
+The Downfall of Russell Brand
+
+How the outspoken comedian went from Hollywood stardom to a prison sentence.
+
+Asked by BBC Breakfast how the women in the case who gave evidence in the trial were coping, Furphy said: "Some have found it deeply distressing because of the amount of media attention wrapped around it".
+
+"Even Russell Brand himself before and during trial was putting material online, but we continue to support them."
+
+He noted how the conviction "could not have been achieved" without their "bravery, their courage, their resilience throughout the whole criminal justice process".
+
+He continued: "It's deeply personal and quite harrowing to be a victim of rape and sexual assault, and to have to tell anybody about it, let alone police officers.
+
+"But I'm glad they did. I'm glad they put their trust in us."
+
+Detective Superintendent Andy Furphy speaking to the media outside court after Brand was convicted
+
+MP Dame Caroline Dinenage has re-iterated her concerns about Brand being able to post videos online in the build-up to and during his trial to his millions of followers.
+
+"This does continue to be an issue that he has made money throughout the process on his social media platform," she told the same BBC TV programme.
+
+"It just felt very odd that during the height of when there was a police investigation and some really serious allegations in the paper, that he was able to go online to his two and a half million followers, denying everything and putting his side of the story forward.
+
+"That was an opportunity that his victims didn't have."
+
+Brand did not react in the dock as he was sentenced. Before being taken down to the cells, he mouthed "I love you" to his wife Laura Brand, who was in the court.
+
+In September 2023, after the Sunday Times and Channel 4 Dispatches allegations were made against Brand, Culture, Media and Sport (CMS) Committee chair Dame Caroline wrote to social media companies Rumble, X, TikTok and Meta.
+
+She asked if they would follow YouTube in cutting off Brand's income on their platforms. Rumble publicly refused, and X said it does not take action against accounts that have not broken its rules or the law. TikTok said he had never been monetised there.
+
+"We know that he had used his following [online] to try and cow people into silence," added Dame Caroline.
+
+"And the fact that they [the women] were able to come forward and tell their story and tell their truth and secure this conviction because of it is unbelievably impressive."
+
+Russell Brand sentenced to 10-and-a-half years in prison for rape and sexual assault
+
+Jemima Goldsmith accuses Russell Brand of violence and abuse against her
+
+'Time is up': Minister warns media industry to take abuse seriously in wake of Brand case
+
+The Russell Brand I saw in court was not the flamboyant character most people will know
+

@@ -1,0 +1,37 @@
+---
+layout: post
+title: "Breaking: Anthropic heads for $1.3 trillion valuation in major stock market listing"
+date: 2026-11-10T14:04:22
+author: "badely"
+categories: [News]
+tags: []
+excerpt: "The AI company behind the Claude chatbot will offer its shares at between $70 and $78."
+image: assets/images/d4e189d8c91e46b235c8c1a7c473c068.jpg
+---
+
+According to new developments, Anthropic, the AI company behind the Claude chatbot, could be valued at $1.3 trillion (Â£1 trillion) when it lists its shares for sale on New York's Nasdaq stock exchange.
+
+The loss-making company says it will offer its shares for between $70 and $78 each and plans to raise up to $64bn when it floats this month.
+
+This would value Anthropic at between $1.1tn and $1.3tn which, although large, is below the $2tn some analysts had predicted weeks ago.
+
+It is floating at a volatile time for AI firms. After last week's US midterm elections, the Nasdaq fell sharply on concerns a Democrat-led Congress could slow development of AI and the buildout of data centres.
+
+There are also wider fears over the billions of dollars being spent on AI and whether it will pay off.
+
+In its most recent results for the six months to the end of June, Anthropic's revenues jumped to $16.2bn from $1.1bn in the same period last year. 
+
+However, its pre-tax loss jumped to $80.7bn from $12.9bn.
+
+Fiona Cincotta, a senior market analyst at City Index, said the $64bn Anthropic wants to raise is "fairly bullish" within "the volatility [and] concerns towards AI that we've seen in sort of particularly last week".
+
+She told Reuters: "It's showing that they are still sort of upbeat about the outlook as far as AI is concerned and that obviously that they think that the demand is going to be there."
+
+At $1.3tn, Anthropic's possible valuation is below SpaceX, Elon Musk's rocket, satellite and artificial intelligence company, which listed its shares in June and was valued at nearly $1.8tn. 
+
+Anthropic is just five years old. It was co-founded in 2021 by brother and sister Dario and Daniela Amodei along with five others - all of whom worked at OpenAI, the rival AI giant behind ChatGPT.
+
+Global stocks plunge as fears over US AI slowdown spread to Asia and Europe
+
+Anthropic's blockbuster share listing - 5 surprising things we now know
+
