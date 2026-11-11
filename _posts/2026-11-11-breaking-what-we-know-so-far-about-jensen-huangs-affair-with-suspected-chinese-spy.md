@@ -1,0 +1,145 @@
+---
+layout: post
+title: "Breaking: What we know so far about Jensen Huang's affair with suspected Chinese spy"
+date: 2026-11-11T07:44:24
+author: "badely"
+categories: [Technology]
+tags: []
+excerpt: "The billionaire tech executive finds himself mired in a personal and national security scandal."
+image: assets/images/e87b8b7ffe99925897f24888dc3a473e.jpg
+---
+
+According to new developments, This video can not be played
+
+Watch: Who is suspected Chinese spy at centre of Nvidia affair investigation?
+
+One of the Artificial Intelligence (AI) industry's most important figures has been accused of having an affair with a suspected Chinese spy.
+
+US intelligence officials believed that Chinese businesswoman Alice Huang, who had a close relationship with Nvidia CEO and co-founder Jensen Huang, was a spy for Beijing, according to a New York Times report.
+
+Jensen Huang admitted, external to having been "unfaithful" to his wife and apologised for hurting her and their children.
+
+US tech giant Nvidia, one of the most valuable companies in the world, has opened an independent investigation into the affair.
+
+It said it does not believe US national security had been compromised - and added that Jensen Huang was committed to continuing to lead the company.
+
+Here is what we know about the affair and why it matters.
+
+Jensen Huang (left) and Alice Huang - also known as Huang Le - pictured at an event
+
+US officials believed that Alice Huang had been recruited to spy by China's top intelligence agency, the New York Times reported, external. Her current whereabouts are unknown.
+
+Alice Huang, who is of no relation to Jensen Huang, was a top executive at Singapore-based data centre firm Megaspeed between March and November 2023. The firm had been suspected of helping divert Nvidia chips to China, a concern that Nvidia maintains was investigated and debunked.
+
+However, Megaspeed is under investigation by the Singapore government regarding previous allegations that the company was circumventing US sanctions on the export of Nvidia's high-end chips. The BBC has contacted Megaspeed for comment.
+
+The company told the New York Times last month its current leadership took the allegations seriously and had appointed external legal advisers to conduct an internal investigation. 
+
+Surveillance reportedly revealed communications between Alice Huang and an American citizen, who was subsequently identified as Jensen Huang.
+
+It remains unclear what, if any, intelligence Alice Huang â who is also known as Huang Le â allegedly gathered and passed to Beijing. She did not respond to the paper's request for comment.
+
+When the BBC asked Nvidia if the company was aware of intelligence concerns, the company said it was not.
+
+"We trust that if we were the target of a genuine threat, the US government would have notified us," an Nvidia spokesperson told the BBC.
+
+China has rejected the spying allegations.
+
+Foreign Ministry spokesperson Guo Jiakun told reporters: "The allegations about Chinese spies are entirely groundless, speculative and intended to smear and malign China."
+
+The New York Times reported in late October that US President Donald Trump had been briefed last year on intelligence alleging Alice Huang was spying on China's behalf.
+
+Asked by reporters on Sunday whether he wished he had "acted on the intelligence", Trump responded: "No, I don't think so. I think he's [Jensen Huang] an honourable guy."
+
+US Secretary of State Marco Rubio, meanwhile, refused to comment when asked about Jensen Huang. Last spring, the secretary of state reportedly oversaw the drafting of a memo that warned the Trump administration about Jensen Huang's relationship with the Chinese businesswoman.
+
+Trump says FBI investigating Nvidia boss's affair with alleged Chinese spy
+
+Zoe Kleinman: Nvidia CEO's affair will cause ripples across US and beyond
+
+Nvidia hires major New York law firm to investigate Jensen Huang affair
+
+Nvidia is at the heart of US and China's AI race, which is why the billionaire's affair has sparked national security fears among American lawmakers.
+
+Trump has said "whoever wins AI wins", and the fear is that if China gains the upper hand in AI, it will supercharge the country's military and surveillance capabilities.
+
+The US advantage is in large part because of US companies like Nvidia, working with producers like the Taiwan Semiconductor Manufacturing Company (TSMC), which makes more than 90% of the world's most advanced chips.
+
+Since 2022, the US has used various export controls to keep the top tech out of China, which it says helps retain America's competitive edge and protects its national security.
+
+This means companies like Nvidia have been largely locked out of the world's most lucrative market, with Jensen Huang once saying that Nvidia's share of the Chinese market had gone from around 95% to effectively zero. 
+
+Huang has engaged in shuttle diplomacy between Washington and Beijing, hoping to find a US-approved way back in, and shaping US policy on China along the way.
+
+Sunday's revelations may explain why Jensen Huang has failed to bring home the biggest prize of all to Nvidia: the Trump administration's blessing to sell all but its most advanced chips to China.
+
+Huang has soared to international importance with his company
+
+Born in Taiwan in 1963, Jensen Huang was nine years old when his family moved to the West Coast of the US. He graduated as an electrical engineer from Oregon State University, and then with a master's degree in the same field from Stanford University.
+
+Jensen Huang then worked at US chip firm AMD before co-founding Nvidia. Known as "Daddy Huang" in Taiwan and once lauded as the "Taylor Swift of tech", he has a reputation as a workaholic with incredibly high standards for his staff.
+
+He has an estimated fortune of $155bn (Â£115bn), according to the Bloomberg Billionaires Index.
+
+"Jensen Huang is a tech visionary of the likes of Steve Jobs," Stephen Witt, the author of Thinking Machine, a biography on the Jensen Huang, told the BBC, adding that he was responsible for creating AI hardware as we know it today. 
+
+The Nvidia co-founder has a famously close relationship with Trump. At the recent AI summit at the White House, where 42 tech executives were present, the president was flanked by Elon Musk and Jensen Huang.
+
+Trump said he spoke with Jensen Huang on Monday and asked him "'Did you have any idea she was a spy?'"
+
+"He said 'I had no idea she was a spy' and I really believe him," Trump told reporters.
+
+Nvidia has launched an independent investigation into the affair and has hired New York law firm Wachtell, Lipton, Rosen & Katz to carry out the probe.
+
+The investigation will be led by former US Attorney for New York's Southern District, Joon Kim.
+
+US President Donald Trump said on Monday that the FBI was also investigating the affair. The FBI declined to comment further when contacted by the BBC.
+
+Jensen Huang has also been asked to appear for a joint closed-door briefing for several Congressional committees on 18 November.
+
+Members of the US House Foreign Affairs Committee asked the Nvidia chief executive to appear to explain his interactions with Alice Huang, as well as Nvidia's security protocols around espionage.
+
+Jensen Huang has yet to say he will comply, a person familiar with the committee's demand told the BBC.
+
+There is no clear successor for Huang at Nvidia
+
+Founded by Jensen Huang and fellow electrical engineers Chris Malachowsky and Curtis Priem in 1993, the company was originally known for chips that process graphics, particularly for computer games. 
+
+Eventually it changed focus to AI, a field it now dominates. 
+
+Jensen Huang rescued Nvidia from bankruptcy on more than one occasion, and took risks on AI a long time before the rest of the world did, effectively building the infrastructure from scratch.
+
+Huang bet on AI at a time when "there were no customers for the stuff he was building", Witt told the BBC.
+
+Every notable tech company building AI tools and infrastructure like Amazon, Google and Microsoft now use Nvidia chips.
+
+Currently worth about $4tn, Nvidia is one of the most valuable companies in the world.
+
+For now, the firm's board appears unlikely to remove Jensen Huang, saying on Sunday they have "confidence in Jensen and his leadership team".
+
+Sources tell the BBC his removal is unlikely because there is so much money at stake.
+
+There is no public succession plan for the 63-year-old. He has often said he hopes to continue in the role for decades, and Bloomberg reports he has created an informal leadership structure around him unlike a traditional company's hierarchy.
+
+His children, Spencer and Madison, and son-in-law Nico Caprez work at Nvidia in senior roles.
+
+Lori Huang accompanied her husband at the state dinner held by President Donald Trump for his Chinese counterpart Xi Jinping in September
+
+Jensen Huang met his future wife Lori Mills at Oregon State University while studying electrical engineering in the early 1980s. The pair were lab partners.
+
+They married in 1985, about eight years before he co-founded Nvidia, and have two children, Madison and Spencer.
+
+In 2007, the couple founded the Jen-Hsun and Lori Huang Foundation. The charitable fund has seen its assets surge in recent years, driven by the soaring value of Nvidia shares, and is estimated to be worth more than $9bn.
+
+Its donations include tens of millions of dollars to engineering programmes at Oregon State and Stanford University.
+
+Witt told the BBC that Jensen Huang has gone to great lengths to present himself as a family man, adding: "That's very important to him". 
+
+"He praises his wife, he talks about her in very glowing ways," he added. "The fallout of this would be bad for anyone's family. But for someone who has gone to such great lengths to cultivate an image of being a family guy and who keeps his children very close, it is very bad."
+
+Additional reporting by Tom McArthur in London, Ayeshea Perera and Tessa Wong in Singapore and Helen Davidson in Sydney
+
+Nvidia boss rejects AI extinction fears as 'doomsday narratives'
+
+China is winning one AI race, the US another - but either might pull ahead
+

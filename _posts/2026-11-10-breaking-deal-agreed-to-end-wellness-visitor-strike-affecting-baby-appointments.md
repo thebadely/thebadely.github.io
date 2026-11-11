@@ -1,0 +1,53 @@
+---
+layout: post
+title: "Breaking: Deal agreed to end wellness visitor strike affecting baby appointments"
+date: 2026-11-10T18:55:34
+author: "badely"
+categories: [Health]
+tags: []
+excerpt: "Health visitors are set to return to work next week, ending a nine-month dispute over pay and grading."
+image: assets/images/c8255f5e62f6b10277b8f98377d0dc97.jpg
+---
+
+Experts revealed that A health visitor strike saw thousands of appointments cancelled 
+
+Health visitors are set to return to work next week after a deal was reached to end a nine-month strike that saw thousands of missed appointments.
+
+Unite union said the agreement with Cwm Taf Morgannwg University Health Board would see all health visitors offered new roles, describing it as a "historic pay win" and a major victory for workers.
+
+The health board said it had agreed to develop a new specialist health visitor role with additional responsibilities, subject to approval processes.
+
+The Welsh government welcomed the return of staff and said that restoring services  for babies and young children was now the priority.
+
+About 100 health visitors with the health board have been on strike since February in a row over job grading, saying they were losing up to Â£9,000 a year as a result.
+
+Home visits dropped dramatically, with the health board saying that safety and accessibility of services was its priority during the strike.
+
+Between March and May 2025, the board, which covers Bridgend county, Merthyr Tydfil and Rhondda Cynon Taf, carried out 6,140 visits.
+
+That dropped to 909 in the same period in 2026.
+
+Unite general secretary Sharon Graham said the agreement was "a magnificent victory" for health visitors.
+
+"This dispute was about recognising the skilled, vital work health visitors do for families and children in their communities," she said.
+
+"Today that recognition has been secured."
+
+Health board chief executive Paul Mears welcomed the resolution and said the immediate priority was restoring services for families.
+
+He said a new specialist health visitor role would strengthen services and help the health board respond to local needs while recognising concerns raised by Unite on behalf of its members.
+
+Plaid Cymru Senedd members representing constituencies across the health board area said they were "very relieved" health visitors were set to return to work and welcomed an outcome that delivered on promises made to staff.
+
+In a joint statement, they said the dispute had highlighted the increasingly demanding role of health visitors and called on the health board to rebuild relationships with its workforce while tackling backlogs affecting families.
+
+The Welsh government said it welcomed the return of health visitors to work and a route towards resolving the long-running dispute.
+
+A spokesperson said health visitors provided vital support to children and families, including an important safeguarding role, and that the priority was now restoring services affected by the strike.
+
+I almost died after a toothache led to sepsis and a rare heart condition
+
+Backlash after councillor tells Russell Brand to 'stay strong'
+
+Festival headlined by Andrea Bocelli scraps choirs fee after backlash
+
