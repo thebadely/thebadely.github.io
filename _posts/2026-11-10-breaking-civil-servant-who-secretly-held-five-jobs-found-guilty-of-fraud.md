@@ -1,0 +1,87 @@
+---
+layout: post
+title: "Breaking: Civil servant who secretly held five jobs found guilty of fraud"
+date: 2026-11-10T13:39:28
+author: "badely"
+categories: [Business]
+tags: []
+excerpt: "Kashim Chowdhury had secretly held multiple public sector jobs on full-time salaries."
+image: assets/images/c679c9ebbeb2a5e62f63d8f0d5f1923a.jpg
+---
+
+It has been recently reported that Civil servant Kashim Chowdhury juggled multiple public sector jobs
+
+A civil servant who secretly held multiple public sector jobs on full-time salaries has been found guilty of nine counts of fraud.
+
+Kashim Chowdhury, from east London, had five government jobs that overlapped in the spring of 2023. He fraudulently earned more than Â£284,000 of taxpayers' money. 
+
+The prosecution accused the 56-year-old of ''deliberate, intentional dishonesty'' and of ''exploiting the system''. 
+
+After seven hours of deliberation, the jury unanimously found Chowdhury guilty of eight counts of fraud by false representation and one count of fraud by a failure to disclose.
+
+The judge said Chowdhury faced a ''very significant custodial sentence''. He added he was refusing bail because of the significance of the crime and for Chowdhury's own wellbeing.
+
+"This was sustained and deliberate dishonesty," said Sarah Melo, specialist prosecutor at the CPS Serious Economic Organised Crime and International Directorate. 
+
+"He knew he could not legitimately hold multiple full-time positions at the same time, but continued to conceal what he was doing."
+
+A Defra spokesperson said Chowdury "abused the trust placed in him as a public servant", adding that it would use all available avenues to recover the proceeds of Chowdhury's offending.
+
+The judge said Chowdhury faced a ''very significant custodial sentence''
+
+Between 2020 and 2023 Chowdhury had eight full-time public sector roles that overlapped and earned him Â£350,000 in total.
+
+The prosecution told the court that on application forms he provided inaccurate information about his employment status and failed to disclose to government departments that he was already a civil servant. Once he secured the roles he didn't tell his employers he was working elsewhere.
+
+He was allowed to work entirely from home because he told his employers he was caring for his mother, whom he lived with in east London. She had dementia and was diagnosed with terminal cancer in 2023.
+
+How a civil servant got away with juggling five jobs for so long
+
+But rather than reduce his workload to look after her, he kept taking on new jobs. In the spring of 2023, when his mother was a few months away from death, he had jobs at the Department for Environment, Food and Rural Affairs, the Department of Health and Social Care, the UK Health Security Agency (UKHSA), the Department for Business and Trade, the Food Standards Agency and the Home Office.
+
+During this period he was contracted to work 183 hours a week - more than the number of hours that exist in seven days.
+
+Chowdhury said he had taken on so many roles because he feared losing his livelihood after experiencing insecure employment in the past. He was made redundant from a job at the Department for Education in 2013 and was given a diagnosis of PTSD.
+
+He said he had not been thinking clearly when applying for jobs ''because of my stress, distress and trauma and due to my panic at the time".
+
+But the prosecution barrister, Lucy Organ, told the jury: "He's lied to you in evidence, he's lied to you under oath, which demonstrates the level of deceit he has descended to."
+
+A succession of his managers told the court about his poor performance. Especially damning was the evidence given by Dan McCartney who managed Chowdhury at Defra.
+
+He said he had to "effectively tell him what to do the whole time". McCartney said that during video calls Chowdhury had his camera switched off blaming technical problems. McCartney said this went on for four to five months.
+
+But McCartney said that because Chowdhury was not subject to any formal performance measures at Defra, he was given a permanent job and remained there for two years.
+
+Chowdhury told the jury he had not worn make-up during a work video call 
+
+The prosecution argued that he used sick notes to cope with his impossible schedule. In March 2023, he was on sick leave from four of the organisations he worked for. But he kept working at the Home Office and did not tell them he was ill.
+
+His line manager at the UK Health Security Agency (UKHSA), Aleesha Adams, organised a video call with him in May 2023. By this point he'd been off sick for three months and she wanted to make a plan to get him back to work.
+
+She told the jury that at the start of the call he was coughing a lot and waving tissues up to the camera. She also told the jury that he had been wearing white make-up to try to look ill.
+
+Adams told the court that as the meeting went on the make-up started coming off his forehead. ''He was sweating, it was like rubbing off so it was darker underneath and darker on the neck."
+
+Chowdhury told the jury this was a smear and that he had not been wearing make-up.
+
+After the call, Adams discovered that he had logged into the call using a Defra email address. When she challenged him about it he blamed a technical error.
+
+Adams grew suspicious. ''I believed he was lying,'' she told the jury. She escalated her concerns up the chain at the UKHSA. But his fraudulent behaviour went on for several more months.
+
+The government's National Fraud Initiative flagged suspected fraud to Defra in 2023. Following this, the Defra Investigations Team launched an investigation and as a result, Chowdhury was arrested and interviewed under caution in July 2023. He was dismissed by the civil service in September 2023.
+
+Chowdhury has also been accused by his siblings of bullying their mother into increasing his share of the family home days before she died.
+
+In a case at the High Court, Chowdhury's two brothers and sister allege that he put "undue influence" on Faijun Nessa to sign documents that meant he would inherit half of her home. 
+
+The four-storey, six-bedroom home in east London has been valued at Â£2.1m.
+
+His siblings say their mother could not have understood what she was signing because she was "desperately unwell". In January 2023 she was given a terminal diagnosis of stage four metastatic colorectal cancer.
+
+The claimants also allege that Mrs Nessa, who was nearly blind and could not speak English, was unaware of what she was signing because the documents were not translated into her native Bengali at the time they were signed.
+
+Kashim Chowdhury denies the claims. That case is ongoing.
+
+Additional reporting by Ben Sturt.
+

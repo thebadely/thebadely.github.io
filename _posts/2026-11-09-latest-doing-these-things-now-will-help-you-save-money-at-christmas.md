@@ -1,0 +1,53 @@
+---
+layout: post
+title: "Latest: Doing these things now will help you save money at Christmas"
+date: 2026-11-09T00:09:14
+author: "badely"
+categories: [Business]
+tags: []
+excerpt: "Small decisions made now can make a big difference to your festive finances, charities say, so here are some tips."
+image: assets/images/e3d17195f9add86ac04752d92a123fcc.jpg
+---
+
+It has been recently reported that How soon is too soon when it comes to thinking about Christmas and your finances?
+
+The answer, of course, is that it is never too soon. Save early and the cost becomes more manageable.
+
+The squeeze is harder for some than others, with charity Barnardo's warning that some parents will skip meals so their kids get a Christmas dinner with the trimmings.
+
+But, debt advice charity StepChange is offering tips to everyone, to avoid Christmas spending leading to a financially painful new year.
+
+The best way to avoid a difficult January, it says, is to make a realistic plan before the spending begins. 
+
+Small decisions now can make a big difference later. Its tips include:
+
+Budget for Christmas in full. So, that's not just presents, a budget should include the cost of food and drink, travel, parties, presents, postage, decorations and other festive extras
+
+Spread the cost. Don't just rely on your December paypacket. Also, make a shopping list before Black Friday on 27 November - it is only a discount if you were going to buy it anyway
+
+Book your train journey now. Advance tickets, if available, are cheaper
+
+Set spending limits. Put a cap on the bill for Christmas socialising, and have a quiet conversation with family and friends about how much to spend on presents
+
+Stocktake before the big food shop. Check your cupboards, fridge and freezer before you go shopping and plan meals around food you already have. Make a list of what you need and compare prices.
+
+Think twice. Can you afford what you are going to buy? Can you afford the repayments if it's bought on credit? And, do you really need it?
+
+"Christmas is a time when we want to enjoy ourselves and make things special for the people we care most about," said Vikki Brownridge, chief executive of StepChange.
+
+"But it can also put a lot of pressure on household budgets, and it is key to take steps to get ahead of any January financial blues."
+
+If you are concerned about Christmas leaving you in debt, then it is best to seek advice well before things become unmanageable. 
+
+The independent MoneyHelper website has a guide to finding free debt advice near you, external.
+
+There are also tools to work out if you are receiving all the benefits and grants you are entitled to, and tips on how to draw up a budget.
+
+And it is really important to watch out for scams at this time of year. Fraudsters will take any opportunity to catch you out, especially when you are under pressure financially.
+
+How have you been affected by the issues raised in this story? Get in touch.
+
+How to avoid getting stung if you miss credit card payments
+
+Don't fall for this - how to protect yourself from AI scams
+

@@ -1,0 +1,105 @@
+---
+layout: post
+title: "Update: US inflation higher than expected in October - here's what is happening with prices"
+date: 2026-11-10T14:45:46
+author: "badely"
+categories: [Business]
+tags: []
+excerpt: "Prices rose by 0.4% over the month, driven by increases in shelter, food and energy costs."
+image: assets/images/59f149a09e01e004b5e4d7fd64dc40c3.jpg
+---
+
+Let's dive into the details: US inflation rose at a faster-than-expected pace in October, according to official figures.
+
+Prices rose by 0.4% in the month, which was lower than the 0.6% increase in September.
+
+However, analysts had expected prices to rise by 0.3%, and the higher-than-expected pace could add to arguments for the Federal Reserve to raise interest rates at its next meeting in December.
+
+The new figures come a week after the midterm elections which were fought over cost-of-living pressures across the US.
+
+Inflation is the rate at which the price of products or services increases over time.
+
+For example, if a bottle of milk costs $1 but rises to $1.10 a year later, then annual inflation for bottled milk is 10%.
+
+Officials from the Bureau of Labor Statistics measure inflation through the consumer price index (CPI).
+
+It tracks the price changes of hundreds of day-to-day items including fresh food, gasoline and medical services to work out the overall level of inflation in the US economy.
+
+The bureau updates this so-called basket of goods over time as peoples' spending and lifestyle habits change.
+
+There are several factors that can cause inflation to rise.
+
+If demand for a product outstrips its supply, that can lead to producers raising prices - the craze for Labubu dolls in recent years and the high resale prices are an example.
+
+Higher incomes can also lead to higher demand, for example, which in turn pushes up prices.
+
+Supply and demand: Labubu dolls illustrate how inflation can rise 
+
+Supply can also affect inflation. If supply of a product is reduced, but demand remains constant, that can cause prices to rise. A good example of this is crude oil, which is used to make gasoline and diesel.
+
+Before the US-Israel war with Iran began, it was trading at just over $70 a barrel, but when the conflict constricted crude supplies, the price quickly rose and is currently over $100.
+
+Over the month of October, prices rose by 0.4%, driven by increases in housing, food and energy costs.
+
+However, the pace of energy price rises, at 0.7% in October, was much lower than the 5.2% increase seen in September.
+
+While the Bureau of Labor Statistics would normally provide figures for the 12-month change in prices, it did not collect data in October 2025 so it could not provide that estimate.
+
+For the 12 months to September, inflation was 3.7%.
+
+The US Federal Reserve has a target for keeping annual inflation at 2%.
+
+When inflation is too high the Fed tends to raise interest rates in order to encourage people and businesses to save more and spend less money in the hope this will slow price rises.
+
+While there was no annual figure published for inflation this month, analysts say the fact inflation was higher in October than expected increases the chance of an interest rate rise at the Fed's December meeting.
+
+Federal Reserve governor Chirstopher Waller, who spoke before the latest inflation figures were published, also suggested he was leaning towards a rate increase in December even if October's figures were slower than expected.
+
+US interest rates held steady and economy grows - what it means for you
+
+Since coming into office for the second time, President Donald Trump has introduced tariffs on most US trading partners around the world.
+
+While most of the additional global levies were outlawed by the Supreme Court in February, the president immediately announced a new 10% global tariff to replace them.
+
+Trump argued the tariffs would increase America's tax earnings, boost manufacturing and encourage people to buy US-made goods, but the higher import taxes have also had an impact on inflation, according to research from the Federal Reserve Bank of New York.
+
+US President Donald Trump raised tariffs 
+
+Higher tariffs - which are levies that businesses pay on the goods they import - directly raise prices for US companies unless the overseas firms they are buying from lower prices to absorb some of the cost. 
+
+In response to the new tariffs, the New York Fed found exporters reduced prices very little, meaning US-based businesses ended up absorbing nearly 90% of the cost of the added tax.
+
+Indirectly, higher tariffs also affected the prices of locally made goods, as many US producers rely on parts or materials from overseas. 
+
+Overall, the Fed found that every percentage point increase in average tariffs led to nearly a 0.25% price increase for consumer goods after one year.
+
+While inflation is currently above where the Federal Reserve would like it has been much higher in previous years.
+
+During the Covid pandemic, issues such as supply chain disruption started pushing inflation up.
+
+Additionally, in early 2022 when Russia launched its full-scale invasion of Ukraine, oil prices surged over $100 a barrel.
+
+Both of these factors helped to drive inflation to a peak of about 9%.
+
+It's important to note that if inflation is rising at a slower rate, that does not mean prices are going down - it simply means prices are rising at a slower pace.
+
+A bit of inflation is considered good for an economy as the Federal Reserve's target rate illustrates.
+
+Many central banks consider inflation of about 2% or a little higher to be stable, and at a level that doesn't impact people's purchasing decisions.
+
+Much below that, people can delay spending if they expect price rises to slow further, or to fall. That can lead to businesses reducing wages, or reducing the number of workers to cope with lower demand.
+
+The value of social security benefits is changed to largely keep up with inflation, protecting people's ability to purchase their usual goods and services through the cost-of-living adjustment.
+
+Shortly after September's inflation figure was released, the Social Security Administration announced that Social Security benefits including old age, survivors and disability insurance would rise by a similar amount - 3.6% - in 2027.
+
+The administration said that the 3.6% rise will mean an average retirement benefit increase of $75 a month.
+
+The cost-of-living adjustment will take effect in January for about 72 million people, while increased payments for the 7.2m receiving the supplemental security income will start on 31 December.
+
+'It's rough out here': Americans struggle with rising inflation 
+
+Which war is having the biggest impact on diesel prices - Iran or Ukraine?
+
+Trump wants to reduce the cost of fuel as the midterms loom - will it work?
+

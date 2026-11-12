@@ -1,0 +1,101 @@
+---
+layout: post
+title: "New: I saved a stranger's life and my husband's at the same time"
+date: 2026-11-12T06:09:45
+author: "badely"
+categories: [Health]
+tags: []
+excerpt: "Una Brown had always said she would give a kidney to her husband Sean if the time came, and she did so in a roundabout way."
+image: assets/images/0a4e11faa4a9f801660abe4233b36922.jpg
+---
+
+Let's dive into the details: Sean and Una Brown have been together 21 years, married for 16 of them
+
+By saving a stranger's life, Una Brown also saved her husband's.
+
+Sean Brown was living with kidney failure and needed a transplant, but Una was not a 100% match.
+
+The Belfast couple jumped at the chance to take part in the UK Living Kidney Sharing Scheme, external, which saw Una donate to a stranger, enabling Sean to receive a compatible organ from a different donor.
+
+"When I was told that I wasn't a 100% match, you're automatically thinking, 'God, what's going to happen next?'
+
+"But the fact that I could go into that sharing scheme â I had absolutely no issue with that.
+
+"At the end of the day, if you actually think about it, two lives were saved in one day. It was the best decision of my life."
+
+The couple with their hospital bags packed and ready to go
+
+Sean had received his first kidney transplant aged eight â he was the face of an organ donation campaign as a child â but he always knew he might need another one in the future.
+
+From the outset of their relationship, Una said she would give him one of hers when the time came.
+
+"Immediately I just said - 'If you ever need a new kidney transplant, I'm going to donate' -  without hesitation," she said.
+
+Twenty-one years later, that is exactly what she did, in a roundabout way.
+
+Sean had lived "an amazing life" for 37 years before the kidney's function started to deteriorate.
+
+The couple entered the sharing scheme in July and the next month, Una received the news that a suitable match had been found.
+
+"You can imagine that moment of just sheer relief," the 49-year-old council worker said.
+
+"I genuinely cannot tell you what that felt like because it was the most emotional moment of my life.
+
+"I knew there was hope and I knew Sean's life was going to get saved."
+
+Sean, 45, received a call around the same time, bringing a "whirlwind of emotion".
+
+Una wanted to reassure potential donors that it is possible to live a normal life with one kidney
+
+The couple were initially included in a three-way transplant arrangement involving donors and recipients in different parts of the UK.
+
+However, on the morning of surgery on 8 October, while Una was prepped for theatre, they received news that Sean's intended donor had become unwell and could no longer participate.
+
+"I just looked at Sean and I saw his face. I thought, my God, his whole world was just crashing down around him," she said.
+
+After an agonising wait, an alternative match emerged.
+
+"By some miracle", Una said, the donor originally linked to her recipient was also compatible with Sean, allowing the transplant to proceed through paired donation.
+
+Una's kidney was flown to Edinburgh, while Sean's donor kidney travelled to Belfast.
+
+Hannah Magowan said Belfast was described as the "capital" of kidney sharing
+
+Hannah Magowan, one of the specialist transplant surgeons at Belfast City Hospital, who performed Sean's transplant and helped with Una's surgery, said the sharing scheme had been operating in Northern Ireland since 2010.
+
+She said it had helped almost 200 people here receive a living-donor transplant.
+
+In 2025/26 alone, 20 of the 69 living-donor kidney transplants took place through the scheme - almost three in every 10.
+
+Magowan said Northern Ireland had become the biggest subscribers and contributors to the scheme, despite accounting for about 3% of the UK population.
+
+She said Belfast was described as the "capital" of kidney sharing because of the number of patients and donors coming forward.
+
+However she added there was probably a lack of awareness about the sharing scheme as "another method of donation", even among people living with kidney disease.
+
+Magowan said living-donor transplants could help patients avoid dialysis, as in Sean's case, and potentially lengthy waits for a deceased-donor kidney.
+
+"It's the gift of life for someone who can't avail of a direct donation," she added. "That's sharing at its best."
+
+Sean and Una are recovering well and intend to return to work before Christmas.
+
+Una wanted to reassure people that she would soon be back leading a "perfectly normal" life with just one kidney.
+
+"We're now looking to the future and if Sean gets another 37 years we'll be doing very, very well," she added.
+
+Una said she would never know much about who received her kidney other than they were critically ill and the transplant was successful.
+
+"You don't need to know someone to change their life," she said.
+
+"That's the gift of life through the sharing scheme â the fact that you are making that difference."
+
+Sean could not put into words how he felt about his wife, who had given him "the gift of life again".
+
+He hopes their "phenomenal journey" will encourage more people to consider living donation.
+
+Hundredth NI kidney donation saves life of six-year-old stranger
+
+Daughter 'can never repay hero' mum for kidney
+
+Almost 30 kidney transplants performed amid crisis
+
