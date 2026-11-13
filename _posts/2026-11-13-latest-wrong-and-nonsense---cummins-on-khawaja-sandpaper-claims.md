@@ -1,0 +1,153 @@
+---
+layout: post
+title: "Latest: 'Wrong' and 'nonsense' - Cummins on Khawaja sandpaper claims"
+date: 2026-11-13T04:26:57
+author: "badely"
+categories: [News]
+tags: []
+excerpt: "Australia captain Pat Cummins hits back at former team-mate Usman Khawaja’s claims over the sandpaper scandal, calling them “100% wrong” and “utter no"
+image: assets/images/default.jpg
+---
+
+Let's dive into the details: Pat Cummins was named Australia Test captain in 2021
+
+Australia captain Pat Cummins has hit back at former team-mate Usman Khawaja's claims over the sandpaper scandal, calling them "100% wrong" and "utter nonsense".
+
+In 2018, Steve Smith, David Warner and Cameron Bancroft were punished for a plot to tamper with the ball using sandpaper in Australia's Test against South Africa in Cape Town.
+
+Khawaja has published his autobiography this week and the former batter has said the entire Australia team, which included Cummins, knew about the sandpaper scheme and should have taken responsibility.
+
+But in an extraordinary 68-minute address to the media in Sydney, Cummins countered and said: "When he says we all knew, if by that he means we knew sandpaper was going out on the field, he's 100% wrong.
+
+"I said that consistently for the last eight years. I did not know that was happening.
+
+"He says that I and others were architects of a scheme to ball tamper with sandpaper. That's complete and utter nonsense."
+
+This video can not be played
+
+Complete and utter nonsense - Cummins
+
+Cummins and Khawaja played 56 Tests together until Khawaja retired from international cricket in January.
+
+Khawaja was in the Australia XI when Cummins made his Test debut in 2011 and the pair were also once team-mates in domestic cricket with New South Wales.
+
+"Usman is a friend, but friends aren't casual with each other's lives and reputations," said Cummins.
+
+"In his book he's been casual with my life and the lives of many others - and, I think, Australian cricket.
+
+"I support him to tell his story, 100%, I'm glad he feels like he can, but we have to be accountable for the things that we say and do."
+
+In a media conference he arranged himself, Cummins began by promising to answer all questions because, he said: "I don't want to talk about this again after today."
+
+At times emotional, Cummins addressed a wide range of topics, including:
+
+Advice that some of Khawaja's claims are defamatory, but he will not take legal action
+
+He had been in contact with Khawaja and Smith since the book was published, but not Warner
+
+His belief that the one-year bans handed to Smith and Warner, and a nine-month suspension to Bancroft were "heavy handed"
+
+He had no recollection of Australia tampering with the ball in the 2017-18 Ashes series against England
+
+He had met with Cricket Australia chief executive Todd Greenberg, who has reviewed the files from the original investigation
+
+Explaining why sandpaper would have been present in the dressing room and that it was sometimes used by bowlers in training in order to practise with a reverse-swinging ball
+
+Khawaja's allegations have reopened the debate about the sandpaper plot, the investigation into the cheating, the culture of Australian cricket and the reputations of those involved.
+
+The story has dominated the media in Australia and caused headlines around the cricketing world.
+
+Khawaja has been supported by Warner and Chadd Sayers, a seam bowler who was part of the Australia squad on the 2018 tour of South Africa.
+
+However, his allegations have been rejected by Darren Lehmann, who was then the Australia head coach and former England batter Graeme Hick, one of Lehmann's assistants. Mitchell Starc, another bowler on the tour, has also denied Khawaja's claims.
+
+Khawaja has put a spotlight on Cummins and his fellow bowlers Starc, Josh Hazlewood and Nathan Lyon. The four were Australia's attack in Cape Town and remain their first-choice bowlers eight years later.
+
+The quartet have always denied any knowledge of the plot, including in the release of a joint-statement in 2021.
+
+In his book - Sabr - Khawaja alleged Australia were urged to find ways of getting the ball to swing by a coach, while Bancroft was later encouraged to cheat.
+
+Khawaja also said he asked for the entire team to take responsibility for the controversy in Cape Town, but his request was rejected by two unnamed players.
+
+Cummins said he does not recall any suggestion that the team should have shared the responsibility, or that it was rejected.
+
+On the idea that the whole team were aligned in a plot to tamper with the ball, he said: "There was no masterplan around using illegal methods. People assume you've gone from very legal methods to suddenly taking sandpaper, and there must have been some huge masterplan.
+
+"That is not the case. There's no grand plan. There's no team meeting. There's no bowlers saying this is what must happen."
+
+"There's big leaps where Usman is being vague."
+
+This video can not be played
+
+How sandpapergate was exposed
+
+In his book, Khawaja detailed how he was not interviewed as part of the investigation despite sitting next to Bancroft in the changing rooms during the Test at Newlands.
+
+Both Khawaja and Warner have criticised the investigation, which Greenberg has said he will not reopen.
+
+Cummins confirmed he has met with Greenberg and, although the captain said he did not want to break a "confidence", that Greenberg has reviewed the sandpaper files since the release of Khawaja's book and found the accounts in the investigation to be "consistent".
+
+Cummins has played 77 Tests for Australia and has been captain since 2021. He said he has seen only one instance of ball-tampering in his career, during a domestic Sheffield Shield match, when a player took a bottletop on to the field.
+
+However, he did admit that balls can sometimes be altered during training sessions, if bowlers want to practise in a certain way, or batters want to face a ball of a particular condition.
+
+Cummins said it was not unknown for training balls to be scuffed in such circumstances, using sandpaper or even a Stanley knife.
+
+When it was put to Cummins that he, as a bowler, must have suspected that the Cape Town ball had been tampered with, the 33-year-old described that bowlers often touch a ball as little as possible, in order to keep it dry and in a state where it will reverse-swing.
+
+At the time of the sandpaper scandal, Cummins was 24 and playing in his 13th Test. Asked about a potential culture of ball-tampering in that era, Cummins said he noticed things then that he now realises could have been cheating.
+
+On why Khawaja has chosen to speak now, at the end of his career, rather than in the intervening eight years, Cummins said the episode could have "weighed heavy" on the left-hander.
+
+Addressing the culture of the Australia team eight years ago, Cummins said: "I didn't like the way we spoke to umpires, the opposition. I think there was a bit of an arrogance and a bit of an ugliness at times that didn't sit well with me as a young guy.
+
+"Now I'm captain, I have spent a lot of time making sure that that's not the case."
+
+Speaking about Cummins' news conference on Fox Cricket, where he is working as an analyst for Australia's one-day series against England which got under way on Friday, Warner said: "I stick with Uzzie. It's the truth. The captain threw Uzzie under the bus.
+
+"We've got to live with the consequence daily. I feel it was a botched investigation. To get it over and done with. This won't rest.
+
+"I'm not going to accept [things] until the truth is out."
+
+Australian cricket's sandpapergate is back - and it cuts deep in a 'nation of good sports'
+
+Khawaja's claims - in his book, in interviews and on social media - have re-opened old wounds in Australian cricket, drawing battle-lines that have verged on civil war.
+
+Over the past few days, constant questions have been asked of who knew what and if the truth has been covered up in the intervening eight years.
+
+The most pressure has been on the bowlers who played for Australia in Cape Town, none more so than Cummins, given his rise to the captaincy.
+
+He has been urged to front up, to show leadership. In an indoor cricket centre in Sydney, Cummins did just that.
+
+Others connected to the scandal who have faced the media in the past few days â Lehmann, Starc and Mitchell Marsh â have almost implicated themselves with vague responses to straight questions. Not Cummins.
+
+The captain did not duck or dodge any of the subjects that were thrown at him by a huge throng of assembled journalists. He did so without any intervention from a media manager.
+
+What was most striking was his criticism of Khawaja, once a team-mate and friend. In being so forceful of his rejection of what Khawaja has claimed, Cummins appeared to be a reliable witness.
+
+The question is whether this will be enough to end the speculation. Khawaja is sure to have another say. So too Warner, who is yet to release a book of his own.
+
+Cummins cannot prove a negative, so can use only his words when it comes to convincing the world he was not involved in the sandpaper plot.
+
+On this occasion, Cummins was impressive. Still, when he says he never wants to talk about sandpaper again, that feels like wishful thinking.
+
+Facing more than a dozen TV cameras, and a gaggle of reporters several times as large, Cummins answered questions for over an hour - determined to put so-called "sandpapergate" to rest.
+
+He was patient and cautious, pausing often to consider his responses and to make sure they answered the questions being asked of him, even at one point shooing away a minder from Cricket Australia who tried to wrap things up.
+
+Cummins was careful in his criticism of Khawaja, despite needling questions from the media gathered, but he was also frank - using strong words to reject his claims and admitting he was annoyed Khawaja had put him in this position.
+
+He spoke of a mix of amusement and uneasiness at the camera crews now parked outside his house.
+
+He rejected media speculation that his captaincy could be under threat. He admitted he was struggling to reconcile his years-long friendship with Khawaja with the events of the past week: "That's something I've been grappling with the last couple of days... friends aren't casual with each other's lives and reputations."
+
+But gesturing to the Sheffield Shield match going on outside the batting nets, and referencing the ODI about to begin in Perth, he said he was also incredibly frustrated that the sandpapergate scandal is still a distraction for Australian cricket.
+
+"It's been eight years. We're moving on. So âyou have got to draw a line at some point."
+
+Khawaja refuses to name Aussie ball tamperers
+
+Australia doomed to live with stench of sandpapergate
+
+âSandpapergateâ: Khawajaâs revelations rock Australian cricket
+

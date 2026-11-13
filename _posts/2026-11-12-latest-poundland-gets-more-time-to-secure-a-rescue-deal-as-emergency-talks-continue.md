@@ -1,0 +1,59 @@
+---
+layout: post
+title: "Latest: Poundland gets more time to secure a rescue deal as emergency talks continue"
+date: 2026-11-12T14:29:59
+author: "badely"
+categories: [Business]
+tags: []
+excerpt: "A deadline to secure a buyer was set to expire at midnight, but the retailer now has an extra 10 days to find a buyer."
+image: assets/images/9fbd1cac40c1345105e9a3a96c0878b6.jpg
+---
+
+It has been recently reported that Poundland has avoided immediate collapse after a deadline was extended to find a rescue deal.
+
+A deadline to secure a buyer for the retail chain was set to expire at midnight, but a court has given Poundland an extra 10 days to find a buyer.
+
+The discount chain, which has 11,000 employees, has been edging towards administration after being blocked by owners Gordon Brothers from accessing cash in its bank accounts.
+
+A committee of MPs questioned Gordon Brothers following accusations that the investment firm hoped to profit from selling off Poundland's 600 shops and stock piecemeal.
+
+Gordon Brothers - which bought the chain for just Â£1 last year - is accused of forcing that outcome by restricting Poundland's access to available cash needed to restock shops, and pay wages and rent, ahead of the crucial Christmas trading period. 
+
+The investment firm, which specialises in buying and restructuring distressed companies, has denied the claims.
+
+However, pressure remains on Poundland's owners after a takeover bid was rejected. The decision prompted calls for answers from politicians, including Prime Minister Andy Burnham.
+
+About Â£50m had been frozen by Gordon Brothers, the BBC understands, meaning Poundland bosses were unable to restock shelves across its 600 shops.
+
+The BBC understands that Gordon Brothers agreed to release a further Â£11m today from Poundland's accounts, on top of Â£10m announced earlier, as the firm seeks to find a new buyer.
+
+Gordon Brothers said it was in talks with three parties for a sale of the whole business, and it had received "several offers from established high street retailers for significant parts of the business".
+
+Following the meeting between MPs on the business and trade committee and representatives of Gordon Brothers, chairman Liam Byrne told the BBC that he was "deeply concerned" and described the firm's behaviour as "much like a wolf on Wall Street, on the British High Street".
+
+"They refused to prioritise protecting jobs and stores over and above their own financial returns," he said. 
+
+"It's clear that they've taken millions out of Poundland at a time when they themselves said the business was on a knife edge."
+
+Byrne said the committee's message to Gordon Brothers was to ensure Poundland had "access to the funds that it needs to trade at what should be one of the busiest periods in the year". 
+
+He urged Gordon Brothers to "do what is right to save jobs and stores and do that now". 
+
+"It's a good business, it's a much-loved business and, particularly in the middle of the cost of living crisis, communities up and down the country rely on access to the kind of stores that it operates," Byrne added.
+
+Views on the chain's performance differ between those running operations and the owners. 
+
+Poundland boss Williams told staff last week that like-for-like sales, which exclude new store openings, were up 11.4%. The sales period included Halloween, but Williams said this was Â£1.5m ahead of budget.
+
+He added that the business made a profit of Â£18.1m in the year to September, which was a "strong recovery" from the previous year when there were losses of Â£68m.
+
+However, Gordon Brothers has painted a different picture, saying the chain remains "challenged and vulnerable to any potential downturn in future trading". 
+
+It has argued that the best way of securing jobs may be to split up the business and sell chunks of its 600 sites to other retailers.
+
+There has been interest from the likes of Poundstretcher, Tesco and B&M in picking up Poundland shops, which could mean continuing employment for workers at those sites.
+
+The main issue is whether a piecemeal sale would protect more jobs than a buyer willing to keep Poundland as a national chain.
+
+Are you affected by issues discussed in this story?  Do you work for Poundland? Share your experiences.
+
