@@ -1,0 +1,67 @@
+---
+layout: post
+title: "Big News: Australia's Sayers 'took sandpaper from field' & rejects Cummins' claims"
+date: 2026-11-15T09:33:33
+author: "badely"
+categories: [Sports]
+tags: []
+excerpt: "Australia bowler Chadd Sayers says he helped take sandpaper from the field in the match prior to the Cape Town Test and backs Usman Khawaja's recollec"
+image: assets/images/975778487228c8d158ad3b04a98e4796.jpg
+---
+
+According to new developments, Pat Cummins (left) and Usman Khawaja (right) have given conflicting accounts of the sandpaper scandal from 2018
+
+Former Australia bowler Chadd Sayers says he helped take sandpaper off the ground in the match before the infamous Cape Town Test and has backed Usman Khawaja's recollection over Pat Cummins' - saying he believes "everyone knew" about the plan to ball tamper.
+
+Sayers, 39, was 12th man during the second Test of the 2018 series against South Africa in Gqeberha, previously known as Port Elizabeth, and backed the claim from Khawaja's book that sandpaper was also used there.
+
+"It was given to me to take off," Sayers said on SEN Radio.
+
+"That wasn't planned or anything. It was a wicket or drinks break after tea."
+
+Sayers also said there was a "60 to 90-minute" meeting in the Australia dressing room after Bancroft had been caught using sandpaper in Cape Town, in which players discussed taking collective responsibility - something Khawaja claims but Cummins said he did not remember in his extraordinary news conference on Friday.
+
+"I am comfortable sitting here that I believe everyone in that side knew what was going on and what was being used," said Sayers, whose one Test was the final match of that series.
+
+"It [sandpaper] was used in two Test matches and there were discussions in the changing rooms.
+
+"I'm not taking sides, it's just my recollection of what took place.
+
+"After the occurrence in Cape Town, we all sat in the changing rooms after that day's play and, probably for 60 to 90 minutes, we talked about what had happened and I guess where to next."
+
+Sayers took two wickets in the fourth Test in Johannesburg - the Test after Australia's use of sandpaper to aid reverse swing had been uncovered
+
+Sayers first backed Khawaja's recollections last week, saying "everything" in the former opener's book was "accurate".
+
+In an episode which has dominated headlines in Australia and elsewhere, Khawaja said the entire Australia team knew about the plan to use sandpaper to tamper with the ball and should have taken responsibility.
+
+Cummins, a bowler in that squad and now Australia captain, emphatically rejected the claims by calling them "100% wrong" and "utter nonsense".
+
+The bowlers - Cummins, Josh Hazlewood, Mitchell Starc and Nathan Lyon - have always claimed they did not know.
+
+David Warner accused Cricket Australia of a "cover-up" on Saturday, suggesting Hazlewood, Starc and Lyon had not been interviewed as part of the governing body's investigation.
+
+Vice-captain Warner, Bancroft and then captain Steve Smith served lengthy bans for their role in the scandal.
+
+The Sandpapergate Scandal
+
+'Wrong' and 'nonsense' - Cummins on Khawaja claims
+
+Australia doomed to live with stench of sandpapergate
+
+With the saga continuing, former fast bowler Jason Gillespie called on Cricket Australia (CA) to "take the lead" to manage the situation.
+
+Chief executive Todd Greenberg has said CA will not reopen the investigation and has resisted calls to make the findings public.
+
+He has spoken to some media since the issue resurfaced but has not held a news conference like Cummins.
+
+"I know Todd Greenberg came out and said 'we're satisfied with what the investigation back in 2018' and we're going to tie a bow on it and we're done," Gillespie told BBC Sport.
+
+"Just the sheer media scrunity on this and the public thirst for knowledge suggests this is far from over.
+
+"I certainly believe Cricket Australia need to be the ones who are fronting the press, fronting the public. Whether they release the information they know, my understanding was they were confidential conversations."
+
+"[The Australian public] want to know what happened because the Australian public hold their cricket team in the highest regard. And if there's any evidence of blatant cheating, they want that called out."
+
+Get cricket news sent straight to your phone
+
