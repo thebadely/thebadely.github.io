@@ -1,0 +1,121 @@
+---
+layout: post
+title: "Breaking: How Frank can restore reputation and save Crystal Palace"
+date: 2026-11-16T17:46:16
+author: "badely"
+categories: [Sports]
+tags: []
+excerpt: "Will Thomas Frank - now confirmed as the new manager of Crystal Palace - rebuild his reputation at Selhurst Park after a bruising time at Tottenham?"
+image: assets/images/e5190fda6ef8bab5f28f233f72f1507b.jpg
+---
+
+Here’s what you need to know: Crystal Palace are Thomas Frank's third London club after previous spells with Brentford and Tottenham
+
+"When the time is right I will look forward to my return as a manager, ready to embrace the job with great energy and dedication," said Thomas Frank in June.
+
+That time is now after the Dane was confirmed as the new manager of Crystal Palace, who are two points and a goal difference deficit away from safety at the bottom of the Premier League.
+
+Former boss Pierre Sage was sacked last week after just 16 league and cup games.
+
+The role offers Frank an opportunity to rebuild his reputation after he was sacked by Tottenham in February after eight months.
+
+Frank described it as "an honour" to be "in charge of this fantastic football club" as Palace announced his arrival on a deal running to June 2029.
+
+"Crystal Palace is an iconic club in England and in the Premier League," Frank told Palace's website.
+
+"I will do everything I possibly can to help and support the players and everyone around the place, and I'm really looking forward to meeting them."
+
+Palace chairman Steve Parish said Frank was the "perfect fit for our club".
+
+But how big is the challenge at Selhurst Park that awaits the man who made his name at Brentford?
+
+"It's going to be a bit of a shock for Thomas Frank," former West Ham and England goalkeeper Rob Green tells BBC Sport.
+
+"He had his success at Brentford - a very well-run club where players are brought in with a lot of thinking and planning to take over the players they sell for profit.
+
+"That doesn't happen at Crystal Palace.
+
+"They lose players and then have a mad scramble to get players in. They have a team that has been decimated by sales and not replaced by the same quality.
+
+"Thomas Frank needs to find something within that team that builds and garners the belief that means that they can compete in the Premier League, because it feels a long way short of that right now."
+
+Will Frank prove the right fit for Palace and haul the Eagles out of the relegation zone?
+
+Frank 'the perfect man' for Palace job
+
+Since getting the sack at Tottenham after 26 league games last season, Frank has been out of management longer than he was in charge of Spurs.
+
+In the summer he released a statement in which he said "there have been conversations and opportunities" to return to management, but that he had "decided not to rush into the next role".
+
+Frank's name was heavily linked with Palace before they went for a head coach with no Premier League experience to replace Oliver Glasner - the man who delivered an FA Cup, a Conference League title and the Community Shield before moving to Nottingham Forest.
+
+"Palace had one of the best managers they have had, if not forever, silverware coming across the doorstep. Look at what they achieved last season and instead of building on that, they dismantled a team," said former Tottenham and England goalkeeper Paul Robinson.
+
+"They have regressed."
+
+Frank once described managing as being on a "hamster wheel" and a "crazy circus"., external
+
+Palace confirmed his coaching staff will include current assistant manager Paddy McCarthy and goalkeeping coach Andy Quy, who previously worked with him at Brentford.
+
+Justin Cochrane, who is part of Thomas Tuchel's England staff, is set to join.
+
+Palace are also in the process of approaching Chelsea set-piece coach Bernardo Cueva, who would join as assistant first-team coach.
+
+It is understood Frank would like to take Andreas Georgson from Tottenham, though the north London club are determined to keep the Swede.
+
+Denmark fitness coach Chris Haslam, who worked with Frank at Tottenham, is another potential member of Palace's new coaching set-up.
+
+A trip to Coventry City awaits Palace on Saturday.
+
+So why does Frank feel now is the right moment to return to management at a club propping up the table?
+
+Frank, who was part of BBC Sport's World Cup punditry team during the summer, will be coming into the job refreshed and with renewed energy and enthusiasm following several months out of the game.
+
+Between his appointment as Brentford boss in October 2018 and the sack at Tottenham earlier this year, he managed without a break for seven years and four months.
+
+Spending the past few months away from Premier League pressure has allowed Frank, in his own words, to "study, observe and learn from other leaders both within sport and beyond".
+
+Will his positivity and passion rub off on a Palace team who have lost seven times in 10 top-flight matches?
+
+This video can not be played
+
+Would Thomas Frank be a good fit for Crystal Palace?
+
+Frank, who places a major emphasis on set-piece organisation, will have to hit the ground running at Palace, who have lost their past four league games.
+
+They have conceded more goals than anyone else in the Premier League (24) and have scored only 10 themselves.
+
+"If you want someone to go in and restore some stability and defensive solidity while improving the set-piece element of the team, then Thomas Frank is the perfect man for the job," Times football writer Tom Allnutt told BBC Radio 5 Live's Football Daily podcast.
+
+With the Premier League season just 10 games old, Frank certainly has time to turn it around and will have targets in mind when the transfer window opens in January.
+
+Palace sold France centre-back Maxence Lacroix to Chelsea for Â£52m and Colombia right-back Daniel Munoz to Nottingham Forest for Â£22m during the summer transfer window.
+
+Allnutt added: "We know they have sold so many good players and so far I don't think they have really replaced them adequately."
+
+Another challenge for Frank is getting midfielder Adam Wharton, who has not played for England since March, back to something like his best form.
+
+These are all challenges the new manager will relish.
+
+After his bruising experience at Tottenham - having established Brentford in the Premier League - Frank has decided to climb back on the hamster wheel with Palace.
+
+"Crystal Palace and Thomas Frank feels like a very good fit," added Robinson.
+
+This video can not be played
+
+Crystal Palace fan calls Thomas Frank 'the perfect hire'
+
+Thomas Frank has a lot of work to do as Crystal Palace have undoubtedly been the worst team in the Premier League so far this season, ranking bottom not just in points (seven) but also goal difference (-14) and expected goal difference (-8.1).
+
+It's the defence where Frank will have to focus most of his attention. Not only have Palace conceded the most goals (24) but they've also faced the most shots (189) and have the worst expected goals against (xGA) figure in the league (21.9).
+
+Their attack has actually not been too bad. While only Hull have taken fewer shots, the Eagles have created really good chances and have perhaps been unlucky not to score a few more goals given the opportunities they've had.
+
+There is also one significant factor in Frank's favour. Although Palace may be bottom of the Premier League, they are certainly not cut adrift as they sit just two points from safety.
+
+The side propping up the table at this stage have had an average of just three points in the past 10 seasons, but for as bad as they've been, Palace have seven - the most the bottom side have had after 10 games for 24 years.
+
+Latest Crystal Palace news, analysis and fan views
+
+Ask about Crystal Palace - what do you want to know?
+
