@@ -1,0 +1,105 @@
+---
+layout: post
+title: "Update: Record crowds, legends - Bordeaux bid to escape amateur game"
+date: 2026-11-18T10:51:37
+author: "badely"
+categories: [Sports]
+tags: []
+excerpt: "Bordeaux fans thought things could not get any worse, then they were demoted to France's amateur sixth tier."
+image: assets/images/3de5fbb14912011eb34afc5169bb7e74.jpg
+---
+
+It has been recently reported that Bordeaux fans protested when the club were demoted to the sixth tier
+
+The latest stop on Zinedine Zidane's homecoming tour was an important one for the new France head coach. When Les Bleus took on Turkey in Bordeaux on Sunday night, the ex-midfielder was returning to the city in which he spent four formative years of his playing career, between 1992 and 1996.
+
+"I became a man in Bordeaux," Zidane fondly recalled in the build-up. France edged triumphed 2-1 with an uninspiring display, but it did not dampen the mood of the 40,000 fans inside the Stade Atlantique.
+
+While the 1998 World Cup winner was not necessarily in familiar surroundings (the out-of-town stadium was built for Euro 2016, 20 years after his departure for Juventus), locals made every effort to make him feel at home, holding up a commemorative tifo before kick-off and chanting Zizou's name throughout.
+
+Just a few miles up the road earlier that afternoon, Zidane's former club were playing their fifth match of the season in the sixth-tier Regional 1, in a north-western suburb of the city.
+
+Thousands of Bordeaux fans had made the short away outing to Saint-Medard-en-Jalles' 3000-seater ground to watch their team seal a fifth win in five this season.
+
+Girondins de Bordeaux, the six-time French champions, who were once regulars in European cups, now find themselves facing amateur opposition on a weekly basis.
+
+Since 2022, the club has plummeted from Ligue 1 to the sixth tier through a combination of on-pitch struggles, mismanagement at all levels, and sanctions due to their financial troubles.
+
+Listen to the latest Football Daily podcast
+
+The club was taken over in 2021 by Gerard Lopez, who was previously in charge of Formula 1's Lotus as well as another French side, Lille.
+
+While Bordeaux were already hamstrung by debts at that point, the situation on and off the pitch worsened under the Spanish-Luxembourgish businessman as the men's first team finished rock bottom of Ligue 1 in his first season.
+
+A couple of seasons in Ligue 2 followed, before the club was docked down to the fourth tier in 2024. In their first National 2 season, they notably signed Andy Carroll but ultimately missed out on promotion.
+
+The following campaign saw a repeat of that near miss, and the club was expelled from national-level football altogether this summer over their finances.
+
+With Bordeaux left on the brink and whittled down to just eight full-time employees (down from around 250 a few years beforehand), Lopez sold up to Park Bench, a group of mainly British USA-based investors who also own Scottish side Dunfermline as well as a minority stake in Spanish second tier side Cordoba.
+
+The supporters turned out in their numbers for the first home match of the campaign, which had been delayed amid the uncertainty over whether the club could continue running, against Stade Montois.
+
+More than 11,000 tickets sold, a record crowd for that level of French football.
+
+"140 years of history, we won't be stopped," read one of the banners held up by the Ultramarines fan group, who also made it a point to thank the seven first-team players who had stayed despite the club's double relegation.
+
+The team is centred around a core of players with Ligue 1 and Ligue 2 experience. Steve Shamal, who scored a hat-trick in that 4-1 victory over Stade Montois, previously turned out for the likes of Caen and Annecy in the second tier.
+
+"We know we should be higher up, but that certainty can also be a trap," said Shamal after the game. "We shouldn't think that it's going to be easy.
+
+"We need to respect our opponents if we're going to put in good performances."
+
+As the sixth tier of French football is regionalised, only the league winner in the Nouvelle Aquitaine region's top flight will earn promotion.
+
+Their on-pitch success so far this season comes as little surprise given the gulf in quality compared to the rest of the league. Over the summer, Bordeaux notably managed to hold on to Europa League-winning full-back Almamy Toure, while former Belgian youth international striker Baptiste Guillaume also joined.
+
+Several former players have also looked to get involved in Bordeaux's revival.
+
+Benoit Tremoulinas, the former French international who was a part of the title-winning squad in 2008-09, notably announced that at the age of 40 he would be lacing up his boots again seven years after injury forced him to retire.
+
+Paul Baysse, the former centre-back, is an assistant to head coach Arnaud Cormier.
+
+Benoit Tremoulinas spent six years at Bordeaux, winning a league title and two cups, before also twice winning the Europa League with Sevilla
+
+Perhaps the most significant endorsement the new owners could have hoped for was that of Alain Giresse, widely regarded as the club's greatest player. The Euro 1984 winner, who won three league titles while playing more than 500 times for the Marine et Blanc, was in attendance for the match against Stade Montois. He took the ceremonial kick-off before giving a full-time dressing room speech.
+
+The new management unveiled their long-term plans for the club on Monday at Le Haillan, the city-owned training ground which includes a chateau that hosts the club's headquarters.
+
+"We are humbled to have this responsibility," Park Bench investor Jeremy Green said.
+
+"The club doesn't belong to Park Bench, it belongs to Bordeaux, it belongs to the 11,000 people who came to watch a Regional 1 game, to the players and to the community. We have a responsibility to rebuild this club.
+
+"Our commitment to the community and to the players is that we will be fiscally responsible and patient. 
+
+"We're not a financial institution, we're a collection of individuals who bring with them business, sporting, analytical, and entrepreneurship skills."
+
+Dominique Delport, the club's new president, revealed he knew Green and Twining through his wife, who studied at Oxford with them.
+
+"We can learn from the club's golden years," the former journalist and advertising executive told BBC Sport, before adding that he would look to bring club legends to every league game.
+
+Bordeaux won the Coupe de France as recently as 2013
+
+While the club was sold for a symbolic euro, it did involve taking on long-standing debts which spanned transfer fees, stadium rent, and a compensation claim by former head coach Vladimir Petkovic.
+
+Last Friday, the city's commercial court approved a request to restructure the debt as part of the club's continuation plan.
+
+When Bordeaux were expelled from national-level football by the French FA at the start of the summer, the club used several avenues to appeal while the takeover was being finalised.
+
+"We thought we had acquired the club in National 1 [the fourth tier]," Green and co-investor James Twining, told BBC Sport.
+
+"Initially we walked away, but we were encouraged to come back," Green added. "We established that we were going to be able to restructure things and make it work.
+
+"People around the club and in the local community encouraged us to try to find a way."
+
+The six-time French champions have a long way to go before returning to the top flight.
+
+"We're committing to a sensible financial structure, to a well-run club, and we're talking about 10 years to get this club back to Ligue 1," the new investors added.
+
+A crucial step towards that long-term goal will be returning to the professional leagues, which would allow them to re-open the youth academy they were made to close when they dropped down.
+
+Rebuilding the women's team, who were involved in the Champions League only a few seasons ago, is another one of the new owners' objectives.
+
+Keeping the fans onside throughout the process will also be key, not least after the rift that opened up between groups during the previous ownership.
+
+In any case, if the record-breaking turnout for Bordeaux's return to league action is anything to go by, their support seems unlikely to waver anytime soon.
+
