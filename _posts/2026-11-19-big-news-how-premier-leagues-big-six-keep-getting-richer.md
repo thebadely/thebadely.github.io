@@ -1,0 +1,187 @@
+---
+layout: post
+title: "Big News: How Premier League's big six keep getting richer"
+date: 2026-11-19T07:38:22
+author: "badely"
+categories: [Sports]
+tags: []
+excerpt: "Ten games into the Premier League season, and the top five places are dominated by big six clubs. It should come as no surprise as they have a growing"
+image: assets/images/d101155b0ef84707e548f39bab0ea03a.jpg
+---
+
+Here’s what you need to know: Ten games into the Premier League season, four of the top five places are occupied by  'big six' clubs.
+
+Only second-placed Brighton, a club with a model which must be the envy of many of their rivals, and Premier League ever-presents Everton, have muscled their way in.
+
+In pure financial terms, it should come as no surprise.
+
+The six biggest clubs - Manchester United, Liverpool, Manchester City, Arsenal, Tottenham and Chelsea - now generate hundreds of millions of pounds more than the division's other teams.
+
+And the gap is growing. Every season.
+
+BBC Sport breaks down how the finances of the big six have exploded, examines new trends and the impact on the transfer market, and asks how much it really matters.
+
+Companies put their money where supporters are prepared to spend it. It is a simple fact of business in every country, a reality of football's food chain.
+
+In England, Liverpool, Arsenal and Manchester United traditionally dominated viewing figures, column inches, shirt sales and sponsorship.
+
+Over the past 20 years they have been joined by Chelsea, Manchester City and Tottenham.
+
+This group of clubs now generate so much money it is hard to imagine how they can fail in the long term - even factoring in short-term performance issues.
+
+Let's look at how the gap has grown.
+
+We will use Everton, the only club not in the big six to be in the Premier League since its inception in 1992.
+
+This tells a tale of how even one of the league's founding members can be left trailing well behind.
+
+In 2009-10, the gap in revenues between the big-six average and Everton was Â£120m. In 2024-25, that gap had grown to Â£442m.
+
+So what has driven this huge escalation?
+
+In large part it is the boom in international TV rights.
+
+Kieran Maguire, professor of football finance at the University of Liverpool, told BBC Sport that it has attracted companies prepared to pay large sums to be associated with the Premier League's top clubs.
+
+"The big football brand clubs have global fanbases and that makes them very attractive to global commercial partners, especially for sponsorship and front-of-shirt deals," Maguire said.
+
+"You combine that with the fact that the Premier League is broadcast to 190 different countries around the world, and especially the international audiences - that allows the clubs to negotiate very good prices."
+
+Only 10% of Everton's revenue comes from commercial deals, while for the big six it is 45%.
+
+It means Everton, and other clubs in the league, are heavily reliant on broadcast income. It makes up 66% of their revenue.
+
+For Everton at least, this should change following the move to Hill Dickinson Stadium.
+
+But that is unlikely to be enough to stop the gap increasing.
+
+It has taken a few years, but Aston Villa and Newcastle have begun to increase their revenue.
+
+This is largely thanks to the financial rewards of Champions League football. 
+
+But even Uefa has created a system which entrenches the position of the biggest clubs.
+
+When the European Super League plan was torpedoed, Uefa created a new financial deal called the value pillar.
+
+This reserves 35% of all Champions League revenues, or Â£713m, for the historically most successful clubs.
+
+At the end of the league phase last season City are estimated to have earned Â£37.9m from the value pillar, Liverpool Â£35.5m and Chelsea Â£33.3m. Newcastle received only Â£13.6m.
+
+The good news for Villa is their coefficient has improved greatly, aided by last season's Europa League win.
+
+Their value pillar is projected to be worth Â£25m this season. But that will still be less than the big six clubs in the competition.
+
+The cards are stacked against an ambitious club - not just domestically, but in Europe too.
+
+Take a look at the financial trend of the big six and one thing becomes noticeable - Chelsea are beginning to fall behind.
+
+In the past two seasons, and for the first time in recent history, the Blues recorded the lowest revenues of the big six.
+
+Not just by a small amount. They were Â£74m behind Tottenham, and Â£200m below Liverpool and Manchester City.
+
+City's matchday income is the lowest, with the club's huge revenues largely due to commercial deals. 
+
+City, however, have been found guilty of breaching the Premier League financial rules between 2009-10 and 2017-18, inflating the value by using "sham contracts" with sponsors. 
+
+The club deny wrongdoing and have lodged an appealed against the verdict.
+
+Chelsea's problem is simple - seats.
+
+Stamford Bridge has a capacity of only 40,000, with no easy scope for expansion. The rest of the big six have grounds which hold at least 60,000.
+
+Chelsea generated an average spend per fan of Â£80 in 2024-25, the second highest in the league after Arsenal.
+
+Yet with 20,000 fewer tickets sold than their big six rivals, Chelsea's total matchday revenues are dwarfed.
+
+"Matchday spend has become increasingly important," Maguire said. "There has been a flatlining of broadcast revenues, especially since 2017.
+
+"As a consequence, clubs have had to look at alternative methods of increasing revenues, especially with costs both on the pitch and off pitch rising so fast."
+
+Matchday revenue has effectively stalled for Chelsea, rising only Â£16m over the past 10 years. United's has grown by Â£69m and Spurs, thanks to their new ground, by Â£85m.
+
+"Chelsea are far more reliant upon player sales," Maguire said. "There is a growing divide because the global appeal is very much aligned with three or four clubs. 
+
+"Arsenal have re-established themselves with their progress in the Champions League. Manchester United are a brand in their own right. And Liverpool have expanded Anfield from 44,000 to 61,000, with many of those extra seats having gone to commercial."
+
+Chelsea's successful player trading model has so far limited the impact.
+
+But there are signs that, financially at least, the big six could become the big five.
+
+You might recall that Villa and Newcastle were not fans of the old profit and sustainability rules (PSR).
+
+PSR forced both clubs to sell some of their best players to balance the books.
+
+That has changed this season with squad-cost ratio (SCR).
+
+There is a key difference with SCR, in that it allows a club to spend the money they generate on players. PSR limited losses so was more restrictive.
+
+"This does make it a little easier for the likes of Villa and Newcastle to spend money," Maguire said. "But it is still heavily weighted in favour of the big six.
+
+"SCR is different to PSR rather than better. For some people, change is advantageous. For others, it isn't."
+
+So what does this mean?  
+
+The big six generate hundreds of millions of pounds more than the other clubs. So they can spend hundreds of millions of pounds more on their squads.
+
+This makes the big six even more powerful in the transfer market. 
+
+"Look at the clubs who voted against SCR - Brighton, Brentford, Bournemouth, Crystal Palace, Fulham and Leeds," Maguire said.
+
+"It's very noticeable that those clubs have traditionally been very good at player sales, while they have tended to have lower matchday and commercial revenues."
+
+Most of the big six  - the outlier being Chelsea - are not remotely close to the Premier League's 85% SCR limit.
+
+If you give clubs more money to spend on transfers, the likelihood is they will do just that. And the numbers back that up.
+
+Look at this summer.
+
+Premier League clubs spent Â£3.5bn - not only a highest total for a summer window, but it almost smashed the record for a whole season, the Â£3.53bn set in 2025-26. 
+
+The annual accounting cost of previous transfers, or amortisation, has been rising year on year.
+
+"Over the course of the last decade, transfer amortisation has more than doubled and close to tripled," Maguire said.
+
+"Which means that on average, clubs in the Premier League are now spending, or now have a cost which goes into their SCR calculations of just under Â£100m."
+
+Uefa fears that SCR will make matters worse, and have an inflationary impact across Europe.
+
+And you can see why it is concerned.
+
+In the summer 13 Premier League clubs broke their transfer record.
+
+Brentford, Brighton, Palace, Leeds and Nottingham Forest all spent more than Â£40m on a player - unthinkable until recently.
+
+So we have learned that the big six have more money than ever, and the gap is so huge it is impossible for any other club to compete with them, financially at least.
+
+And this is an important point: other than Villa and Newcastle, the other clubs are not trying to compete with the big six.
+
+Clubs like Brentford and Brighton have shown that smart models are just as effective as fat wallets.
+
+They sign the potential stars of the future, nurture them and then sell them to the big six.
+
+Football's ecosystem recycles the big-six money through the transfer market.
+
+But it is a precarious business for these other clubs.
+
+"The smaller clubs have to get it right on a more regular basis than the bigger clubs," Maguire said.
+
+"The big six can afford to make signings which are Â£60m and Â£70m, who turn out to be relative flops, and still have those players on high wages for several years."
+
+And this is perhaps the key point about the vast finances of the big six.
+
+The commercial power of the big six does not guarantee success. After all, United sit in the relegation zone.
+
+Yet Mauricio Pochettino, their new manager, may well get the chance to revamp the squad despite the club spending Â£945m on players in the past five years.
+
+The richest clubs can try to spend their way out of trouble. Again and again.
+
+But the rest of the league are only a couple of bad transfer windows from catastrophe.
+
+And that is the real gap between the big six and the rest.
+
+Vote for the first BBC Men's Footballer of the Year
+
+The tightest survival scrap for years? Why it's not too early to worry
+
+All your football quizzes in one place
+
