@@ -1,0 +1,59 @@
+---
+layout: post
+title: "Breaking: 'Better results for patients' since SWAH surgery suspended, says wellness chief"
+date: 2026-11-20T07:11:13
+author: "badely"
+categories: [Health]
+tags: []
+excerpt: "Emergency general surgery was temporarily suspended at SWAH in December 2022."
+image: assets/images/8306a6dcc0c78e9e42431915366444b3.jpg
+---
+
+Let's dive into the details: Emergency general surgery was temporarily suspended at the hospital in Enniskillen in December 2022, as difficulties in recruiting surgical staff meant there was a risk to patient safety
+
+There is a question mark over whether restoring emergency general surgery at the South West Acute Hospital (SWAH) in Enniskillen "is the right thing to do", according to the chief executive of the Western Health Trust.
+
+Karen Hargan told Stormont's Health Committee that there had been "better outcomes for patients" since the service was withdrawn - and that reinstating it would come at a substantial financial cost.
+
+Emergency general surgery was temporarily suspended at SWAH in December 2022 as difficulties in recruiting surgical staff meant there was a risk to patient safety.
+
+Patients in need of emergency general surgery are now taken by ambulance to Altnagelvin Hospital in Londonderry.
+
+Campaigners have said the distance and travel time, as well as poor transport infrastructure, puts lives at risk.
+
+Campaign group Save Our Acute Services (SOAS) said the service should be restored and that people in County Fermanagh feel abandoned.
+
+It is initiating legal action over the decision.
+
+A public consultation on the temporary closure of the service was paused last year, but as part of a "visioning programme" for the future of the trust a further consultation to include the permanent removal of emergency general surgery is expected in summer 2027.
+
+The Western Health Trust chief executive said she was aware of a strong opposition within some in the Fermanagh community for a restoration of the service.
+
+She added: "There are costs associated with that. There is a question about whether or not we could sustain it.
+
+"There's also a question about whether or not it would be the right thing to do.
+
+"In terms of outcomes for patients, the information that we currently have is that we are achieving better outcomes for patients as a result of the consolidated general surgery rota, both in terms of mortality and in terms of complications."
+
+Patients in need of emergency general surgery are now taken by ambulance to Altnagelvin Hospital 
+
+Hargan said SWAH "would not meet the emergency general surgery standards" at present.
+
+Emergency general surgery treats sudden, serious conditions in the abdomen and elsewhere that threaten life, organs or tissue.
+
+It involves fast assessment and operations for issues like appendicitis, bowel obstructions, hernias, gallstones or trauma, often via the emergency department, and requires rapid decision-making and treatment.
+
+The Western Health Trust said many patients could be treated in its ambulatory surgical patient unit the same day or the next day, with an average of 2.5 patients a day being transferred to Derry for surgery.
+
+Western Health Trust staff told the Health Committee that 97% of patients transferred from SWAH to Altnagelvin were directly admitted to a bed and did not have to go through the hospital's emergency department.
+
+Earlier, they told politicians on the committee that Altnagelvin's emergency department was facing significant pressures and now dealt with about 70,000 visits a year.
+
+The trust said the age and physical layout of the unit was a challenge and that a proposed Â£73m revamp was its number one capital priority.
+
+Health watchdog finds progress made following service suspension but further improvement required
+
+Campaigners take fight for hospital services to Stormont 
+
+Emergency general surgery withdrawn from SWAH
+
