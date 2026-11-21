@@ -1,0 +1,41 @@
+---
+layout: post
+title: "Latest: Osimhen keen on Man Utd move - Saturday's gossip"
+date: 2026-11-20T20:06:51
+author: "badely"
+categories: [Sports]
+tags: []
+excerpt: "Victor Osimhen is keen on a move to Manchester United, Aston Villa are interested in Amad Diallo and Ivan Toney is a target for Crystal Palace, plus m"
+image: assets/images/93e77cdd9aea83fa7baf61c93cc3c2ec.jpg
+---
+
+Let's dive into the details: Victor Osimhen keen on move to Manchester United, Aston Villa interested in Amad Diallo and Ivan Toney a target for Crystal Palace, plus more.
+
+Galatasaray and Nigeria striker Victor Osimhen, 27, is willing to move to Manchester United in a Â£100m January deal if they can match his current salary. (Sun), external
+
+Amad Diallo, 24, is prepared to leave Manchester United if he does not get regular playing time under new boss Mauricio Pochettino, with Aston Villa interested in the Ivory Coast winger. (Africa Foot, via Teamtalk), external
+
+England striker Ivan Toney, 30, could be a target for Crystal Palace in January in a move which would involve him linking up with Eagles boss Thomas Frank, who the Al-Ahli striker played under at Brentford. (Talksport), external
+
+Brazil forward Richarlison is expected to leave Tottenham in January but it is unlikely the 29-year-old will be allowed to join a fellow Premier League club. (Football Insider), external
+
+Real Madrid boss Jose Mourinho wants to keep Endrick, 20, at the club, but would "respect" the decision if the Spanish giants' hierarchy decide otherwise. The Brazil striker has been targeted by teams in England and Italy.  (Gazzetta dello Sport - in Italian), external
+
+Liverpool and Brighton are interested in Borussia Monchengladbach's highly rated 17-year-old attacking midfielder Wael Mohya, with Bayern Munich also interested in the German talent. (Caught Offside), external
+
+NFL legend Tom Brady is in talks to buy a small stake in Chelsea after selling his minority share in Birmingham City. (Guardian), external
+
+Germany forward Jamal Musiala, 23, and France centre-back Dayot Upamecano, 28, have release clauses in their Bayern Munich contracts which are valid next summer. (Sky Sport Germany), external
+
+Newcastle United manager Matthias Jaissle wants to add more experience to his squad and bolster his attack during the January transfer window. (Northern Echo), external
+
+Brentford, Bournemouth, Newcastle United and Juventus are keen on Lazio's 24-year-old Dutch midfielder Kenneth Taylor. (Tuttosport - in Italian), external
+
+Barcelona target Man Utd's Martinez - Friday's gossip 
+
+Get the latest on your Premier League team
+
+All your football quizzes in one place
+
+Listen to the latest Football Daily podcast
+

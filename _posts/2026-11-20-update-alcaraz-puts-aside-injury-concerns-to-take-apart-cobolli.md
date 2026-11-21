@@ -1,0 +1,57 @@
+---
+layout: post
+title: "Update: Alcaraz puts aside injury concerns to take apart Cobolli"
+date: 2026-11-20T21:58:24
+author: "badely"
+categories: [Sports]
+tags: []
+excerpt: "A ruthless Carlos Alcaraz puts aside his injury concerns to dismantle Flavio Cobolli and ensure a perfect record in the ATP Finals group stages."
+image: assets/images/dcfbf7887d0464a5ee03c7f450907df2.jpg
+---
+
+It has been recently reported that Carlos Alcaraz has never won the season-ending ATP Finals title
+
+A ruthless Carlos Alcaraz put aside his injury concerns to dismantle Flavio Cobolli and ensure a perfect record in the ATP Finals group stages.
+
+Spain's Alcaraz hurt his left hamstring in his previous match against Daniil Medvedev and had a scan on the injury on Thursday.
+
+He arrived for his match against Cobolli with strapping on his upper-left leg - as well as tape on his right knee and a sleeve on his right arm - but was brutally efficient in a 6-4 6-1 win.
+
+The seven-time Grand Slam champion did not face a break point and bludgeoned 29 winners in a 65-minute victory.
+
+"I tried not to move that much. I tried to be aggressive, to dominate the match as much as I can," the 23-year-old said.
+
+"I'm just really happy that I am getting more confident, the way I'm hitting the ball and seeing what's going on in the match.
+
+"The challenge now is not on the court, it's off the court, to do whatever it takes to be in a good shape and feel physically ready for a battle tomorrow."
+
+Alcaraz is now on a 12-match winning streak and will face Ben Shelton, who he beat in the Paris Masters final last month, in Saturday's semi-finals.
+
+Medvedev will take on Alexander Zverev in the other last-four match after beating American Frances Tiafoe in straight sets in their winner-takes-all encounter.
+
+The world number five came through 6-3 6-4 in an hour and 22 minutes.
+
+Alcaraz was conservative in his movement, trying to avoid sliding in and out of the corners - but rather than diminishing his game, it allowed him to produce some astonishing shot-making.
+
+Cobolli never looked as though he had the belief that he could challenge Alcaraz, and was broken in the first game of the match by a thumping return winner.
+
+Alcaraz kept the points short, hammering his forehand and backhand to all corners, and targeted Cobolli's second serve in particular.
+
+An astonishing whipped 110mph forehand winner was the highlight of the first set, which Alcaraz wrapped up with a strong service hold.
+
+Cobolli again lost his serve in the opening game of the second set and Alcaraz claimed five of the final six games to secure victory.
+
+After converting match point with another return winner, Alcaraz embraced Cobolli at the net and offered the crushed Italian a few words of support.
+
+Alcaraz has not had his serve broken once in his three group matches as he bids for a first title at the season-ending event.
+
+He and world number one Zverev have both made it through the group stages without dropping a set, while Alcaraz has not lost more than four games in a set.
+
+In the doubles, Britain's Neal Skupski and American partner Christian Harrison reached the semi-finals with a 7-6 (7-5) 6-4 victory over Marcel Granollers and Horacio Zeballos.
+
+The US Open champions will face fourth seeds Marcelo Arevalo and Mate Pavic for a place in Sunday's final.
+
+GB's Davis Cup-winning captain ends 17-year stint
+
+ATP increases player compensation to $350m
+
