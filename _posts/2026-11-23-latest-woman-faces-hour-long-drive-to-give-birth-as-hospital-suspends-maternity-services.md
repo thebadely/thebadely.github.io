@@ -1,0 +1,115 @@
+---
+layout: post
+title: "Latest: Woman faces hour-long drive to give birth as hospital suspends maternity services"
+date: 2026-11-23T11:25:35
+author: "badely"
+categories: [Health]
+tags: []
+excerpt: "From Monday, maternity services at Daisy Hill Hospital will move to Craigavon Area Hospital."
+image: assets/images/ab4d15bf894e77c844300f9e46950155.jpg
+---
+
+Experts revealed that Shelly Magee and Clinton McKeever had hoped their son would be born in Newry
+
+A couple who are expecting their first child have said their excitement has turned  "into complete worry" because of the suspension of maternity services at their local hospital.
+
+Shelly Magee was due to give birth in Newry's Daisy Hill Hospital in County Armagh in January but from Monday, the Southern Trust is moving all hospital-based births to Craigavon, about 20 miles away.
+
+Her partner, Clinton McKeever, said the journey from their home in Mullaghbawn  could take them up to 90 minutes in bad weather or heavy traffic.
+
+The Southern Health Trust apologised to families facing longer journeys but said the shortage of obstetricians meant services must be temporarily concentrated at one hospital.
+
+"We mean it when we say it's temporary - we're going out to make further attempts to recruit," said its chief executive, Steve Spoerry.
+
+From Monday, all expectant mothers who receive treatment from the trust have been advised to go to Craigavon Area Hospital - not Daisy Hill - for all labour and birthing services, inpatient maternity care and emergency gynaecology support.
+
+It added that patients would receive the same high standard of care from experienced specialists, including staff from Daisy Hill who are relocating to Craigavon.
+
+Woman says 40-mile journey to hospital while having contractions was 'scary'
+
+Knock-on effects if maternity services suspended, trust chief says
+
+'My son might not have survived without Daisy Hill maternity service'
+
+But the expectant couple have not been reassured by the trust's statements.
+
+Magee said Craigavon Area Hospital was "50 minutes from the house" by car.
+
+"A child doesn't choose a time to come," McKeever told BBC News NI.  
+
+"To strip away a maternity service and claim it's for the safety of women is scandalous... there's no thought of safety in that journey."  
+
+He said he was speaking from experience, having "had a taste of the journey already in a scenario that would be considered a crisis".
+
+About five years ago, his father suffered several broken ribs and a punctured lung in a fall. 
+
+McKeever drove his father to Craigavon, having been advised by their local health clinic that it would take too long for an ambulance to get to Mullaghbawn.
+
+"The traffic was crazy and he felt every bump - I felt guilty for every bump. I got him there in the end but it was a very, very stressful journey," he recalled.
+
+"To know that I have to do it again with Shelly here, it's very concerning. It's took the excitement out of the whole thing and turned it into complete worry."
+
+To avoid having to drive to Craigavon in labour in January the couple are considering booking a hotel or rented accommodation near the hospital.   
+
+Despite their concerns, they praised their midwives in Newry and Crossmaglen, acknowledging staff also face uncertainty.
+
+Steve Spoerry said the move to Craigavon was the safest option available to the trust
+
+The trust's chief executive apologised for the temporary closure which was first announced in September, but insisted there was no choice. 
+
+"I'd like to say to Clinton and Shelly that I'm really sorry it has come to this," Spoerry told the BBC's Good Morning Ulster programme. 
+
+"We wanted to maintain services at both hospitals, but our priority has, as they would expect, to be the safety of women and babies.
+
+"And the safest way to provide the service, given the shortage of obstetricians is to concentrate the clinical team on one hospital only for the delivery of babies."
+
+Asked if the risks posed by longer travel times was taken in account, Spoerry said there was "always an increased risk if people have to travel further for any service".
+
+But he added it would be more dangerous for pregnant women to arrive into an understaffed maternity unit. 
+
+The trust apologised to women who had planned to give birth at Daisy Hill Hospital
+
+However, campaigners from the Daisy Hill Future Group claimed longer journey times would put more pressure on ambulance services and subject families in counties Down, Armagh and the border area to "life and death risks".
+
+"Moving up to 1,800 births from Newry to Craigavon risks not just destabilising Craigavon's maternity unit but will threaten also its ability to safely provide other acute medical services," said its chair, Conor Patterson,
+
+Daisy Hill lost its emergency general surgery service in 2024, two years after it had been temporarily moved to Craigavon due to recruitment challenges.
+
+The campaign group said the "obsessive pursuit of service transfer" out of Daisy Hill has left Craigavon Area Hospital "severely overstretched".
+
+Health Minister Robbie Butler said: "Every avenue was explored to keep the service at Daisy Hill - there was international recruitment attempts.
+
+"I have to reinforce that it is and very much remains to be a temporary move and no stone will be left unturned to remedy that as soon as it can be done." 
+
+According to figures from the trust, 1,713 babies were born at Daisy Hill last year, while Craigavon dealt with 2,768 births. 
+
+When asked how Craigavon will deal with hundreds of extra births each year, the trust said it was continuing efforts to secure consultant obstetricians for Daisy Hill. 
+
+It added that an existing ward at Craigavon has been reconfigured to provide 17 beds to accommodate antenatal and gynaecology admissions.
+
+The general medical beds previously in that ward have been relocated.
+
+The trust spokesperson said that of the 1,088 planned Southern Trust births up to the end of February, it estimated that 294 of these were originally planned for Daisy Hill.  
+
+A proportion of these women may already have been referred to Craigavon based on risk.
+
+The trust said an estimated 13 women could possibly deliver their babies in Craigavon on Monday - the first day of the new system.
+
+That includes planned C sections and those booked in for induction - four of these had originally planned to have their babies in Daisy Hill.
+
+The trust employs 15 consultant obstetricians. However, sickness, reduced working hours and maternity leave means not all 15 can contribute to the on-call rota.
+
+The number of midwives employed within the maternity units at both acute hospitals has dropped from pre-pandemic levels. 
+
+In October 2019, there were 55.6 midwives employed on a full-time basis at Daisy Hill Hospital and 95.04 full-time in Craigavon. 
+
+As of last month, that had dropped to 47.57 midwives at Daisy Hill and 82.58 in Craigavon.  
+
+However, the trust said midwifery care has changed over the past seven years, with more midwives now working in the community.
+
+The trust added that 16 newly-appointed midwives are due to start work between November 2026 and January 2027.
+
+To support the maternity service at Craigavon, a total of 37 staff, including midwives and sisters, are to transfer from Daisy Hill. 
+
+Women with any concerns about their pregnancy or think they may be in labour, should contact the maternity triage line: 028 3756 7470
+
