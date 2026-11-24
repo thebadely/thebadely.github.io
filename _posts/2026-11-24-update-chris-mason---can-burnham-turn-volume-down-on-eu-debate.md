@@ -1,0 +1,67 @@
+---
+layout: post
+title: "Update: Chris Mason - Can Burnham turn volume down on EU debate?"
+date: 2026-11-24T00:45:53
+author: "badely"
+categories: [News]
+tags: []
+excerpt: "The BBC's Chris Mason analyses what the EU conversation means for Labour and the PM."
+image: assets/images/b50a31541ccae681531055825a79474b.jpg
+---
+
+It has been recently reported that When the prime minister told MPs "there will be no banging on about Europe" from him, my mind flashed back 20 years.
+
+It is 2006 and a fresh faced David Cameron had just taken over as the Conservative leader, promising, yes you guessed it, to stop "banging on" about Europe. 
+
+And we all know how that turned out: a decade later as prime minister, he held and lost a referendum on whether the UK should stay in the European Union, as he advocated, or leave.
+
+Andy Burnham's address to the Commons, after Friday's EU-UK Summit in Brussels, felt like an attempt by a man who chose to turn the Europe conversation up to full blast this autumn, to try to turn the volume back down again.
+
+All of this prompts two big questions: whether he will be able to do that and what, in the end, Labour promises at the next general election.
+
+Asked if that could include seeking a mandate for another in/out referendum at that election, he didn't rule that out.
+
+"If it's in Britain's national interest, I will recommend it to this House. If it is not, then I won't," he said.
+
+But he very carefully left his options open: "There is no fixed opinion here. There is no fixed destination."
+
+So he might offer a referendum. Or he might not.
+
+My approach to EU is pragmatic, says Burnham
+
+He also suggested the frequency of his public utterances on the subject may be limited, insisting there would be no "running commentary," offering instead what he called "a calm, constructive and pragmatic consideration of what is in Britain's interest in the long term."
+
+Plus, he said Europe could change in the coming years. A nod, without naming her, that Marine Le Pen could become president of France, for instance. How might that shift the debate?
+
+Burnham's willingness to repeatedly talk about the European question in the last few months has, inevitably, spawned quite the reaction.
+
+A campaign group, Stay Out, has got itself up and running to argue exactly that.
+
+And the European Movement is helping launch a rival outfit called, again, you guessed it, Get In.
+
+It is a reminder that that the EU question has a knack of getting under the skin of British politics, often to the exclusion of other things, sometimes to the exclusion of seemingly everything.
+
+Can the prime minister successfully manage the volume switch so the topic is background hubbub in 2027, rather than a deafening din?
+
+Ursula von der Leyen, Andy Burnham and AntÃ³nio Costa at the EU-UK Summit in Brussels last week.
+
+Meanwhile, what does the European Union itself make of all of this? EU sources see Andy Burnham's desire to "brainstorm" with them what the future relationship might look like as "normal diplomacy" as one figure put it, adding: "I don't think there are many options. And they are clear. The status quo. The customs union. The single market. And full membership."
+
+They mirror his expectation that "brainstorming" won't involve additional meetings, let alone a structured set of bespoke talks arriving at a conclusion. "We don't need a template. It will be part of the regular discussion," is how it was put to me.
+
+On Thursday, the government will publish its European Partnerships Bill, the legislation needed to enact, at the UK end, the agreements reached at the summit. Also later this week, the legal text of those agreements is due to be published â the small print of which will be pored over.
+
+How much might the UK have to compensate the EU for, for instance, if a future government were to decide to reverse the changes that have just been signed up to? Within the deal it is expected that were Britain to change its mind on the food export part of the deal in the next 10 years, Brussels would charge London for the reinstallation of the checkpoints that will soon no longer be needed.
+
+Then, there are the ongoing negotiations between the two sides about unresolved areas of potential cooperation. The EU has made much of its desire to secure a deal on university tuition fees in the next six months, with the hope that EU students will pay no more at UK universities than British students do. The deal would be reciprocal for UK students studying elsewhere in Europe. Both sides think an agreement is within reach. Senior figures in Whitehall are also encouraged by the EU's willingness to include the UK in its 'Made in Europe' plan to protect European industry from China. Then there is the EU's common electricity market.
+
+But even if all these things are agreed â and they will all provoke debate here about whether or not they are good ideas â Andy Burnham has publicly said incremental changes only take the UK so far.
+
+It is clear he has an appetite and an interest in going further. The question, ultimately, is how much further?
+
+UK and EU to agree youth mobility scheme, BBC understands
+
+'Move on!' Former PMs pile in with advice for Andy Burnham, but will he listen?
+
+UK to explore even closer ties with EU after agreeing deal, says Burnham
+

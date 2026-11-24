@@ -1,0 +1,65 @@
+---
+layout: post
+title: "Update: Israeli air strike kills Hamas internal security chief in Gaza"
+date: 2026-11-24T15:35:53
+author: "badely"
+categories: [News]
+tags: []
+excerpt: "Naeem Abu Nahel, who had been in the post for two months, is among seven Palestinians reportedly killed in Israeli strikes on Tuesday."
+image: assets/images/ab29ce45ca1610924d8513b43dfdb541.jpg
+---
+
+Experts revealed that A funeral was held earlier in southern Gaza for three Palestinians killed in an Israeli strike
+
+At least seven Palestinians, including a senior Hamas security official, have been killed in Israeli air strikes in the Gaza Strip, health officials and first responders say.
+
+Naeem Abu Nahel, the head of Hamas's internal security service, was targeted in western Gaza City, Gaza's Hamas-run interior ministry said. The 50-year-old had only been in the position since September, when his predecessor was captured in a raid by Israeli special forces.
+
+Israeli Prime Minister Benjamin Netanyahu and Defence Minister Israel Katz announced that Abu Nahel was "eliminated" by the Israeli military.
+
+The six other people were killed in two earlier air strikes elsewhere in Gaza.
+
+Three people, including a teenage boy, were killed in the Wadi Gaza area, south of Gaza City, according to the health officials and first responders. The other three were killed at a police station in the al-Mawasi area, west of Khan Younis, they added.
+
+Gaza's police force, which operates under the interior ministry, said two of its officers were among those who died in the second attack. It also accused Israel of "an ongoing campaign targeting the police apparatus aimed at sowing chaos" in the territory.
+
+The Israeli military said it struck "military operatives" in both areas.
+
+Witnesses said an Israeli drone targeted Naeem Abu Nahel as he was walking on a side street near a tent camp for displaced people in Gaza City.
+
+Several other people were reportedly seriously injured in the strike.
+
+The Israeli military said Abu Nahel had "possessed extensive institutional knowledge" about Hamas's internal security service - which is responsible for enforcing discipline, protecting infrastructure and rooting out informants - and that his death constituted "a blow to the apparatus's management capabilities".
+
+It also alleged that he had advanced attacks on Israeli troops and civilians during the war and that it killed him "to remove the threat he posed".
+
+Gaza's interior ministry said Abu Nahel's killing followed what it described as the internal security service's "important achievements in combating gangs collaborating with the occupation [Israel] and operating in areas under the control of its military".
+
+Gaza's health ministry warned that there was a rapid rise in cases of meningitis in October
+
+Violence has continued in Gaza since Israel and Hamas agreed to a US-brokered ceasefire in October last year. Israeli strikes take place almost daily in areas under Hamas's control, which are home to 2.1 million people, most of them displaced.
+
+At least 1,679 people have been killed in Gaza over the past 13 months, according to the territory's Hamas-run health ministry, whose figures are considered reliable by the UN.
+
+Israel says six of its soldiers have been killed in Gaza during the same period.
+
+The humanitarian situation also remains dire, with heavy rainfall earlier this month causing flooding and damage to thousands of shelters for displaced families.
+
+The UN and its partners have called on Israel - which controls Gaza's crossings - to allow in more supplies to help Palestinians prepare for the winter, including tents, heaters and water pumps, as well as vaccines and medicines to combat infectious diseases.
+
+On Tuesday, the health ministry warned that there had been a rapid rise in cases of meningitis, with 272 reported in October - about eight times the usual monthly average.
+
+Fifteen deaths had been attributed to the infection so far this year, including five reported between August and October, it said.
+
+Israeli military body Cogat said on Monday it was "working to provide a dedicated humanitarian response" and that a newly approved package of pumps, generators, water tankers and medical equipment had been presented at a meeting with UN agencies.
+
+The Gaza war was triggered by the Hamas-led attack on southern Israel on 7 October 2023, when about 1,200 people were killed and 251 others were taken hostage.
+
+Since then, more than 74,740 people have been killed in Israeli attacks in Gaza, the health ministry says.
+
+Israeli attacks have turned Gaza into 'toxic wasteland', Oxfam says
+
+Israeli military completes ground operation in Gaza beyond Yellow Line
+
+UK and allies call on Israel to allow rapid humanitarian access to Gaza
+
