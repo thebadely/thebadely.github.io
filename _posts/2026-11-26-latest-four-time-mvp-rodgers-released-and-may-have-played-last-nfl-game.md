@@ -1,0 +1,87 @@
+---
+layout: post
+title: "Latest: Four-time MVP Rodgers released and may have played last NFL game"
+date: 2026-11-26T07:51:10
+author: "badely"
+categories: [Sports]
+tags: []
+excerpt: "Aaron Rodgers is replaced as the Pittsburgh Steelers' starting quarterback, then criticises head coach Mike McCarthy before being released with immedi"
+image: assets/images/af151897a880b9305bad0008da590dc7.jpg
+---
+
+According to new developments, Aaron Rodgers has thrown 16 touchdown passes and six interceptions from 10 games this season
+
+Veteran quarterback Aaron Rodgers may have played his last game in the NFL after being released by the Pittsburgh Steelers.
+
+In a brief statement published on Wednesday afternoon local time, the Steelers announced Rodgers, the NFL's four-time Most Valuable Player, was no longer with the franchise.
+
+That came after a tumultuous 24 hours, which began with the Steelers announcing at 23:10 local time on Tuesday that Rodgers had been replaced as their starting quarterback.
+
+He then appeared on US sports TV programme the Pat McAfee Show on Wednesday, saying he would not rejoin the team.
+
+"That ship has sailed," said Rodgers, who turns 43 next week.
+
+During the 34-minute interview, he said he discovered he had been replaced from team-mate Pat Freiermuth.
+
+Rodgers was also critical of Steelers head coach Mike McCarthy, including accusing him of snoring while he slept through team meetings.
+
+They won the Super Bowl together with the Green Bay Packers in 2011 and, during Sunday's loss to the Philadelphia Eagles, Rodgers said that McCarthy ended the half-time huddle with a chant of "one, two, three, Packers".
+
+When asked by reporters on Wednesday about that claim, McCarthy admitted there was "an embarrassing moment".
+
+The 63-year-old was in charge for most of Rodgers' 18-year spell with the Packers and left in 2018. He then coached the Dallas Cowboys from 2020-2024.
+
+Tension had developed between the pair over play-calling and Rodgers said he told McCarthy "try to bench me or don't change the play-caller, then you should just release me".
+
+McCarthy later said "there was an ultimatum made that was clearly outside his job description", adding it was his decision to let the player go.
+
+All this came after the Steelers said that Mason Rudolph will start Friday's home game against the Denver Broncos and that Rodgers would be inactive, so would not serve as back-up to the 31-year-old.
+
+Rodgers, who joined Pittsburgh in 2025 after two years with the New York Jets, was "99% sure" he was going to retire after leading the Steelers to last season's play-offs.
+
+McCarthy's appointment persuaded him to play one more year but Rodgers told the talk show on Wednesday the season had not been "what I signed up for".
+
+Although the Steelers have a 6-4 record, they have had two straight defeats after losing 19-16 at Philadelphia on Sunday.
+
+Pittsburgh's brief statement confirming Rodgers' release, external is likely the unceremonious end to an illustrious career.
+
+While Rodgers was unable to claim a second Super Bowl win with Green Bay, he was named the season MVP in 2011, 2014, 2020 and 2021. Only Peyton Manning (five) has won the award more times.
+
+Rodgers had said his 22nd year in the NFL would be his last, and he has been let go at a crucial stage in the season.
+
+The Cincinnati Bengals (7-3) lead the AFC North division, with Pittsburgh third, but with seven games left the Steelers occupy the final play-off spot for the AFC Conference.
+
+Although Pittsburgh are 6-4, they have had to grind out some of those wins as they have struggled offensively. They rank 22nd for both points and passing yards per game.
+
+Rodgers is undoubtedly past his best, but his form has only dropped slightly from last season and the team's struggles are by no means entirely down to him.
+
+The Steelers' depth among their wide receivers is thin. Michael Pittman is out injured and DK Metcalf has not delivered the production expected when he was brought in with Rodgers before the 2025 season.
+
+Metcalf, 28, was even ejected during Sunday's loss at Philadelphia, meaning Rodgers had to lean on debutant Max Hurleman with the game on the line.
+
+It is not as if Pittsburgh had a hot-shot rookie quarterback pushing for an opportunity. Rudolph is in his ninth season and has started each as a back-up.
+
+But this week's discussions with Rodgers forced McCarthy's hand and the manner in which the situation unraveled cannot be a complete surprise given Rodgers has clashed with team management, coaches and team-mates throughout his career.
+
+While McCarthy hopes Rudolph can spark the Steelers' offence, Rodgers is now free to join another team.
+
+Several have had quarterback issues this season through injuries and poor form, and with more than a third of it left, there is time for Rodgers - one of the greatest quarterbacks of all time - to come aboard and make an impact.
+
+The Indianapolis Colts are one of those teams having released Daniel Jones last week, but they are out of play-off contention.
+
+That leaves the New England Patriots as an intriguing alternative.
+
+Drake Maye will be out for at least six weeks after suffering a fractured fibula and at 5-5 are just outside the AFC's play-off spots - one below Pittsburgh.
+
+The Patriots have Super Bowl pedigree having reached last season's big game and Rodgers would relish the chance to deny McCarthy and his former team.
+
+It would also give him the opportunity to follow his former adversary Tom Brady and get one last shot at finally emulating Brady and Manning by becoming a multiple Super Bowl winner himself.
+
+The unlikely faces of America's Covid culture war
+
+An NFL star went on a 'dark retreat'. What is that?
+
+NFL fixtures and results
+
+Get American Football news sent straight to your phone
+

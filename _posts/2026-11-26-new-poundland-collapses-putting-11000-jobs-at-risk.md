@@ -1,0 +1,109 @@
+---
+layout: post
+title: "New: Poundland collapses putting 11,000 jobs at risk"
+date: 2026-11-26T08:24:29
+author: "badely"
+categories: [Business]
+tags: []
+excerpt: "The discount chain has fallen into administration after its owners failed to find a buyer."
+image: assets/images/417a09a5ee8e6b0e40a7174f068a56f7.jpg
+---
+
+Experts revealed that This video can not be played
+
+Watch: Why has Poundland collapsed into administration?
+
+Poundland has collapsed into administration, putting 11,000 jobs at risk, after its owners failed to find a buyer to keep it in business.
+
+The retailer's shops and distribution centres will remain open and continue to trade during the administration process with the business likely to be broken up and some of its stores sold off to rival retailers.
+
+Poundland's US owners held talks with several bidders over a last-minute rescue deal, but no agreement was reached.
+
+Poundland boss Barry Williams said in a note to staff that the board had "no alternative but to take this decision", but was making it with "sincere sadness and intense regret".
+
+He said the US owners Gordon Brothers had removed "all borrowing facilities and access to our bank accounts" on 27 October, and adequate funds had not been released since then to keep the business solvent.
+
+"Under these circumstances, it is impossible for the board of directors to see how Poundland can continue to operate as a going concern," he added.
+
+Bally Auluk, national officer at the union Usdaw, which represents Poundland workers, told the BBC'S Wake Up to Money programme that Gordon Brothers' "intention was perfectly clear from the offset... to force the company into administration". 
+
+"It's such a devastating blow any time of year, but most certainly in the run up to Christmas for 11,000 colleagues, most of whom are our members," he said.
+
+Gordon Brothers rejected Auluk's characterisation of the process and said it had "explored every avenue to secure a sale of the whole company".
+
+Trouble in Poundland
+
+Kelvin Blake, pictured at a protest in Walsall, has worked for Poundland for 25 years
+
+Kelvin Blake, 62, who has worked for the firm for 25 years, and whose partner has been there 29 years, said he was feeling "down, depressed", and because of his age, feared he would not find a job elsewhere.
+
+"We didn't want it, but it's come so now we've just got to face it and see what the future holds.
+
+"My income's gone," he added. "Obviously, we'll be working until we're told to leave."
+
+Prime Minister Andy Burnham said Poundland was "part of the fabric of high streets and communities up and down the country".
+
+He said the news of it going into administration just weeks before Christmas would be "deeply concerning for workers and their families".
+
+He added: "While it is worrying, going into administration does give other potential buyers the opportunity to engage and we will work hard with all the relevant parties to ensure the best possible outcome."
+
+Defence Secretary Wes Streeting said protecting staff is the government's top priority. 
+
+"I'm also very mindful that for lots of people across the country, Poundland is a place they go on the high street to get bargains and... given the cost of living challenges we face, that is of concern to us in government," he told the BBC.
+
+Alix Partners, which has been appointed as administrator, said it would look at all options for the business, "including sales of the business and its assets, either in whole or part".
+
+"We appreciate this is a deeply concerning time for all involved - customers, suppliers and, in particular, Poundland colleagues," they said.
+
+Gordon Brothers has been criticised over how it handled a potential sale of Poundland, with accusations the investment firm hoped to profit from selling off the chain's 600 shops and stock piecemeal after running it into the ground.
+
+Gordon Brothers, which specialises in buying and restructuring distressed companies, has denied such claims.
+
+On the funding question, Gordon Brothers said it had loaned the firm Â£85m over a year to help save it from insolvency.
+
+But insiders critical of the US firm have said it stands to make its loans back and more from the insolvency process.
+
+Previously, Gordon Brothers netted millions from liquidating the stock of fashion retailer LK Bennett, and in insolvency fees.
+
+Labour MP Liam Byrne told the BBC the House of Commons' Business, Innovation, Science and Trade Committee will recall Gordon Brothers before Parliament - two weeks after Gordon Brothers representatives last appeared at the committee to answer questions about Poundland, and where MPs said they were "deeply concerned" about the business.
+
+Byrne said: "I am really worried that a 'greed is good' approach to business by its owners has forced [Poundland] into an administration." 
+
+He added the committee wants to know "how much money they're ripping out and crucially, how do we make sure, as a country, that we don't have this kind of scenario unfold again".
+
+Poundland's co-founder Steve Smith said the administration "should not be happening". He told the BBC the chain has undergone a turnaround since being taken over by Gordon Brothers, returning to profitability.
+
+He said: "Everybody was behind Poundland. It had turned round. And with buyers on the table, why was it put into administration?"
+
+"It should not have happened," he added.
+
+What's gone wrong at Poundland?
+
+Gordon Brothers met Business Secretary Jonathan Reynolds on Monday to update him on the process.
+
+The firm said on Wednesday that, despite the Poundland management bringing about a turnaround over the past year, the firm was "still vulnerable" to inflation and any downturn in sales or profit margin, and it had faced "several years of instability".
+
+A spokesperson added the firm's "thoughts are with Poundland colleagues".
+
+It said it had stepped in to take over the retailer in 2025 when it was struggling, and when "no-one else was willing to finance the business".
+
+One of the central stumbling blocks in negotiations to keep the business afloat was a shareholder loan Gordon Brothers inherited when it bought the business for less than Â£1 last year.
+
+Gordon Brothers was owed Â£22.5m of that loan, while the previous owner Pepco was owed Â£7.5m.
+
+Gordon Brothers rejected various offers to buy the business as a going concern with deals to pay off that loan.
+
+Irish firm Martin Property Group offered to pay off Â£5m of the loan up front, and defer the rest of the payments to 2030.
+
+London-based Xyra group offered Â£12.5m up front but ran out of time to get a deal over the line.
+
+German investment firm Zachert Private Equity is also understood to have made a late offer.
+
+All of these were rejected.
+
+The crisis at Poundland really came to a head over the past few weeks after Gordon Brothers restricted access to funds for day-to-day operations.
+
+This meant that stock at the retailer was not being replenished at the necessary pace in the vital run-up to the festive period.
+
+Are you a Poundland employee? Tell us your story. Get in touch.
+

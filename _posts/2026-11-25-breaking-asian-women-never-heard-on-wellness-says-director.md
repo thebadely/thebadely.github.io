@@ -1,0 +1,97 @@
+---
+layout: post
+title: "Breaking: Asian women 'never heard' on wellness, says director"
+date: 2026-11-25T06:08:39
+author: "badely"
+categories: [Health]
+tags: []
+excerpt: "Women react to a report saying poor female health in Luton develops five years earlier than average."
+image: assets/images/a85bedabe55ba06761c0d6bf9ae4a6f5.jpg
+---
+
+Let's dive into the details: Centre for Youth and Community Development director Firoza Abdool-Sathar said the health statistics for older women were getting worse
+
+A community centre director in Luton said a "hidden generation" of Asian women had "voices that were never heard" when it came to their wellbeing.
+
+The Let Women Speak report, external commissioned by the borough council in Luton, where the onset of poor female health happens five years earlier than average, also found over 70% of women aged 45-64 had an at-risk body mass index.
+
+Firoza Abdool-Sathar, director of the Centre for Youth and Community Development (CYCD), said: "Some of our ladies maybe 20 years ago, their voices did not matter.
+
+"These were ladies in Luton, especially the South Asian population, with family dynamics, the lack of opportunities, economic inactivity and language barriers as well."
+
+Luton's population is around 236,000 according to the Office for National Statistics, external and more than half belong to ethnic minority groups, including strong Pakistani and Bangladeshi communities.
+
+More than 250 people of different ages and cultures were interviewed for the report, which focused on the 112,400 women and girls in the town.
+
+It found only 52.5% of women aged 25-49 took up cervical screening and only 63% underwent breast screening, compared to 71% nationally. 
+
+Luton's Centre for Youth and Community Development in Luton runs exercise and wellbeing sessions
+
+Following the report, councillors have agreed to champion women's health, external and support measures to improve wellbeing.
+
+Based in Bury Park, where over 70% of the population, external identifies as Asian, those CYCD, external supports include victims of unhealthy relationships, domestic abuse and survivors of female genital mutilation.
+
+Abdool-Sathar, who is in her late 50s, said: "When you look at older people the stats haven't improved, in fact, it's gotten worse for a lot of women. 
+
+"These stories are only coming out now and we're only understanding the scale of the problem.
+
+"A lot don't go for preventative methods whether it's contraceptives or getting themselves checked in advance, or just feel something niggling at them, whereas people in more affluent areas will have that luxury and time."
+
+She hoped things were improving for future generations.
+
+"Girls nowadays, they've become much better, more educated, so they've got lots more opportunities and use that as an impetus to continue and better their lives." 
+
+Project co-ordinator Yasmin Akhtar Yasin said there was still stigma around certain health issues
+
+Her colleague at CYCD, Yasmin Akhtar Yasin, 47, project co-ordinator for the "End The Silence", said there was still stigma around some health issues.
+
+"Do I tell someone I'm depressed if I'm going to be put on antidepressants?
+
+"We have struggles every day and are known to be multitaskers, us women. So do we put our health before our children, our in-laws, our mums, our mothers-in-law, our husbands, and can we hold a job down?
+
+She felt for some women, lack of education, especially for those where English is their second language, could be a barrier.
+
+"It could be any woman with any colour, any status, but she doesn't realise why she's having a hard time at work at the moment. Menopause? What is that?
+
+"Her life can be wonderful one day and then she wakes up and doesn't know why she hasn't slept, her hot and cold flushes.
+
+"Is she getting support from work or her GP? Or her partner and family, who now decide she's the crazy one."
+
+Yasmin Akhtar Yasin said sometimes women put their family's health before their own
+
+With gym memberships not affordable to all, the CYCD runs exercise and wellbeing activities.
+
+Another woman, 45, who regularly attends the centre but asked not to be named, said things changed when she married for love and started raising her five children over a 15-year period.
+
+"Once I got married, I was moulded into something where I couldn't speak up and lost my confidence.
+
+"I had to make food for my in-laws, my husband and kids and do household duties. You don't think about your health, you carry on, you carry on, you carry on, until your body's shutting down, and that's what happened to me.
+
+"I wake up in the morning with anxiety and it takes a few hours to calm down, but it still comes back."
+
+She said she was now able to spend an hour a day doing exercise, which helped deal with her panic attacks.
+
+"I'm struggling with that every single day, but at least feel I'm doing something in life. 
+
+"I've been feeling better in myself but those years have affected my body, my joints and everything has been affected so I'm living with it and struggling."
+
+Do you have a story suggestion for Beds, Herts or Bucks? Contact us below.
+
+Your Voice
+
+Follow Beds, Herts and Bucks news on BBC Sounds, Facebook, external, Instagram, external and X, external.
+
+Women in town hit poor health earlier than average
+
+Why do wealthy Luton men live 10 years longer?
+
+'Devastated' ousted council leader hopes to return
+
+'My parish isn't a no-go zone for white people'
+
+Centre for Youth and Community Development
+
+Let Women Speak Report
+
+Luton Council Meeting November 10
+
