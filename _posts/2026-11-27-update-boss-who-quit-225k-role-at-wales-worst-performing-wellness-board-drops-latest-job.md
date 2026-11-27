@@ -1,0 +1,55 @@
+---
+layout: post
+title: "Update: Boss who quit £225k role at Wales' worst performing wellness board drops latest job"
+date: 2026-11-27T06:59:28
+author: "badely"
+categories: [Health]
+tags: []
+excerpt: "Carol Shillabeer had been due to take up a new post at a health board in north west England in 2027."
+image: assets/images/c9f12f63c21b28bcd9d0d77130c9d2c3.jpg
+---
+
+Here’s what you need to know: Carol Shillabeer joined as chief executive of Betsi Cadwaladr University Health Board in May 2023
+
+The chief executive of Wales's largest health board will no longer take up a new post in England, following a damning review of her current organisation's leadership.
+
+Carol Shillabeer, who has been Betsi Cadwaladr University Health Board's chief executive since May 2023, had been due to lead the Lancashire and South Cumbria NHS Trust in England in the new year.
+
+But a review into the Welsh health board found that, in some parts, targets and money had a "greater priority for senior management than the quality and safety of care".
+
+The Lancashire and South Cumbria Trust said the "seriousness of the findings" could not be ignored and Shillabeer made the "personal decision" to withdraw from the role.
+
+Dyfed Edwards, chair of Betsi Cadwaladr health board, confirmed Shillabeer would leave her current post on 3 January 2027. He thanked her for her service and wished her well for the future.
+
+Confirming Shillabeer's withdrawal from the role, the Lancashire and South Cumbria Trust said it had "taken our time to carefully consider the situation and discuss the matter" with her.
+
+"Carol feels that this is the best course of action for the sake of the patients, our communities, and LSCFT staff."
+
+"We agree with her decision and wish her the best for the future," it added.
+
+A spokesperson said that a board of trustees would consider the next steps regarding the appointment of a new chief executive.
+
+Shillabeer spent three and a half years leading the health board, which covers all of north Wales. She was appointed after the Welsh government put it into "special measures" for the second time in its history.
+
+It has been under the highest level of oversight due to concerns about care quality, patient safety and leadership.
+
+Betsi Cadwaladr health board has been beset by problems since its inception in 2009
+
+The independent review published on Tuesday found the health board lacked "the organisational conditions necessary to reliably deliver and sustain improvement".
+
+It concluded that senior leadership was "immature and ineffective", with weak senior management putting the quality of patient care at risk.
+
+It also said the health board had a "dedicated and loyal" workforce, with a "high level of expertise" across many services, as well as the capacity to provide strong local services.
+
+The health board apologised and said it now needed to concentrate on improving its leadership and allowing its staff to "flourish".
+
+Responding to the document, Health Minister, Mabon ap Gwynfor MS, rejected calls for "radical action or structural change".
+
+Instead, he suggested that "stability" is needed following a period characterised by "too much change."
+
+Woman whose 'real-life ghost story' inspired TV series reveals scariest encounter
+
+Every day is living hell, says dad of boy, 2, murdered by grandparents
+
+Victorian railway station left untouched for 70 years goes on sale with suitcase still inside
+

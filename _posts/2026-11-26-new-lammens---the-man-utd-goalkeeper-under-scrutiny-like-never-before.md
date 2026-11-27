@@ -1,0 +1,101 @@
+---
+layout: post
+title: "New: Lammens - the Man Utd goalkeeper under scrutiny like never before"
+date: 2026-11-26T14:56:30
+author: "badely"
+categories: [Sports]
+tags: []
+excerpt: "Manchester United goalkeeper Senne Lammens made two major mistakes in the 2-2 draw with Sporting - could Mauricio Pochettino drop his goalkeeper?"
+image: assets/images/ab2f8102bcf7c1bdb585cd918dee97e6.jpg
+---
+
+Here’s what you need to know: Senne Lammens (left) joined Manchester United in the summer of 2025
+
+After a first season at Manchester United that drew little but praise, goalkeeper Senne Lammens is under the microscope like never before.
+
+A bad mistake that gifted Sporting their second goal on Wednesday, having earlier conceded a clumsy penalty, followed several other errors so far this season. 
+
+The 24-year-old Belgium international also made an error at the World Cup in the summer, spilling a shot that led to Spain's winning goal in the 88th minute of their quarter-final.
+
+"I don't know [at what point Manchester United drop him]," legendary Manchester United goalkeeper Peter Schmeichel told CBS Sports on Wednesday.
+
+"Mauricio Pochettino has come in and brought his own staff. That means he's got a new goalkeeping coach and maybe that is something that can change it for him.
+
+"[At the World Cup] he came on against Spain and made a bit of a mistake. Mikel Merino scored and they got knocked out. I feel he's lost a little bit of confidence from that mistake and hasn't really recovered.
+
+"As a goalkeeper, when you're not on your best form, you need your defenders in front of you to help you out. The sad truth is that they haven't been able to do that and that makes it so much worse. I like him a lot but today was not a great day for him."
+
+Director of football Jason Wilcox and United's data team overruled Ruben Amorim when they opted to sign Lammens from Royal Antwerp for Â£18.1m in September 2025.
+
+Amorim wanted Argentina World Cup winner Emiliano Martinez, who was left waiting for a deadline day call that never came to seal a move from Aston Villa.
+
+United felt Lammens had the attributes to become one of the world's best goalkeepers. At 24, he is still young. Schmeichel was 27 when he joined United in 1991. Edwin van der Sar was 34 when he left Fulham in 2005. Both had hundreds of senior appearances behind them. Lammens has just over 100, more than half of them with Royal Antwerp.
+
+Although he made the odd error last season, Lammens did nothing to suggest Wilcox and co had got it wrong.
+
+After releasing Turkey international Altay Bayindir, who replaced Andre Onana as first choice at the start of last season and is back on loan in Turkey with Trabzonspor, they signed 36-year-old Wales international Karl Darlow as back-up this term.
+
+Darlow finished last season as first choice at Leeds. But he only started 30 league games in three seasons with the Elland Road outfit. Also on the bench in Lisbon was Tom Heaton. The 40-year-old has not played in a senior game since February 2023.
+
+Mistakes earlier in the season â former United midfielder Paul Scholes claimed in September '"the jury is still out" on whether Lammens is truly top class â have brought increased analysis. His positioning for Dominik Szoboszlai's opening goal for Liverpool on Sunday was questioned externally, even if United focused their attentions on Bradley Barcola shoving into the wall.
+
+On Wednesday, it all went wrong.
+
+Just 75 seconds after getting down to make an excellent save from Luis Suarez's first penalty, Lammens recklessly charged out and upended Maxi Araujo, even though Noussair Mazraoui seemed to be in a position to deal with it.
+
+Then, after two Bruno Fernandes goals at the start of the second period had turned the Champions League tie in the visitors' favour, Lammens reached to collect a high ball and inexplicably dropped it in front of Suarez, who applied the overhead kick finish.
+
+Understandably, there was sympathy in the dressing room.
+
+"This team is a family," said striker Joshua Zirkzee. "There's no-one who will suffer by themselves.
+
+"Senne is a great goalkeeper and mistakes happen. In this moment, we just give him space. I'm not sure if he wants to hear anything at all. But Senne's a great kid. He's got a good head on him. We didn't draw because of him, and we all know that next game he is going to be at the top of his game."
+
+This video can not be played
+
+'One mistake from being dropped' - Ashley Young on Senne Lammens
+
+Toni Jimenez is Pochettino's long-time goalkeeping coach.
+
+His arrival triggered the exit of Craig Mawson, who had been with Manchester United since 2019. Connor King is Jimenez's assistant but a relative newcomer himself, having joined from Burnley in 2026.
+
+By its nature, goalkeeping at the highest level can be a mental challenge as well as a technical one. As Onana discovered, flaws can quickly become major issues and once the spotlight is shining, the attention is fierce.
+
+Lammens has given the impression privately of being strong. He has seemed remarkably unaffected by his World Cup torment â his mistake against Spain came after he was introduced as a 71st-minute replacement for injured veteran Thibaut Courtois with the quarter-final delicately poised at 1-1. But only he knows the full picture.
+
+Jimenez will be Pochettino's guide over what to do about the situation, although for now, Lammens' head coach is behind him.
+
+"This type of thing happens," he said. "That is football. Football is about making mistakes.
+
+"I always want to support my player. I think we need to talk about responsibility. In this type of action our defensive line needs to cover the keeper better because it was very difficult.
+
+"It's not to blame the defensive line, but it's two things that we need to improve, details that we need to work on. We need to manage his type of situation better."
+
+Following Wednesday's draw in Lisbon, Pochettino highlighted "two things" that need to improve if United are to start winning matches on a regular basis.
+
+The first of those is the club's preferred goalkeeper. Of the 17 Premier League goalkeepers to have played a minimum of 10 matches in all competitions in this campaign, Lammens has the second-worst save success rate, keeping out just 60.2% of the shots he has faced. Only Coventry's Carl Rushworth (54.4%) has fared worse so far this season.
+
+Lammens also ranks bottom of those 17 goalkeepers for clean sheet ratio (6.3%).
+
+And there is substance to the suggestion that Lammens has declined in 2026-27. He made just one error leading to a goal in the entirety of last season in contrast to two already in this campaign. The data also shows that he is currently preventing far fewer goals.
+
+The second "thing", however, has significant bearing on the first. 
+
+Clean sheets and conceding fewer goals are clearly a collective responsibility, particularly for the "defensive line" that Pochettino referenced on Wednesday - and United's defence has collectively struggled this season.
+
+They have now let in 36 goals in all competitions, the most of any team in Europe's top five leagues. They have also conceded five penalties and received five red cards - both the second-highest tallies among Europe's elite divisions.
+
+So is Lammens more error-prone this season? Apparently yes. But he's also playing behind a defence that, on current form, may not inspire too much confidence in their goalkeeper.
+
+Follow Manchester United on BBC Sounds
+
+Pre-match, post-match and topical United content
+
+ 
+
+Subscribe and listen for everything you love about the Red Devils
+
+More ref frustration as Pochettino's chaotic start at Man Utd continues
+
+Latest Manchester United news, analysis and fan views
+

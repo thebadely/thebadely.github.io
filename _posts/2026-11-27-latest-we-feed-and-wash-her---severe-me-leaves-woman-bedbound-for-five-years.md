@@ -1,0 +1,113 @@
+---
+layout: post
+title: "Latest: 'We feed and wash her' - Severe ME leaves woman bedbound for five years"
+date: 2026-11-27T06:06:31
+author: "badely"
+categories: [Health]
+tags: []
+excerpt: "Shauna Chambers says her partner Row was “full of energy” but now cannot tolerate light or noise."
+image: assets/images/1b96ce951f9c78cbadabbe61f7ebf1e1.jpg
+---
+
+Let's dive into the details: This video can not be played
+
+Shauna said the future had been "ripped apart" after her partner, Row, was diagnosed with very severe ME
+
+Rowena Davies had been planning to travel the world with her partner until an ME diagnosis left her unable to talk or leave her bed.
+
+The 42-year-old, known as Row, initially thought she was burnt out, but after years of searching for answers was finally diagnosed in 2021 and her partner Shauna Chambers has since given up work to help the family care for her. 
+
+Campaigners are warning that people with severe ME - sometimes referred to clinically as myalgic encephalomyelitis/chronic fatigue syndrome - could die without changes to services in Wales.
+
+The Welsh government said proposals for an allâWales specialist, an expert group and national standards were being considered.
+
+It is estimated more than 400,000 people across the UK have ME, a complex multi-system condition with no known cure.
+
+Shauna, 34, said: "She had a cough that didn't leave for many months, but the main thing was that she would be absolutely drained and exhausted after doing such small things.
+
+"Now, she really isn't able to do anything at all."
+
+Row loves being outdoors but she's now been in bed for five years
+
+Shauna, from Tywyn in Gwynedd, said Row was "full of energy" and loved sport, but now she cannot tolerate light or noise, and any exertion will cause her to deteriorate.
+
+"We feed her, we wash her, we brush her teeth. We were left to navigate this on our own," she said.
+
+"It's like you're grieving someone that is still alive, and you sit next to her sometimes, and all you can do is just hold her hand and breathe. 
+
+"People's lives have been completely ruined by this condition, and if nothing changes people can die from ME, and it is absolutely avoidable."
+
+Campaigners told BBC Wales in March that healthcare services were "like a desert" for those most severely affected.
+
+Shauna has been campaigning on behalf of her partner and other patients in Wales
+
+With the right support, Row's family are hopeful she can get better. She recently had her first visit by the Living Well service within Betsi Cadwaladr health board, which has been expanded to include ME, and now aims to support people living with any severity of the condition.
+
+It uses funding from the Welsh government's Adferiad programme, external but campaigners say that services vary between health boards. There is no clinical lead for ME in Wales.
+
+John Peters has lived with ME for more than 40 years
+
+John Peters, 65, from Swansea, was diagnosed with the condition 40 years ago. He was once a keen rugby player, but after a virus, his life changed.
+
+"I've gone through improvements, and then got another infection, and that's been the cycle of my life since 1985," he said.
+
+"One of the hardest things is the loss of identity. You're not a husband, a father, you don't have a career.
+
+"Your life goes past and then you realise what's happened. I hate the illness.
+
+"No one knows what I've been through. There is no care for me."
+
+Swansea Bay University Health Board said its service, also funded by the Adferiad programme, "focuses on improving quality of life, supporting independence, and enabling individuals to manage the impact of ME within their own daily circumstances" while "recognising the fluctuating nature of the condition and the importance of personalised care".
+
+ME is a chronic and complex multi-system condition, which causes symptoms such as extreme fatigue and post-exertional malaise.
+
+That means simple physical or mental activities can leave people completely debilitated.
+
+Not everyone with ME is affected in the same way. There is a spectrum of severity, which is often categorised as mild, moderate, severe and very severe.
+
+While researchers are still investigating the causes, triggers may include infection or other illness. There is no specific treatment.
+
+Source: NHS
+
+Liverpool-based private consultant Dr Binita Kane, who has a special interest in ME and long Covid, said she had a growing waiting list of patients across the UK.
+
+"I think that is a sad reflection on the fact that the services, sadly, don't exist at the moment in the way they need to through the NHS," she said.
+
+"Even if patients can access a service, they often can't access medications and treatments for symptom control and support for overlapping conditions because there aren't doctors integrated into those services."
+
+She said the goal is always "to prevent people from getting into the very severe state" through early intervention, but she said that certain investigations can happen at people's homes, such as 24-hour ECG tests, sleep studies and blood tests.
+
+"People sadly do die from severe ME for different reasons, it is a risk, and ME is one of the only conditions I'm aware of where the more sick you are, the less access to treatment and help and support you get," she added.
+
+"These are young people whose lives have been decimated, destroyed, who aren't getting enough help, care, and support.
+
+"There's a million reasons why the government should be taking this extremely seriously."
+
+Sonya Chowdhury of Action for ME said patients had been "waiting too long" for changes to services
+
+Campaign groups in Wales have joined together to call on the government to bring together a national expert group, appoint an all-Wales clinical lead, and develop a research strategy.
+
+In a recent survey of more than 5,400 people across the UK, 62.1% of respondents in Wales reported having no NHS specialist ME service in their area, compared with 32.8% in England.
+
+Action for ME, who conducted the survey, said the findings demonstrate that "access to specialist care remains a postcode lottery". 
+
+"People have been waiting for decades and that is too long" said the charity's chief executive Sonya Chowdhury.
+
+She said that a cross-party debate was held in the Senedd in December 2025 in which the current health minister, Plaid Cymru's Mabon ap Gwynfor MS, advocated on behalf of ME patients while in opposition.
+
+"We are 12 months on, and we are yet to see action," she added.
+
+"It's fantastic that the minister has met with us and other groups here in Wales, and we have heard some positive noises, but what we need to see now is something changing."
+
+A Welsh government spokesperson said it's "working to improve support for people living with post-infection associated chronic illness, including ME, and recognise that more needs to be done". 
+
+"We have met with groups representing people with ME and long Covid. We aim to provide an update in due course," it added.
+
+"Through Adferiad, we provide Â£8m a year to develop services and specialist clinical expertise to support people with long-term conditions, including ME."
+
+Every day is living hell, says dad of boy, 2, murdered by grandparents
+
+Woman whose 'real-life ghost story' inspired TV series reveals scariest encounter
+
+AI porn deepfakes put women off public life, MP says
+

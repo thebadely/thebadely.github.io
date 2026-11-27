@@ -1,0 +1,121 @@
+---
+layout: post
+title: "Big News: 'Laughing gas has ended careers' - so how common is it in football?"
+date: 2026-11-26T06:18:30
+author: "badely"
+categories: [Sports]
+tags: []
+excerpt: "After Raheem Sterling's court case, BBC Sport looks at how common the use of nitrous oxide is among footballers."
+image: assets/images/5fc445dfabd4484155ad0ef16d564753.jpg
+---
+
+According to new developments, This video can not be played
+
+Watch: Moment Raheem Sterling arrested after car crash
+
+It is known as laughing gas but the impact nitrous oxide can have on a professional footballer's body is anything but funny.
+
+"I'm not going to name names but I have colleagues who know Premier League footballers who are no longer playing as a direct result of nitrous oxide [use]," said Dr David Nicholl.
+
+Nicholl, a clinical lead in neurology with Sandwell and West Birmingham NHS Trust, was speaking after former Manchester City, Chelsea, Liverpool and England forward Raheem Sterling was handed a suspended jail term after pleading guilty to dangerous driving.
+
+A key part of the case was that Sterling had been inhaling nitrous oxide from a balloon while driving. 
+
+His Lamborghini was seen veering across a motorway and later crashed into a metal gate. Sterling, 31, was arrested at the scene and found with six gas canisters in his car.
+
+He disclosed to custody staff "he had a problem with nitrous oxide", the court was told.
+
+Defending Sterling, Jason Bartfeld KC said his client "recognised the various unhealthy coping mechanisms that brought him to this position" and that he has "sought to address" these in the "most positive and effective way and with some success".
+
+So, what is nitrous oxide, how does it affect those who take it and is its use more common in footballers than the wider population?
+
+This video can not be played
+
+Footage was released of the footballer driving dangerously
+
+Nitrous oxide's original use was as a sedative that healthcare providers like dentists could use to keep patients comfortable during procedures.
+
+It is now legally sold for catering, medical and industrial purposes, but is frequently used as a recreational drug and is commonly known as laughing gas.
+
+This can be abused by inhaling the gas via a balloon, leading to a short-term high causing symptoms such as brief euphoria, mild perceptual changes and uncontrollable laughter, external.
+
+Nitrous oxide also slows brain and body responses and can displace oxygen in the lungs and bloodstream, contributing to dizziness, confusion or fainting.
+
+It is thought long-term or excessive use can have disastrous effects on the body, from neurological harms to nerve and spinal cord damage which could lead to permanent disability.
+
+According to medical journal The Lancet, it is now the third most commonly used drug after cannabis and cocaine in the UK, with use highest among people aged 16â24 years.  
+
+It has been increasing in popularity as a recreational drug over the past decade.  
+
+This prompted it to be reclassified as a Class C drug in 2023 after a government consultation.
+
+This video can not be played
+
+Does football have a nitrous oxide problem?
+
+BBC Sport has been told the abuse of so-called laughing gas has been widespread among professional footballers for a long time.
+
+Former player Drewe Broughton is now a human performance coach, working with Premier League footballers and clubs around the world.  
+
+He said laughing gas was seen by some as a release.
+
+"I think the use of nitrous oxide is really common," he added.
+
+"It's something that can be done in private. It's something that can be hidden. You can't smell it on their clothes or the breath. It's an underground thing."
+
+Broughton said he had been in the company of professional players when they had been using 'balloons'.   
+
+"I remember sitting in a players' house on the outskirts of Manchester, and these canisters were all over the floor," he added.
+
+"I was from a world where people drank or they gambled or went to pubs and nightclubs. That was my first exposure to it."
+
+Broughton has developed an app to help tackle issues with mental health and under-performance in football.  
+
+He said the reasons to use nitrous oxide had always been there: pressure on players to perform leaves them searching for an escape.  
+
+But Broughton has concerns about the toll nitrous oxide can take.  
+
+"I don't think there's the same awareness around nitrous oxide and damage to the body as there would be around alcohol or other drugs," he said.
+
+BBC Sport has been told that some footballers see laughing gas as an alternative to harder substances because it does not stay in the body's system for more than a few hours.
+
+Luci Hanmer, who works with Lancashire drugs and alcohol support charity 'We Are With You', said a substance like nitrous oxide was hard to detect.   
+
+She said: "Anything that you're inhaling, the effects that you're going to feel happen very soon.
+
+"So if you are looking for that escapism, the effects are going to be quick.  
+
+"Once ingested, it doesn't last very long within your body compared to some of the other substances which can be detected for quite a number of days.
+
+"So if you're getting a drugs test the next day for example, that won't show up."
+
+Sterling given suspended sentence for dangerous driving
+
+Former Manchester City defender Nedum Onuoha said more support was needed, particularly for players like Sterling who break through young.
+
+Sterling made his debut for Liverpool and England at just 17 - before going on to win four Premier League titles at Manchester City and 82 caps for his country, including the Euro 2020 final at Wembley.
+
+"Look at what's happened to Raheem," he said. "Look at how this led to this moment, a moment which I'm sure he's hugely embarrassed about, because I'm sure he can see how dangerous that was to not just his life, but the lives of so many people who are on the road at the same time.
+
+"But I just don't feel like football is in a position where they think it's important to support people who have issues with nitrous oxide."
+
+The BBC Radio 5 live pundit said the use of nitrous oxide in professional footballing circles was very common.  
+
+"I think the difference from when I was younger is that people would openly party in certain places," he said.
+
+"Now they party where they're harder to spot. That's why you don't really see on a week-to-week basis now the scandal of somebody that's been out drinking.
+
+"The players are doing it, but it's more sophisticated in terms of how they do it, the locations, and this is an example here with nitrous oxide."
+
+Neurologist Dr Nicholl has been working with patients who have abused nitrous oxide for years and issued a warning to others.
+
+"It certainly is being used by footballers, but it's pretty much the worst thing that you want to be using if you're a professional sportsperson," he said.
+
+"It damages your spinal cord and the spinal cord is a bit like an electrical cable, where the insulation - the outside of that cable - gets stripped away.
+
+"So what patients will complain of is difficulty with feeling on their hands or feet, or unable to walk at all.  
+
+"So, in effect, it's like a spinal cord injury. But they can also get blood clots, deep vein thrombosis, pulmonary emboli, and some patients have died."
+
+If you have been affected by any of the issues raised in this story, information and support can be found at the BBC's Action Line website.
+

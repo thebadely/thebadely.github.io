@@ -1,0 +1,87 @@
+---
+layout: post
+title: "New: NHS boss warns of 'horrible spike' in flu as hospital admissions surge"
+date: 2026-11-27T09:57:37
+author: "badely"
+categories: [Health]
+tags: []
+excerpt: "Health officials are urging those at risk of getting flu to get vaccinated as soon as possible."
+image: assets/images/c83c9d7bd8977da0cee5fb9d306a2445.jpg
+---
+
+Let's dive into the details: A surge in severe cases of flu has prompted health officials in England to urge those most at risk to get vaccinated as soon as possible.
+
+The UK Health Security Agency (UKHSA) said hospital admission rates had soared by almost 80% over the last week to the highest at this time of year since before the Covid pandemic.
+
+Flu vaccine uptake so far among those aged 65 and over was just under 68% - lower than where it usually was at this time of year, the agency said. The flu can be very serious for those living with some long-term health conditions.
+
+Outgoing chief executive for NHS England, Sir Jim Mackey, talked of how some hospitals had introduced mask-wearing to stem the spread of respiratory illnesses.
+
+Winter flu vaccine rollout begins. Who's eligible?
+
+Are max strength cold and flu pills worth the money?
+
+Speaking at the NHS Alliance autumn conference, Sir Jim said he was asked to wear a mask for the first time in years during a hospital visit, saying it was "a bit of a shock".
+
+"I think we have more beds occupied with flu than we did this time last year, as we're just about going to that horrible spike in flu," he said.
+
+According to the UKHSA, almost 9.5 million people under the age of 65 in clinical risk groups - including those with lung conditions, kidney or liver disease and diabetes - are eligible for the flu jab. 
+
+However, only 34% had received a flu vaccine up to 22 November, leaving almost 7 million without vital protection.
+
+Sir Jim also condemned corridor care in hospitals saying that it had become "embedded" in some parts of the health service.
+
+"It's not something any of us would want for our families, our mothers, our aunties, uncles â whether it's from a safety point of view, or more importantly from a personal dignity point of view," he said, adding there was a need to get a grip and eliminate it."
+
+Suzanna McDonald, who leads the UKHSA's flu programme, said the H1N1 strain was fueling the spread. 
+
+She told BBC Radio 4's Today programme the strain "does seem to have picked up a few more changes that we would have expected over the season".
+
+"But the really encouraging news was that last year when we saw a drifted strain, the vaccine still worked very well," she added. 
+
+Sir Ciaran Devane, chief executive of the NHS Alliance, representing employers, said: "While the flu season is clearly hitting earlier this year and could add to the strain on NHS services heading into another difficult winter, we are yet to see how or when it will peak.
+
+"The NHS has already had to deal with the challenge of heatwaves this summer, so this could pile yet more pressure on already squeezed services."
+
+Suzanna McDonald urged people to get vaccinated, saying thousands of people die from the flu every year.
+
+Flu levels are expected to increase further as Christmas approaches and people start socialising indoors more.
+
+McDonald also called on those who are ill with respiratory symptoms to practise good hand hygiene by washing hands with warm soapy water, cough and sneeze into elbow or into a tissue, and to stay at home in bed and avoid anyone at much higher risk from catching diseases.
+
+Meanwhile, it emerged that just a little over a third of toddlers in England have had a vaccine so far this autumn on the NHS.
+
+Two and three-year-olds can have the vaccine, given as a nasal spray, for free at GP surgeries and some community pharmacies.
+
+But the UKHSA said just 39% of those eligible had taken up the offer.
+
+School age children usually have the vaccine at school, with a catch-up available in pharmacies from 1 December for those who missed it.
+
+McDonald said: "Please don't dismiss the importance of a flu vaccine for your children.
+
+"It will help keep them out of hospital and even save lives."
+
+This time last year an early increase in flu cases caused real concern across the NHS. 
+
+The virus was spreading sooner than expected and the fear was that the numbers would continue climbing right through the always challenging Christmas and New Year period.  
+
+As it happened the outbreak peaked early and the bleakest predictions did not become reality.  
+
+This time hospital admissions with flu patients are a little higher than 12 months ago after another early surge materialised. 
+
+Once again, officials do not know when the peak might be reached. 
+
+Adding to the challenges is an increase over the last year in patient numbers with a range of illnesses and conditions, partly explained by the ageing population. That means even more pressure on hospitals and their staff. 
+
+A bad flu winter could create significant problems.
+
+Have you been affected by the spike in flu cases?
+
+Get our flagship newsletter with all the headlines you need to start the day. Sign up here.
+
+Are max strength cold and flu pills worth the money?
+
+Flu and discharge waits cause hospital bed shortage
+
+Hospitals make masks plea after increase in flu
+
