@@ -1,0 +1,77 @@
+---
+layout: post
+title: "Big News: Man Utd trigger Fernandes' one-year contract extension"
+date: 2026-11-28T10:28:36
+author: "badely"
+categories: [Sports]
+tags: []
+excerpt: "Manchester United activate an option on captain Bruno Fernandes' contract, extending it until 2028."
+image: assets/images/default.jpg
+---
+
+Let's dive into the details: Bruno Fernandes joined Manchester United in 2020
+
+Manchester United have triggered their one-year option on captain Bruno Fernandes' contract.
+
+It is understood it was done relatively recently but both sides wanted to keep it private as negotiations around a new deal continued.
+
+However, the Portugal international confirmed on Tuesday that those discussions had been paused. Sources say they will resume once United's league position has improved.
+
+It is still uncertain whether an agreement can be reached. Marcus Rashford is currently United's highest-paid player following his return from Barcelona, but the club are reluctant to offer a comparable deal, which would be well in excess of Â£300,000-a-week.
+
+Fernandes also remains ambitious and wants to challenge for major trophies, which seems unlikely at Old Trafford given the club's present predicament.
+
+It leaves open the possibility of the 32-year-old leaving in January, or at the end of the season, although United would be entitled to a fee.
+
+Fernandes has made 343 appearances for United, scoring 115 goals, since his Â£47m move from Sporting in January 2020.
+
+Last season he broke the Premier League assists record and scooped all of the individual player of the year awards after an outstanding campaign as United finished third.
+
+United had been open to selling Fernandes in the summer of 2025, with Saudi Pro-League club Al Hilal offering a huge deal.
+
+After discussing the situation with his wife, Fernandes decided to stay, though he later said it "hurt" United were willing to sell him. He reiterated on Tuesday he was still ambitious to win the biggest honours in the game.
+
+Fernandes is a doubt for Saturday's Premier League encounter with Brentford after returning from the Champions League trip to Sporting with a virus. 
+
+The playmaker, who scored both goals in the 2-2 draw with his former club, did not train on Friday.
+
+It is anticipated Fernandes will declare himself fit to play, although the club's medical staff will have the final say and head coach Mauricio Pochettino said he would take a decision on his captain's fitness on Saturday morning.
+
+"We are going to assess during the day and then tomorrow see how he is when he wakes up," said Pochettino. "We are not going to take any risks."
+
+Pochettino is preparing for his first home game as Man Utd boss
+
+Pochettino was criticised by former Liverpool and England midfielder Jamie Redknapp on The Overlap earlier this week.
+
+Reference was made to the former Tottenham, Paris St-Germain and Chelsea coach high-fiving Sky Sports reporter Patrick Davidson after his side's 4-0 defeat at Liverpool on Sunday as evidence Pochettino had lost his edge.
+
+"When I saw Pochettino at Southampton and I saw him at Tottenham, he looked like he had that Argentinian dog in him," said Redknapp.
+
+"I look at him now and he's high-fiving everyone, he's got the bracelets on, he's got the barnet. I think he's gone too nice."
+
+It seems someone had mentioned the observation to Pochettino as he went off on a tangent at his Friday news conference when asked about a "crazy" first week that included red cards, refereeing errors, disallowed goals and a drone filming training.
+
+"What are we going to do? Start to cry?" he asked. "No. We have to be strong, believe and keep going. I cannot judge the past. Who am I to do that? I was in Cincinnati. I was outside. I need to shut my mouth, say nothing and start from now.
+
+"Sometimes we are so confusing two words that means something similar; nice and good. I am not nice. We have to be good. It is a different thing. We know when we need to push, when we need to be strong, and when we need to build something to improve the atmosphere and relationship and everything. 
+
+"These two things are different."
+
+Pochettino also confirmed Â£70m midfielder Carlos Baleba is expected to be out until the last week in January with the hamstring injury he sustained against Roma on 3 November.
+
+Forward Rashford had begun to do individual work outside as he tries to recover from a hip problem that has kept him out since 13 October.
+
+Follow Manchester United on BBC Sounds
+
+Pre-match, post-match and topical United content
+
+ 
+
+Subscribe and listen for everything you love about the Red Devils
+
+More ref frustration as Pochettino's chaotic start at Man Utd continues
+
+Lammens - the Man Utd goalkeeper under scrutiny like never before
+
+Latest Manchester United news, analysis and fan views
+
